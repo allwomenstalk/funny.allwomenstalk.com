@@ -3,7 +3,7 @@ title: "7 Silly Latin Insults You Need to Learn ..."
 description: "Utinam Barbari Spatium Proprium Tuum Invadant; Vescere Bracis Meis; Asinus Ad Lyram; Asinus Asinum Fricat; Derideo Te; More ..."
 url: "https://funny.allwomenstalk.com/silly-latin-insults-you-need-to-learn/"
 category: "funny"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Silly Latin Insults You Need to Learn ...
@@ -42,16 +42,16 @@ When you don't want to be mean, but you just can't help yourself, you can just s
 
 ## Related Posts
 
-- [feel like royalty](https://lifestyle.allwomenstalk.com/fancy-words-to-use-thatll-make-you-feel-like-royalty/)
-- [self deprecating quotes](https://inspiration.allwomenstalk.com/here-are-most-self-deprecating-phrases-people-say-but-shouldnt-ever/)
-- [carcolepsy](https://funny.allwomenstalk.com/these-words-need-to-exist-starting-now/)
-- [words you didnt know existed](https://lifestyle.allwomenstalk.com/words-youve-always-needed-but-never-realized-existed/)
-- [comebacks for glasses insults](https://lifestyle.allwomenstalk.com/classy-comebacks-thatll-help-you-stay-sophisticated/)
 - [backhanded compliment for a girl](https://inspiration.allwomenstalk.com/these-are-the-perfect-comebacks-to-backhanded-compliments/)
-- [el emoji nervioso](https://lifestyle.allwomenstalk.com/emojis-you-didnt-know-you-were-using-wrong/)
-- [cute smooth pick up lines](https://funny.allwomenstalk.com/the-fast-track-to-a-fling-pickup-lines-that-are-perfect-for-the-beach/)
+- [carcolepsy](https://funny.allwomenstalk.com/these-words-need-to-exist-starting-now/)
+- [feel like royalty](https://lifestyle.allwomenstalk.com/fancy-words-to-use-thatll-make-you-feel-like-royalty/)
 - [catcall examples](https://funny.allwomenstalk.com/its-time-to-take-a-stand-the-ultimate-list-of-comebacks-to-catcalls/)
 - [hawaii saying](https://lifestyle.allwomenstalk.com/hawaiian-words-to-learn-besides-aloha/)
+- [comebacks for glasses insults](https://lifestyle.allwomenstalk.com/classy-comebacks-thatll-help-you-stay-sophisticated/)
+- [cute smooth pick up lines](https://funny.allwomenstalk.com/the-fast-track-to-a-fling-pickup-lines-that-are-perfect-for-the-beach/)
+- [el emoji nervioso](https://lifestyle.allwomenstalk.com/emojis-you-didnt-know-you-were-using-wrong/)
+- [words you didnt know existed](https://lifestyle.allwomenstalk.com/words-youve-always-needed-but-never-realized-existed/)
+- [self deprecating quotes](https://inspiration.allwomenstalk.com/here-are-most-self-deprecating-phrases-people-say-but-shouldnt-ever/)
 - [7 Ways to Handle an Insult ...](https://lifestyle.allwomenstalk.com/ways-to-handle-an-insult/)
 - [7 Verbal Mistakes You Make ...](https://lifestyle.allwomenstalk.com/verbal-mistakes-you-make/)
 

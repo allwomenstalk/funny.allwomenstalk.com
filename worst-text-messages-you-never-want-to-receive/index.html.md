@@ -3,7 +3,7 @@ title: "7 Worst Text Messages You Never Want to Receive ..."
 description: "The Wifi is down; I Ran into Your Ex; Who’s This?; Can I Ask You a Question?; We Need More Milk; More ..."
 url: "https://funny.allwomenstalk.com/worst-text-messages-you-never-want-to-receive/"
 category: "funny"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Worst Text Messages You Never Want to Receive ...
@@ -42,16 +42,16 @@ Keeping in touch with your friends is as easy as touching a screen, but texting 
 
 ## Related Posts
 
-- [first day at work funny](https://funny.allwomenstalk.com/worst-things-to-say-on-your-first-day-at-work/)
-- [put a foot in it](https://inspiration.allwomenstalk.com/things-to-do-when-you-put-your-foot-in-your-mouth/)
-- [what things should friends never do](https://teen.allwomenstalk.com/things-you-should-never-do-as-a-friend/)
-- [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
-- [am i unattractive](https://inspiration.allwomenstalk.com/unattractive-personality-traits-you-should-consider-losing/)
 - [average price for tattoos](https://lifestyle.allwomenstalk.com/types-of-tattoos-to-avoid/)
-- [7 things you should never wear on a plane](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-plane/)
-- [what to say to a cop](https://funny.allwomenstalk.com/hilariously-ridiculous-things-you-should-never-say-to-a-police-officer/)
-- [how much alone time do introverts need](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-introverts/)
+- [put a foot in it](https://inspiration.allwomenstalk.com/things-to-do-when-you-put-your-foot-in-your-mouth/)
 - [what are you glad your parents dont know about you...](https://parenting.allwomenstalk.com/things-your-parents-dont-need-to-know-about-you/)
+- [what things should friends never do](https://teen.allwomenstalk.com/things-you-should-never-do-as-a-friend/)
+- [7 things you should never wear on a plane](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-plane/)
+- [7 Situations That Annoy Journalists ...](https://lifestyle.allwomenstalk.com/situations-that-annoy-journalists/)
+- [first day at work funny](https://funny.allwomenstalk.com/worst-things-to-say-on-your-first-day-at-work/)
+- [am i unattractive](https://inspiration.allwomenstalk.com/unattractive-personality-traits-you-should-consider-losing/)
+- [how much alone time do introverts need](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-introverts/)
+- [what to say to a cop](https://funny.allwomenstalk.com/hilariously-ridiculous-things-you-should-never-say-to-a-police-officer/)
 - [9 Things Not to Say via Text Message ...](https://lifestyle.allwomenstalk.com/things-not-to-say-via-text-message/)
 - [7 Types of Girls You do Not Want to Be ...](https://allwomenstalk.com/7-types-of-girls-you-do-not-want-to-be/)
 

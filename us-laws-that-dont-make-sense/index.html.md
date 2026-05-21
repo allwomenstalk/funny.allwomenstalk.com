@@ -3,7 +3,7 @@ title: "50 US Laws That Dont Make Sense ..."
 description: "Alabama; Alaska; Arizona; Arkansas; California; More ..."
 url: "https://funny.allwomenstalk.com/us-laws-that-dont-make-sense/"
 category: "funny"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 50 US Laws That Dont Make Sense ...
@@ -353,16 +353,16 @@ These are just a few of the strangest and most nonsensical laws in this country.
 
 ## Related Posts
 
-- [retro shower tile](https://diy.allwomenstalk.com/this-is-what-happens-when-you-go-retro-in-the-bathroom/)
 - [family story writing](https://lifestyle.allwomenstalk.com/touching-family-stories-that-will-make-you-cry/)
+- [sunset reflection on water](https://lifestyle.allwomenstalk.com/time-to-stand-and-stare-mesmerizing-reflections-in-water/)
 - [the future of civilization](https://lifestyle.allwomenstalk.com/scenarios-about-the-future-of-civilization/)
-- [short faced bear vs t rex](https://lifestyle.allwomenstalk.com/wait-till-you-see-these-giant-animals-that-succeeded-the-dinosaurs/)
 - [toronto bungee jumping](https://travel.allwomenstalk.com/get-ready-to-scream-the-most-spine-tingling-bungee-jumps-in-the-world/)
 - [smile cartoons](https://lifestyle.allwomenstalk.com/these-imaginative-cartoons-will-make-you-smile/)
+- [retro shower tile](https://diy.allwomenstalk.com/this-is-what-happens-when-you-go-retro-in-the-bathroom/)
 - [kiss marry smash](https://funny.allwomenstalk.com/the-hardest-kiss-marry-kill-game-youll-ever-play/)
-- [the flayed old lady](https://books.allwomenstalk.com/disturbing-fairytales-you-grew-up-loving-but-should-probably-spare-your-kids-from/)
 - [most inspiring athletes](https://celebs.allwomenstalk.com/inspiring-athletes-through-the-ages/)
-- [sunset reflection on water](https://lifestyle.allwomenstalk.com/time-to-stand-and-stare-mesmerizing-reflections-in-water/)
+- [the flayed old lady](https://books.allwomenstalk.com/disturbing-fairytales-you-grew-up-loving-but-should-probably-spare-your-kids-from/)
+- [short faced bear vs t rex](https://lifestyle.allwomenstalk.com/wait-till-you-see-these-giant-animals-that-succeeded-the-dinosaurs/)
 - [7 Reasons to Ignore Advice on Parenting ...](https://parenting.allwomenstalk.com/7-reasons-to-ignore-advice-on-parenting/)
 - [7 Celebrity Self-Help Books You Probably Shouldnt ...](https://allwomenstalk.com/7-celebrity-self-help-books-you-probably-shouldnt-take-seriously/)
 

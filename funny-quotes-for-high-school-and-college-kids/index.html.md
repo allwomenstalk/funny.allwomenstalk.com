@@ -3,7 +3,7 @@ title: "9 Funny Quotes for High School and College Kids ..."
 description: "At a Loss; Excuses, Excuses; Drab do-Overs; Mistaken Mirrors; Wait until Later; More ..."
 url: "https://funny.allwomenstalk.com/funny-quotes-for-high-school-and-college-kids/"
 category: "funny"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Funny Quotes for High School and College Kids ...
@@ -68,16 +68,16 @@ No matter how horrible your classes are, you'll end up missing school once it's 
 
 ## Related Posts
 
-- [i am not single quotes](https://love.allwomenstalk.com/quotes-for-singles-when-you-need-faith-that-love-will-still-come/)
+- [after rejection quotes](https://teen.allwomenstalk.com/quotes-for-dealing-with-rejection-from-your-dream-school/)
+- [never forget your past](https://inspiration.allwomenstalk.com/inspirational-quotes-about-letting-go-of-the-past/)
+- [be different quotes](https://inspiration.allwomenstalk.com/fantastic-quotes-that-celebrate-being-unique/)
+- [blake lively quotes](https://celebs.allwomenstalk.com/awesome-quotes-from-blake-lively-you-need-to-read/)
 - [gone girl ebook](https://books.allwomenstalk.com/thought-provoking-quotes-from-gone-girl-about-life/)
-- [accept where you are quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-learning-to-accept-yourself/)
 - [quotes about not forgiving someone](https://inspiration.allwomenstalk.com/quotes-about-forgiveness-when-its-not-easy-to-find/)
+- [i am not single quotes](https://love.allwomenstalk.com/quotes-for-singles-when-you-need-faith-that-love-will-still-come/)
 - [dont stress quotes funny](https://funny.allwomenstalk.com/silly-quotes-about-stress-that-will-calm-you-down/)
 - [phrases about missing someone](https://inspiration.allwomenstalk.com/calming-quotes-for-when-youre-missing-someone-special/)
-- [blake lively quotes](https://celebs.allwomenstalk.com/awesome-quotes-from-blake-lively-you-need-to-read/)
-- [be different quotes](https://inspiration.allwomenstalk.com/fantastic-quotes-that-celebrate-being-unique/)
-- [never forget your past](https://inspiration.allwomenstalk.com/inspirational-quotes-about-letting-go-of-the-past/)
-- [after rejection quotes](https://teen.allwomenstalk.com/quotes-for-dealing-with-rejection-from-your-dream-school/)
+- [accept where you are quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-learning-to-accept-yourself/)
 - [10 Funny Things That Children Say ...](https://allwomenstalk.com/10-funny-things-that-children-say/)
 - [7 Funny Jokes for Kids ...](https://allwomenstalk.com/7-funny-jokes-for-kids/)
 

@@ -3,7 +3,7 @@ title: "Are You the Punniest Person in Your Friend Group?"
 description: "Do You Show off Your Math Skills?; Are You Unfailingly Polite when You Share Information?; Do You Enjoy Giving History a Humorous Twist?; If You Are Patriotic, You Can Be Punny; Are You Willing to Pay for Your Crimes?; More ..."
 url: "https://funny.allwomenstalk.com/are-you-the-punniest-person-in-your-friend-group/"
 category: "funny"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Are You the Punniest Person in Your Friend Group?
@@ -144,16 +144,16 @@ If you are, you should get out. Just gtfo right now.
 
 ## Related Posts
 
-- [Can These 36 Questions Actually Make Strangers Fal...](https://love.allwomenstalk.com/can-these-questions-actually-make-strangers-fall-in-love/)
-- [the knot newlywed](https://love.allwomenstalk.com/what-do-newlyweds-really-think-after-they-tie-the-knot/)
-- [Whats Your Twitter User Type](https://apps.allwomenstalk.com/whats-your-twitter-user-type/)
-- [Do You Work in One of the Unhealthiest Jobs in Ame...](https://vityle.com/do-you-work-in-one-of-the-unhealthiest-jobs-in-america/)
-- [Should You Swap out Your Tampons for a Menstrual C...](https://health.allwomenstalk.com/should-you-swap-out-your-tampons-for-a-menstrual-cup/)
-- [paris color smoky avant azure](https://love.allwomenstalk.com/do-you-do-these-soppy-things-when-youre-in-love/)
 - [Should You Spring Clean Your Relationship Too](https://love.allwomenstalk.com/should-you-spring-clean-your-relationship-too/)
-- [The Latest Thing Would You Consider Getting a Non-...](https://beauty.allwomenstalk.com/the-latest-thing-would-you-consider-getting-a-non-surgical-nose-job/)
+- [the knot newlywed](https://love.allwomenstalk.com/what-do-newlyweds-really-think-after-they-tie-the-knot/)
+- [Do You Work in One of the Unhealthiest Jobs in Ame...](https://vityle.com/do-you-work-in-one-of-the-unhealthiest-jobs-in-america/)
 - [If Your Political Views Are Polarized Should You B...](https://love.allwomenstalk.com/if-your-political-views-are-polarized-should-you-be-with-him/)
 - [purse lips gif](https://love.allwomenstalk.com/are-you-actually-ready-to-lose-your-virginity/)
+- [Can These 36 Questions Actually Make Strangers Fal...](https://love.allwomenstalk.com/can-these-questions-actually-make-strangers-fall-in-love/)
+- [Whats Your Twitter User Type](https://apps.allwomenstalk.com/whats-your-twitter-user-type/)
+- [Should You Swap out Your Tampons for a Menstrual C...](https://health.allwomenstalk.com/should-you-swap-out-your-tampons-for-a-menstrual-cup/)
+- [The Latest Thing Would You Consider Getting a Non-...](https://beauty.allwomenstalk.com/the-latest-thing-would-you-consider-getting-a-non-surgical-nose-job/)
+- [paris color smoky avant azure](https://love.allwomenstalk.com/do-you-do-these-soppy-things-when-youre-in-love/)
 - [Do You Bite Your Nails](https://allwomenstalk.com/do-you-bite-your-nails/)
 - [Are You the King or Queen of First Dates](https://allwomenstalk.com/are-you-the-king-or-queen-of-first-dates/)
 

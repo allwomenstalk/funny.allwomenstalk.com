@@ -3,7 +3,7 @@ title: "7 Old Sayings and Their Origins ..."
 description: "Break the Ice; Don’t Look a Gift Horse in the Mouth; Saved by the Bell; Foaming at the Mouth; A Frog in Your Throat?; More ..."
 url: "https://funny.allwomenstalk.com/old-sayings-and-their-origins/"
 category: "funny"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Old Sayings and Their Origins ...
@@ -42,15 +42,15 @@ I cannot tell you the amount of other amazing, wacky old saying origins my frien
 
 ## Related Posts
 
-- [if youre here whos running heaven](https://funny.allwomenstalk.com/funny-replies-to-overused-pesky-pick-up-lines/)
-- [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
+- [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
+- [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
+- [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
 - [50s slang for cool](https://funny.allwomenstalk.com/silly-slang-terms-from-the-50s-to-bring-back/)
 - [paris riche stylo smoky eye spark](https://inspiration.allwomenstalk.com/limiting-phrases-you-say-that-age-you/)
 - [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
-- [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
+- [if youre here whos running heaven](https://funny.allwomenstalk.com/funny-replies-to-overused-pesky-pick-up-lines/)
 - [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
-- [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
-- [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
+- [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
 - [all intensive purposes other misused phrases](https://funny.allwomenstalk.com/commonly-misused-words-and-expressions-in-my-neck-of-the-woods/)
 - [7 Weirdest Urban Legends ...](https://allwomenstalk.com/7-urban-legends/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)

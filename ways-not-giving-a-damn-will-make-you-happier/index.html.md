@@ -3,7 +3,7 @@ title: "7 Ways Not Giving a Damn Will Make You Happier ..."
 description: "Opens up Opportunities; Saves More Sweet Time; It's Wonderful Being Weird; You'll Learn New Knowledge; You'll Make More Mates; More ..."
 url: "https://funny.allwomenstalk.com/ways-not-giving-a-damn-will-make-you-happier/"
 category: "funny"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Ways Not Giving a Damn Will Make You Happier ...
@@ -42,16 +42,16 @@ There's no reason to stress out about life when you could let things roll off of
 
 ## Related Posts
 
+- [how to respond positively](https://inspiration.allwomenstalk.com/positive-responses-that-will-turn-your-life-around/)
+- [tips on how to succeed in life](https://inspiration.allwomenstalk.com/daily-tips-to-help-you-succeed-in-all-avenues-of-life/)
 - [how to follow your dreams](https://inspiration.allwomenstalk.com/ways-to-follow-your-dreams-while-remaining-realistic/)
+- [things you have to wait for](https://inspiration.allwomenstalk.com/things-you-should-stop-waiting-for-and-just-do-already/)
+- [free confidence apps](https://inspiration.allwomenstalk.com/websites-to-build-your-confidence-and-boost-your-self-love/)
 - [living in the slow lane](https://inspiration.allwomenstalk.com/ways-to-live-life-in-the-slow-lane/)
 - [how to give back to your community](https://lifestyle.allwomenstalk.com/ways-to-give-back-to-your-community/)
-- [short motivational mantras](https://inspiration.allwomenstalk.com/motivational-mantras-to-repeat-daily/)
-- [pride and prejudice 2005 drinking game](https://books.allwomenstalk.com/ways-to-live-like-a-jane-austen-character/)
-- [free confidence apps](https://inspiration.allwomenstalk.com/websites-to-build-your-confidence-and-boost-your-self-love/)
-- [things you have to wait for](https://inspiration.allwomenstalk.com/things-you-should-stop-waiting-for-and-just-do-already/)
 - [can bring order](https://lifestyle.allwomenstalk.com/ways-a-planner-can-bring-order-to-your-life/)
-- [tips on how to succeed in life](https://inspiration.allwomenstalk.com/daily-tips-to-help-you-succeed-in-all-avenues-of-life/)
-- [how to respond positively](https://inspiration.allwomenstalk.com/positive-responses-that-will-turn-your-life-around/)
+- [pride and prejudice 2005 drinking game](https://books.allwomenstalk.com/ways-to-live-like-a-jane-austen-character/)
+- [short motivational mantras](https://inspiration.allwomenstalk.com/motivational-mantras-to-repeat-daily/)
 - [7 Foods That Make You Happy ...](https://allwomenstalk.com/7-foods-that-make-you-happy/)
 - [7 Tips in Life That Lead to Happiness ...](https://allwomenstalk.com/7-tips-in-life-that-lead-to-happiness/)
 

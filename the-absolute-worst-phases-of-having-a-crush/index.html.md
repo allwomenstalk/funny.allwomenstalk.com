@@ -3,7 +3,7 @@ title: "The Absolute Worst Phases of Having a Crush ..."
 description: "Butterflies; Denial; Social Media Stalking; Telling Your BFF; Awkward Mess; More ..."
 url: "https://funny.allwomenstalk.com/the-absolute-worst-phases-of-having-a-crush/"
 category: "funny"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # The Absolute Worst Phases of Having a Crush ...
@@ -43,15 +43,15 @@ Of course, there's no certainty on just how long each of these phases will last.
 ## Related Posts
 
 - [meanest things to say to a guy](https://love.allwomenstalk.com/of-the-worst-things-your-guy-can-say/)
-- [which words should not be used in this essay](https://teen.allwomenstalk.com/words-to-avoid-using-in-essays-to-get-higher-grades/)
 - [things considered cheating](https://love.allwomenstalk.com/tiny-things-that-count-as-cheating/)
-- [things you should never tolerate in a relationship](https://love.allwomenstalk.com/things-you-should-never-tolerate-in-a-relationship-2/)
-- [true friends dont](https://lifestyle.allwomenstalk.com/things-true-friends-dont-do/)
 - [what not to wear on a date](https://fashion.allwomenstalk.com/things-not-to-wear-on-a-first-date/)
 - [keep people in your life](https://lifestyle.allwomenstalk.com/people-to-keep-out-of-your-life/)
 - [embarrassing school photos](https://lifestyle.allwomenstalk.com/embarrassing-high-school-situations-you-never-mention-in-your-adult-life/)
-- [embarrassing songs in public](https://music.allwomenstalk.com/awkward-songs-you-should-never-sing-in-public/)
+- [which words should not be used in this essay](https://teen.allwomenstalk.com/words-to-avoid-using-in-essays-to-get-higher-grades/)
 - [couples making out in public](https://love.allwomenstalk.com/things-couples-shouldnt-do-in-public/)
+- [things you should never tolerate in a relationship](https://love.allwomenstalk.com/things-you-should-never-tolerate-in-a-relationship-2/)
+- [embarrassing songs in public](https://music.allwomenstalk.com/awkward-songs-you-should-never-sing-in-public/)
+- [true friends dont](https://lifestyle.allwomenstalk.com/things-true-friends-dont-do/)
 - [Its Just a Little Crush ...](https://allwomenstalk.com/its-just-a-little-crush/)
 - [13 Celebs Youre Ashamed to Admit You Have a Crush ...](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
 

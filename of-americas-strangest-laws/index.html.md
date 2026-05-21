@@ -3,7 +3,7 @@ title: "7 of Americas Strangest Laws ..."
 description: "In Alabama, It is Illegal to Play Dominoes on a Sunday; In Alaska, No Child is Allowed to Build a Snowman Taller than Himself/herself on School Property; In California, It is Illegal to Eat an Orange in Your Bathtub; In Colorado, It's against the Law to Loan Your Next Door Neighbor Your Vacuum; In Florida, It's against the Law to Dream about Another Man's Wife or Cow; More ..."
 url: "https://funny.allwomenstalk.com/of-americas-strangest-laws/"
 category: "funny"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 of Americas Strangest Laws ...
@@ -42,16 +42,16 @@ As Americans, we are amazing, unique people. With that, we also can be a little 
 
 ## Related Posts
 
-- [what days is emmerdale on](https://movies.allwomenstalk.com/long-running-british-soap-operas/)
-- [dj roomba parks and rec](https://movies.allwomenstalk.com/parks-and-rec-characters-weve-all-identified-with/)
-- [daniel howell shirtless](https://funny.allwomenstalk.com/funniest-dan-and-phil-videos-on-youtube/)
 - [riche stylo sky](https://lifestyle.allwomenstalk.com/types-of-clouds-to-watch-when-gazing-at-the-sky/)
-- [underdogs girlfriend](https://movies.allwomenstalk.com/most-charming-underdogs-on-tv/)
 - [snl cajun man](https://movies.allwomenstalk.com/saturday-night-live-characters-we-miss/)
-- [neil patrick harris videos](https://funny.allwomenstalk.com/hysterical-neil-patrick-harris-videos-youll-love/)
-- [bloopers pitch perfect](https://funny.allwomenstalk.com/blooper-reels-to-watch-right-here-and-now/)
+- [daniel howell shirtless](https://funny.allwomenstalk.com/funniest-dan-and-phil-videos-on-youtube/)
+- [underdogs girlfriend](https://movies.allwomenstalk.com/most-charming-underdogs-on-tv/)
 - [best sitcom finales](https://movies.allwomenstalk.com/series-finales-ranked-from-worst-to-best/)
 - [michael che sister](https://movies.allwomenstalk.com/hilarious-sketch-comedy-shows-besides-snl/)
+- [neil patrick harris videos](https://funny.allwomenstalk.com/hysterical-neil-patrick-harris-videos-youll-love/)
+- [what days is emmerdale on](https://movies.allwomenstalk.com/long-running-british-soap-operas/)
+- [bloopers pitch perfect](https://funny.allwomenstalk.com/blooper-reels-to-watch-right-here-and-now/)
+- [dj roomba parks and rec](https://movies.allwomenstalk.com/parks-and-rec-characters-weve-all-identified-with/)
 - [7 Weirdest Urban Legends ...](https://allwomenstalk.com/7-urban-legends/)
 - [8 Bizarre Outdated Laws ...](https://allwomenstalk.com/8-bizarre-outdated-laws/)
 

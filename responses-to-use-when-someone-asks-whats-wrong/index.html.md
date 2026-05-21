@@ -3,7 +3,7 @@ title: "17 Responses to Someone Asking Whats Wrong ..."
 description: "The Fact That I Have Resting Bitch Face; Do You Want a List?; There’s Trouble Back on My Home Planet; You Should Know; How Much I Care; More ..."
 url: "https://funny.allwomenstalk.com/responses-to-use-when-someone-asks-whats-wrong/"
 category: "funny"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 17 Responses to Someone Asking Whats Wrong  ...
@@ -116,16 +116,16 @@ Now you'll be able to put nosy people in their place. What do you usually say wh
 
 ## Related Posts
 
-- [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
+- [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
+- [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
 - [i trust my boyfriend](https://love.allwomenstalk.com/should-i-trust-my-boyfriend-around-my-friends/)
-- [symptoms of nomofobia](https://lifestyle.allwomenstalk.com/do-you-have-the-symptoms-of-nomophobia/)
+- [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
+- [style quotes in english](https://fashion.allwomenstalk.com/what-does-your-fashion-style-say-about-you/)
+- [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
+- [crying watching tv](https://movies.allwomenstalk.com/did-you-know-crying-during-movies-means-youre-a-stronger-person/)
 - [finger trampoline tattoo](https://beauty.allwomenstalk.com/questions-girls-thinking-of-getting-their-first-tattoo-should-ask-themselves/)
 - [cohost snao](https://apps.allwomenstalk.com/you-can-be-our-next-snapchat-co-host-see-how/)
-- [style quotes in english](https://fashion.allwomenstalk.com/what-does-your-fashion-style-say-about-you/)
-- [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
-- [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
-- [crying watching tv](https://movies.allwomenstalk.com/did-you-know-crying-during-movies-means-youre-a-stronger-person/)
-- [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
+- [symptoms of nomofobia](https://lifestyle.allwomenstalk.com/do-you-have-the-symptoms-of-nomophobia/)
 - [7 of Womens Most Puzzling Behaviors Explained ...](https://love.allwomenstalk.com/of-womens-most-puzzling-behaviors-explained/)
 - [7 Things That Make Guys Upset ...](https://allwomenstalk.com/7-things-that-make-guys-upset/)
 

@@ -3,7 +3,7 @@ title: "7 Strangely Terrifying and Weird Finds on Etsy ..."
 description: "Tooth Knuckle Ring; Moose Poop Necklace; Foetus Soap; Turkey Tortoise Cozy; Pizza, Bacon and Dill Pickle Lip Balm; More ..."
 url: "https://funny.allwomenstalk.com/strangely-terrifying-and-weird-finds-on-etsy/"
 category: "funny"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Strangely Terrifying and Weird Finds on Etsy ...
@@ -56,16 +56,16 @@ Oh, Etsy! What would I do without you? I am a total Etsy fanatic, but some of th
 
 ## Related Posts
 
-- [what are some things that are purple](https://lifestyle.allwomenstalk.com/things-that-show-the-power-of-purple/)
-- [things for geeks](https://lifestyle.allwomenstalk.com/fun-things-for-geeks-to-drool-over/)
-- [pinterest bike](https://fitness.allwomenstalk.com/cool-bicycles-that-might-inspire-you-to-take-up-cycling/)
-- [how to get your adrenaline pumping](https://lifestyle.allwomenstalk.com/adrenaline-pumping-achievements-to-make-that-you-can-brag-about/)
+- [pink fluffy landline phone](https://lifestyle.allwomenstalk.com/things-if-you-have-a-passion-for-pink/)
 - [cool vintage toys](https://lifestyle.allwomenstalk.com/fun-vintage-toys-you-might-have-played-with/)
 - [anything orange](https://lifestyle.allwomenstalk.com/orange-things-to-prove-its-an-outstanding-color/)
-- [pink fluffy landline phone](https://lifestyle.allwomenstalk.com/things-if-you-have-a-passion-for-pink/)
-- [scouting memorabilia](https://lifestyle.allwomenstalk.com/pieces-of-scout-memorabilia-that-might-bring-back-memories/)
 - [popular vintage items](https://lifestyle.allwomenstalk.com/vintage-things-that-will-make-you-yearn-for-days-of-yore/)
+- [pinterest bike](https://fitness.allwomenstalk.com/cool-bicycles-that-might-inspire-you-to-take-up-cycling/)
 - [what sound does the rain make on umbrellas](https://lifestyle.allwomenstalk.com/umbrellas-to-make-you-smile-on-a-rainy-day/)
+- [what are some things that are purple](https://lifestyle.allwomenstalk.com/things-that-show-the-power-of-purple/)
+- [things for geeks](https://lifestyle.allwomenstalk.com/fun-things-for-geeks-to-drool-over/)
+- [scouting memorabilia](https://lifestyle.allwomenstalk.com/pieces-of-scout-memorabilia-that-might-bring-back-memories/)
+- [how to get your adrenaline pumping](https://lifestyle.allwomenstalk.com/adrenaline-pumping-achievements-to-make-that-you-can-brag-about/)
 - [7 Wonderful Wedding Dresses from Etsy ...](https://wedding.allwomenstalk.com/7-wonderful-wedding-dresses-from-etsy/)
 - [7 Unusual Rings from Anthropologie ...](https://jewelry.allwomenstalk.com/7-unusual-rings-from-anthropologie/)
 

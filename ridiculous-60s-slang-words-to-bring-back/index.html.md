@@ -3,7 +3,7 @@ title: "13 Ridiculous 60s Slang Words to Bring Back ..."
 description: "Out of Sight; Choice; Don't Flip Your Wig; A Gas; You Dig?; More ..."
 url: "https://funny.allwomenstalk.com/ridiculous-60s-slang-words-to-bring-back/"
 category: "funny"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 13 Ridiculous 60s Slang Words to Bring Back ...
@@ -66,15 +66,15 @@ Since time travel isn't invented yet, the only way to feel like you're back in t
 
 ## Related Posts
 
+- [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
 - [learn new language online free](https://lifestyle.allwomenstalk.com/best-ways-to-learn-languages-for-free-online/)
 - [hilarious period jokes](https://funny.allwomenstalk.com/comebacks-for-when-youre-asked-if-youre-on-your-period/)
 - [funny i love you more](https://funny.allwomenstalk.com/funny-clever-responses-to-i-love-you/)
+- [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
 - [oxford dictionary word of the year 2014](https://lifestyle.allwomenstalk.com/oxford-dictionaries-has-spoken-2014s-word-of-the-year-is/)
 - [how do you answer whats up](https://funny.allwomenstalk.com/funny-replies-for-when-youre-asked-whats-up/)
-- [crazy grandma memes](https://funny.allwomenstalk.com/hilarious-grandmas-has-yours-ever-given-you-advice-as-crazy-as-this/)
 - [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
-- [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
-- [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
+- [crazy grandma memes](https://funny.allwomenstalk.com/hilarious-grandmas-has-yours-ever-given-you-advice-as-crazy-as-this/)
 - [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
 - [7 Words That Are Funny to Say ...](https://allwomenstalk.com/7-words-that-are-funny-to-say/)
 - [9 Cool-Sounding Words to Add to Your Vocabulary .....](https://allwomenstalk.com/9-cool-sounding-words-to-add-to-your-vocabulary/)

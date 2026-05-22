@@ -3,7 +3,7 @@ title: "7 Things You Dont Want to Hear on a First Date ..."
 description: "\"Ignore My Mom, She Comes Everywhere with Me\"; \"Would You Mind if I Put My Cellphone on the Table? I'm Expecting a Call from My Parole Officer\"; \"Waiter, Can I Have a Cushion Please, These Anal Crabs Hurt like Hell!\"; \"You Looked so Much Prettier in the Picture\"; \"I Could do with Some Laundry Advice, How do I Get Rid of Blood Stains?\"; More ..."
 url: "https://funny.allwomenstalk.com/things-you-dont-want-to-hear-on-a-first-date/"
 category: "funny"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Things You Dont Want to Hear on a First Date ...
@@ -42,16 +42,16 @@ These are just a few things you never want to hear from your date. Can you think
 
 ## Related Posts
 
-- [7 Questionable Things You Should Never Snapchat .....](https://apps.allwomenstalk.com/questionable-things-you-should-never-snapchat/)
-- [7 Things You Really Dont Need to Pack for a Holida...](https://travel.allwomenstalk.com/things-you-really-dont-need-to-pack-for-a-holiday/)
-- [7 First Date Deal Breakers ...](https://love.allwomenstalk.com/first-date-deal-breakers/)
-- [7 Things Mr Wrong Will Say on a Speed Date ...](https://love.allwomenstalk.com/things-mr-wrong-will-say-on-a-speed-date/)
-- [week before your wedding](https://wedding.allwomenstalk.com/things-you-should-not-do-the-week-before-your-wedding/)
-- [7 Things You Never Want to Be in Life ...](https://inspiration.allwomenstalk.com/things-you-never-want-to-be-in-life/)
-- [things to never do on an airplane](https://funny.allwomenstalk.com/things-you-should-never-say-on-a-plane/)
-- [9 Negative Things to Consciously Detach Yourself f...](https://inspiration.allwomenstalk.com/negative-things-to-consciously-detach-yourself-from/)
-- [7 Things You Should Never Say to Your Guy ...](https://love.allwomenstalk.com/things-you-should-never-say-to-your-guy/)
 - [7 Social Media Donts That Youre Better off Avoidin...](https://lifestyle.allwomenstalk.com/social-media-donts-that-youre-better-off-avoiding/)
+- [7 Things Mr Wrong Will Say on a Speed Date ...](https://love.allwomenstalk.com/things-mr-wrong-will-say-on-a-speed-date/)
+- [7 Things You Really Dont Need to Pack for a Holida...](https://travel.allwomenstalk.com/things-you-really-dont-need-to-pack-for-a-holiday/)
+- [7 Things You Never Want to Be in Life ...](https://inspiration.allwomenstalk.com/things-you-never-want-to-be-in-life/)
+- [9 Negative Things to Consciously Detach Yourself f...](https://inspiration.allwomenstalk.com/negative-things-to-consciously-detach-yourself-from/)
+- [7 Questionable Things You Should Never Snapchat .....](https://apps.allwomenstalk.com/questionable-things-you-should-never-snapchat/)
+- [7 First Date Deal Breakers ...](https://love.allwomenstalk.com/first-date-deal-breakers/)
+- [things to never do on an airplane](https://funny.allwomenstalk.com/things-you-should-never-say-on-a-plane/)
+- [7 Things You Should Never Say to Your Guy ...](https://love.allwomenstalk.com/things-you-should-never-say-to-your-guy/)
+- [week before your wedding](https://wedding.allwomenstalk.com/things-you-should-not-do-the-week-before-your-wedding/)
 - [5 Common First Date Mistakes You Should Avoid ...](https://allwomenstalk.com/common-first-date-mistakes-you-should-avoid/)
 - [8 Topics to Avoid on a First Date ...](https://allwomenstalk.com/8-topics-to-avoid-on-a-first-date/)
 

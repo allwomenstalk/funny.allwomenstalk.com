@@ -3,7 +3,7 @@ title: "How the World Changes when You Have a Crush ..."
 description: "Texting; Jealousy; Compliments; Waiting; Dates; More ..."
 url: "https://funny.allwomenstalk.com/how-the-world-changes-when-you-have-a-crush/"
 category: "funny"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # How the World Changes when You Have a Crush ...
@@ -44,16 +44,16 @@ Do you think this is a pretty accurate description of the way you behave when yo
 
 ## Related Posts
 
-- [17 Things Your BF Should do without Being Asked .....](https://love.allwomenstalk.com/things-your-bf-should-do-without-being-asked/)
+- [17 Questions to Help You Figure out Where to Go on...](https://love.allwomenstalk.com/questions-thatll-help-you-figure-out-where-to-go-on-a-date/)
 - [17 Things Thatll Give Away Who Youre Crushing on ....](https://love.allwomenstalk.com/things-thatll-give-away-who-youre-crushing-on/)
+- [17 Things Your BF Should do without Being Asked .....](https://love.allwomenstalk.com/things-your-bf-should-do-without-being-asked/)
+- [emojis to use when flirting](https://love.allwomenstalk.com/the-most-effective-emojis-to-use-when-flirting/)
 - [7 Beginners Flirting Tips for Teens New to the Gam...](https://love.allwomenstalk.com/beginning-flirting-tips-for-teens/)
+- [how to read flirting signals](https://love.allwomenstalk.com/how-to-read-flirting-signals-from-men-and-women/)
 - [How to Guide for Letting Your Man Know Hes Your Pe...](https://love.allwomenstalk.com/how-to-let-him-know-hes-your-person/)
 - [how to improve my dating profile](https://love.allwomenstalk.com/tips-for-enhancing-your-dating-profile/)
-- [17 Questions to Help You Figure out Where to Go on...](https://love.allwomenstalk.com/questions-thatll-help-you-figure-out-where-to-go-on-a-date/)
-- [What Should You Text Back Your Crush](https://love.allwomenstalk.com/what-should-you-text-back-your-crush/)
-- [how to read flirting signals](https://love.allwomenstalk.com/how-to-read-flirting-signals-from-men-and-women/)
 - [16 True Confessions about First Dates That Will Ma...](https://love.allwomenstalk.com/true-confessions-about-first-dates-that-will-make-you-feel-less-awkward/)
-- [emojis to use when flirting](https://love.allwomenstalk.com/the-most-effective-emojis-to-use-when-flirting/)
+- [What Should You Text Back Your Crush](https://love.allwomenstalk.com/what-should-you-text-back-your-crush/)
 - [Its Just a Little Crush ...](https://allwomenstalk.com/its-just-a-little-crush/)
 - [9 Adorable Signs That Youre Head over Heels in Lov...](https://love.allwomenstalk.com/adorable-signs-that-youre-head-over-heels-in-love/)
 

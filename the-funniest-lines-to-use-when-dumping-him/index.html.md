@@ -3,7 +3,7 @@ title: "The 17 Funniest Lines to Use when Dumping Him ..."
 description: "Is It Hot in Here or Are You Just Suffocating Me?; I Now Pronounce You Dumped and Single; You Deserve Better and so do I; I'd Rather Masturbate than Be with You; My Dog Doesn't Approve of You; More ..."
 url: "https://funny.allwomenstalk.com/the-funniest-lines-to-use-when-dumping-him/"
 category: "funny"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # The 17 Funniest Lines to Use when Dumping Him ...
@@ -116,16 +116,16 @@ You probably shouldn't use any of these on your boyfriend, unless you want to sh
 
 ## Related Posts
 
+- [11 rules of grammar](https://lifestyle.allwomenstalk.com/grammar-rules-that-most-people-have-never-learned/)
+- [emoji pick up lines](https://funny.allwomenstalk.com/the-biggest-pick-up-line-failures/)
+- [sign language russian](https://lifestyle.allwomenstalk.com/sign-language-infographics-thatll-make-you-smarter/)
+- [recent additions to the dictionary](https://lifestyle.allwomenstalk.com/a-few-new-words-being-added-to-the-dictionary/)
 - [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
 - [site:allwomenstalk.com](https://funny.allwomenstalk.com/funny-comebacks-to-catcalls/)
-- [psychology of a nosy person](https://funny.allwomenstalk.com/comebacks-for-all-of-the-nosy-people-in-your-life/)
-- [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
-- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
-- [11 rules of grammar](https://lifestyle.allwomenstalk.com/grammar-rules-that-most-people-have-never-learned/)
-- [recent additions to the dictionary](https://lifestyle.allwomenstalk.com/a-few-new-words-being-added-to-the-dictionary/)
-- [emoji pick up lines](https://funny.allwomenstalk.com/the-biggest-pick-up-line-failures/)
 - [if you were a holiday youd be pick up line](https://love.allwomenstalk.com/pickup-lines-to-use-underneath-the-mistletoe/)
-- [sign language russian](https://lifestyle.allwomenstalk.com/sign-language-infographics-thatll-make-you-smarter/)
+- [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
+- [psychology of a nosy person](https://funny.allwomenstalk.com/comebacks-for-all-of-the-nosy-people-in-your-life/)
+- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
 - [7 Ideas on How to Dump a Guy Nicely ...](https://allwomenstalk.com/7-ideas-on-how-to-dump-a-guy-nicely/)
 - [15 Sweet Things to Say to Your Boyfriend ...](https://allwomenstalk.com/8-sweet-things-to-say-to-your-boyfriend/)
 

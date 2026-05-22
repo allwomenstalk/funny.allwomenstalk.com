@@ -3,7 +3,7 @@ title: "7 Hysterical Neil Patrick Harris Videos Youll Love ..."
 description: "Reenacting the Oscars with Ellen; Singing with Hugh Jackman; Running with Billy on the Street; Bollywood from Neil's Puppet Dreams; Couple's Questions on the Chew; More ..."
 url: "https://funny.allwomenstalk.com/hysterical-neil-patrick-harris-videos-youll-love/"
 category: "funny"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Hysterical Neil Patrick Harris Videos Youll Love ...
@@ -42,16 +42,16 @@ NPH is a legendary actor, singer, dancer, host, magician, father--the list goes 
 
 ## Related Posts
 
-- [daniel howell shirtless](https://funny.allwomenstalk.com/funniest-dan-and-phil-videos-on-youtube/)
-- [jimmy kimmels sidekick](https://movies.allwomenstalk.com/hilarious-segments-from-jimmy-kimmel-live/)
-- [what is the most hated day](https://funny.allwomenstalk.com/of-the-worst-days-in-a-month/)
-- [dante 9 circles of hell](https://books.allwomenstalk.com/circles-of-hell-from-dantes-inferno/)
 - [who was a in pll books](https://books.allwomenstalk.com/pretty-little-liars-characters-and-how-they-differ-between-the-show-and-books/)
-- [greek cyclopes](https://books.allwomenstalk.com/creatures-from-greek-mythology/)
-- [i wish fictional characters were real](https://movies.allwomenstalk.com/fictional-characters-we-wish-were-real/)
-- [7 dates with a guy](https://love.allwomenstalk.com/disastrous-dates-weve-all-had/)
-- [monica frizzy hair meme](https://movies.allwomenstalk.com/times-weve-all-been-one-of-the-f-r-i-e-n-d-s-characters/)
 - [ps4 games list 2014](https://lifestyle.allwomenstalk.com/ps4-games-we-cant-wait-for-this-year/)
+- [i wish fictional characters were real](https://movies.allwomenstalk.com/fictional-characters-we-wish-were-real/)
+- [greek cyclopes](https://books.allwomenstalk.com/creatures-from-greek-mythology/)
+- [dante 9 circles of hell](https://books.allwomenstalk.com/circles-of-hell-from-dantes-inferno/)
+- [7 dates with a guy](https://love.allwomenstalk.com/disastrous-dates-weve-all-had/)
+- [daniel howell shirtless](https://funny.allwomenstalk.com/funniest-dan-and-phil-videos-on-youtube/)
+- [what is the most hated day](https://funny.allwomenstalk.com/of-the-worst-days-in-a-month/)
+- [monica frizzy hair meme](https://movies.allwomenstalk.com/times-weve-all-been-one-of-the-f-r-i-e-n-d-s-characters/)
+- [jimmy kimmels sidekick](https://movies.allwomenstalk.com/hilarious-segments-from-jimmy-kimmel-live/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [7 of My Favorite Funny Youtube Videos ...](https://7fun.net/7-of-my-favorite-funny-youtube-videos/)
 

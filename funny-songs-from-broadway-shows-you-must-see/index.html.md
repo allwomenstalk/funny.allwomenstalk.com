@@ -3,7 +3,7 @@ title: "7 Funny Songs from Broadway Shows You Must See ..."
 description: "Hairspray - without Love; Hedwig and the Angry Inch - Angry Inch; Book of Mormon - Hello; West Side Story - Officer Krupke; Wicked - Popular; More ..."
 url: "https://funny.allwomenstalk.com/funny-songs-from-broadway-shows-you-must-see/"
 category: "funny"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Funny Songs from Broadway Shows You Must See ...
@@ -42,16 +42,16 @@ If you have the time and money to see a show, you won't regret buying tickets. H
 
 ## Related Posts
 
-- [tokio hotel letzter song](https://music.allwomenstalk.com/tokio-hotel-songs-that-youve-gotta-listen-to/)
-- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
-- [which artists have the best concerts](https://music.allwomenstalk.com/artists-who-put-on-amazing-concerts/)
-- [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
+- [top james bond theme songs](https://music.allwomenstalk.com/best-james-bond-theme-songs/)
+- [leave me in awe](https://music.allwomenstalk.com/acoustic-performances-by-little-mix-thatll-leave-you-in-awe/)
 - [best music collaborations of all time](https://music.allwomenstalk.com/surprising-musical-collaborations-that-are-actually-amazing/)
+- [tokio hotel letzter song](https://music.allwomenstalk.com/tokio-hotel-songs-that-youve-gotta-listen-to/)
+- [1984 in music](https://music.allwomenstalk.com/top-hits-from-you-may-have-forgotten-about/)
+- [craig morgan international harvester lyrics](https://music.allwomenstalk.com/amazing-country-artists-you-should-be-listening-to/)
+- [electronica band](https://music.allwomenstalk.com/electronica-bands-you-need-on-your-ipod/)
 - [best albums of 90s](https://music.allwomenstalk.com/amazing-albums-from-the-90s-you-need-on-your-ipod/)
 - [1994 songs hits](https://music.allwomenstalk.com/top-hits-from-we-are-still-listening-to-today/)
-- [leave me in awe](https://music.allwomenstalk.com/acoustic-performances-by-little-mix-thatll-leave-you-in-awe/)
-- [top james bond theme songs](https://music.allwomenstalk.com/best-james-bond-theme-songs/)
-- [1984 in music](https://music.allwomenstalk.com/top-hits-from-you-may-have-forgotten-about/)
+- [which artists have the best concerts](https://music.allwomenstalk.com/artists-who-put-on-amazing-concerts/)
 - [10 Broadway Shows of 2011 You Have to See ...](https://lifestyle.allwomenstalk.com/broadway-shows-of-you-have-to-see/)
 - [7 Great Shows for Kids Who Love Music ...](https://allwomenstalk.com/7-great-shows-for-kids-who-love-music/)
 

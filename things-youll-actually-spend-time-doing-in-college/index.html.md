@@ -3,7 +3,7 @@ title: "7 Things Youll Actually Spend Time Doing in College ..."
 description: "Complaining; Playing Video Games; Scavenging for Food; Watching Netflix; Using Electronics; More ..."
 url: "https://funny.allwomenstalk.com/things-youll-actually-spend-time-doing-in-college/"
 category: "funny"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Things Youll Actually Spend Time Doing in College ...
@@ -42,16 +42,16 @@ College is an awesome experience, but it doesn't only involve studying and party
 
 ## Related Posts
 
-- [7 Things to do when Youre in College ...](https://teen.allwomenstalk.com/things-to-do-when-youre-in-college/)
-- [7 Amazing Tech Schools to Consider ...](https://teen.allwomenstalk.com/amazing-tech-schools-to-consider/)
 - [lessons learned in college](https://teen.allwomenstalk.com/must-know-lessons-learned-in-college/)
 - [7 Essay Mistakes to Avoid to Get a Higher Grade .....](https://teen.allwomenstalk.com/essay-mistakes-to-avoid-to-get-a-higher-grade/)
-- [swarthmore college notable alumni](https://teen.allwomenstalk.com/liberal-arts-colleges-to-consider/)
 - [what kind of job can i get on campus](https://money.allwomenstalk.com/great-college-campus-jobs-to-have/)
-- [7 Factors to Consider before Accepting a College O...](https://teen.allwomenstalk.com/factors-to-consider-before-accepting-a-college-offer/)
-- [7 Learning Tools as Alternatives to Textbooks ...](https://teen.allwomenstalk.com/learning-tools-as-alternatives-to-textbooks/)
 - [does college pay off](https://teen.allwomenstalk.com/college-courses-that-will-pay-off/)
+- [7 Learning Tools as Alternatives to Textbooks ...](https://teen.allwomenstalk.com/learning-tools-as-alternatives-to-textbooks/)
+- [7 Factors to Consider before Accepting a College O...](https://teen.allwomenstalk.com/factors-to-consider-before-accepting-a-college-offer/)
+- [swarthmore college notable alumni](https://teen.allwomenstalk.com/liberal-arts-colleges-to-consider/)
+- [7 Amazing Tech Schools to Consider ...](https://teen.allwomenstalk.com/amazing-tech-schools-to-consider/)
 - [7 Potential Ways to Fund Your College Education .....](https://teen.allwomenstalk.com/potential-ways-to-fund-your-college-education/)
+- [7 Things to do when Youre in College ...](https://teen.allwomenstalk.com/things-to-do-when-youre-in-college/)
 - [7 Things I Miss about College ...](https://allwomenstalk.com/7-things-i-miss-about-college/)
 - [8 Reasons to Go to College ...](https://allwomenstalk.com/8-reasons-to-go-to-college/)
 

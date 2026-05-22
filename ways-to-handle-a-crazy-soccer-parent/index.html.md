@@ -3,7 +3,7 @@ title: "Ways to Handle a Crazy Soccer Parent for Sports Moms out There ..."
 description: "You Need to Stare at Them; You Need to Ask Them if They Have Some Sort of Mental Issue and Have They Taken Their Meds Today; The Next Step is Verbally Telling Them How You Feel and then Finishing off the Confrontation with a Physical Gesture; As Far as Verbal Goes...; Before You Engage in the Ultimate a$$ Chewing, Make Sure You Have Water with Lemon Nearby; More ..."
 url: "https://funny.allwomenstalk.com/ways-to-handle-a-crazy-soccer-parent/"
 category: "funny"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Ways to Handle a Crazy Soccer Parent for Sports Moms out There ...
@@ -62,14 +62,14 @@ I can guarantee you will get their attention and they will either retaliate or c
 
 - [how to get out of speeding tickets](https://lifestyle.allwomenstalk.com/how-to-talk-your-way-out-of-a-speeding-ticket/)
 - [getting rid of toxic friends](https://inspiration.allwomenstalk.com/steps-to-removing-a-toxic-friend-from-your-life/)
-- [stopmom](https://parenting.allwomenstalk.com/ways-to-stop-mom-shaming/)
-- [how to deal with an argumentative child](https://parenting.allwomenstalk.com/helpful-ways-to-manage-an-argumentative-teen/)
-- [how to make him stop cheating](https://love.allwomenstalk.com/ways-to-get-a-cheater-to-stop-cheating/)
-- [can god remove a person from your life to give the...](https://lifestyle.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life-2/)
 - [classy girlfriend](https://inspiration.allwomenstalk.com/how-to-deal-with-mean-girls-in-a-classy-way/)
+- [someone in a bubble](https://inspiration.allwomenstalk.com/how-to-recover-when-someone-bursts-your-bubble/)
+- [stopmom](https://parenting.allwomenstalk.com/ways-to-stop-mom-shaming/)
 - [arguments at christmas](https://inspiration.allwomenstalk.com/how-to-avoid-causing-family-arguments-at-christmas/)
 - [what does it mean when someone calls you fat](https://weightloss.allwomenstalk.com/ways-to-respond-when-someone-calls-you-fat/)
-- [someone in a bubble](https://inspiration.allwomenstalk.com/how-to-recover-when-someone-bursts-your-bubble/)
+- [how to make him stop cheating](https://love.allwomenstalk.com/ways-to-get-a-cheater-to-stop-cheating/)
+- [can god remove a person from your life to give the...](https://lifestyle.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life-2/)
+- [how to deal with an argumentative child](https://parenting.allwomenstalk.com/helpful-ways-to-manage-an-argumentative-teen/)
 - [Help for Soccer Moms ...](https://allwomenstalk.com/help-for-soccer-moms/)
 - [7 Tips on Dealing with Controlling Parents ...](https://allwomenstalk.com/7-tips-on-dealing-with-controlling-parents/)
 

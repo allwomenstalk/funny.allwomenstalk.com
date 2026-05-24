@@ -141,7 +141,7 @@ Source: [Im One Sarcastic Broad LOL!!](https://www.hugedomains.com/domain_profil
 ## 25. Mom V Dad - the Important Stuff
 
 _ Source: Who Does Your Kid Love_
-But at the end of the day ���
+But at the end of the day …
 
 ![Mom V Dad - the Important Stuff](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wa/jy/kxy3x8fg557d8cdb3a542714967997_600x340.jpg)
 

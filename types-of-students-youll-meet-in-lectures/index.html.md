@@ -3,7 +3,7 @@ title: "11 Types of Students Youll Meet in Lectures ..."
 description: "The One That Spent Five Hours Doing Her Hair and Ten Minutes Doing Her Essays; The One That Wants to Answer All the Questions Because She Thinks She Knows It All; The One That Spends Her Entire Time Flirting when Others Are Trying to Concentrate; The One That Spends the Lecture on Her Phone and then Wants to Borrow Your Notes; The One That Treats the Lecture like a Fashion Show; More ..."
 url: "https://funny.allwomenstalk.com/types-of-students-youll-meet-in-lectures/"
 category: "funny"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 11 Types of Students Youll Meet in Lectures ...
@@ -58,15 +58,15 @@ So now you know – how many have of these types of student have you encountered
 
 ## Related Posts
 
-- [best scholarship search websites](https://money.allwomenstalk.com/best-websites-to-look-for-scholarships/)
-- [questions to ask medical students](https://teen.allwomenstalk.com/questions-to-ask-yourself-before-deciding-to-study-medicine/)
-- [why are ivy leagues so expensive](https://teen.allwomenstalk.com/benefits-of-an-ivy-league-education/)
 - [problems in high school](https://teen.allwomenstalk.com/horrible-high-school-problems-you-wont-worry-about-in-college/)
-- [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
-- [senior year of high school quotes](https://teen.allwomenstalk.com/quotes-to-keep-in-mind-during-senior-year/)
-- [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
+- [questions to ask medical students](https://teen.allwomenstalk.com/questions-to-ask-yourself-before-deciding-to-study-medicine/)
+- [best scholarship search websites](https://money.allwomenstalk.com/best-websites-to-look-for-scholarships/)
 - [how to spice up your look](https://teen.allwomenstalk.com/drastic-ways-to-change-your-appearance-before-you-graduate-high-school/)
+- [senior year of high school quotes](https://teen.allwomenstalk.com/quotes-to-keep-in-mind-during-senior-year/)
+- [what should i do masters in](https://lifestyle.allwomenstalk.com/points-to-consider-if-you-want-to-do-a-masters-degree/)
+- [major personality](https://teen.allwomenstalk.com/personality-traits-to-pay-close-attention-to-before-deciding-on-a-major/)
 - [perfect date gif](https://funny.allwomenstalk.com/gifs-that-describe-what-dating-is-like-in-college/)
+- [why are ivy leagues so expensive](https://teen.allwomenstalk.com/benefits-of-an-ivy-league-education/)
 - [college acceptance bed party](https://teen.allwomenstalk.com/fun-ways-to-celebrate-your-college-acceptance/)
 - [10 Lessons from the Classroom of Life ...](https://allwomenstalk.com/10-lessons-from-the-classroom-of-life/)
 - [8 Tips for College Students ...](https://allwomenstalk.com/8-tips-for-college-students/)

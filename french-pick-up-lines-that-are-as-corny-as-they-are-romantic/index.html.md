@@ -3,7 +3,7 @@ title: "7 French Pick-up Lines That Are as Corny as They Are Romantic ..."
 description: "Do You Have a Map? I'm Lost in Your Eyes; Can I Call You Biscuit? Because I Find You Irresistible; Is It Hot in Here, or is It Just You?; I Just Arrived in This City. Could You Tell Me the Way to Your Apartment?; Hi, I Just Realized This but You Look a Lot like My Next Boyfriend; More ..."
 url: "https://funny.allwomenstalk.com/french-pick-up-lines-that-are-as-corny-as-they-are-romantic/"
 category: "funny"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 French Pick\-up Lines That Are as Corny as They Are Romantic ...
@@ -42,15 +42,15 @@ Although you can say some pretty funny things in French, it's a beautiful langua
 
 ## Related Posts
 
-- [harry pick up lines](https://funny.allwomenstalk.com/harry-potter-pick-up-lines-thatll-work-on-any-potterhead/)
-- [phrases people get wrong](https://funny.allwomenstalk.com/phrases-people-need-to-stop-using-incorrectly/)
-- [importance of grammar quotes](https://funny.allwomenstalk.com/hysterical-quotes-for-grammar-nazis/)
-- [color roses and their meaning](https://gardening.allwomenstalk.com/rose-colors-and-their-meanings-the-language-of-flowers/)
-- [scandalous meaning](https://love.allwomenstalk.com/complimentary-words-to-call-your-mate-instead-of-hot/)
-- [inappropriate spelling](https://funny.allwomenstalk.com/try-not-to-laugh-at-these-childrens-inappropriate-spelling-errors/)
 - [what to do if you didnt do your homework](https://funny.allwomenstalk.com/excuses-for-when-you-forget-your-homework/)
-- [negative words to remove from your vocabulary](https://inspiration.allwomenstalk.com/negative-words-to-remove-from-your-vocabulary-to-be-happier/)
 - [only just saw this](https://funny.allwomenstalk.com/different-text-messages-and-what-they-really-mean/)
+- [phrases people get wrong](https://funny.allwomenstalk.com/phrases-people-need-to-stop-using-incorrectly/)
+- [negative words to remove from your vocabulary](https://inspiration.allwomenstalk.com/negative-words-to-remove-from-your-vocabulary-to-be-happier/)
+- [inappropriate spelling](https://funny.allwomenstalk.com/try-not-to-laugh-at-these-childrens-inappropriate-spelling-errors/)
+- [scandalous meaning](https://love.allwomenstalk.com/complimentary-words-to-call-your-mate-instead-of-hot/)
+- [importance of grammar quotes](https://funny.allwomenstalk.com/hysterical-quotes-for-grammar-nazis/)
+- [harry pick up lines](https://funny.allwomenstalk.com/harry-potter-pick-up-lines-thatll-work-on-any-potterhead/)
+- [color roses and their meaning](https://gardening.allwomenstalk.com/rose-colors-and-their-meanings-the-language-of-flowers/)
 - [funny jokes on education](https://funny.allwomenstalk.com/jokes-about-school-for-those-who-arent-excited-about-returning/)
 - [7 of the Best Love Letters Ever Written ...](https://allwomenstalk.com/7-of-the-best-love-letters-ever-written/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)

@@ -3,7 +3,7 @@ title: "7 Songs to Get You through the Rest of a Rough School Year ..."
 description: "Anywhere else but Here by Simple Plan; Campus by Vampire Weekend; High School Never Ends by Bowling for Soup; Chem 6A by Switchfoot; College Kids by Relient K; More ..."
 url: "https://funny.allwomenstalk.com/songs-to-get-you-through-the-rest-of-a-rough-school-year/"
 category: "funny"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Songs to Get You through the Rest of a Rough School Year ...
@@ -49,16 +49,16 @@ Despite the content of these songs, you should realize how lucky you are to be e
 
 ## Related Posts
 
-- [man on the moon lyrics phillip phillips](https://music.allwomenstalk.com/acoustic-performances-by-phillip-phillips-thatll-leave-you-in-awe/)
-- [matt hires](https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/)
-- [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
-- [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
-- [boy kiss girl songs](https://music.allwomenstalk.com/songs-about-kissing-that-are-fun-and-flirty/)
 - [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
-- [us boy bands 90s](https://music.allwomenstalk.com/90s-boy-bands-you-pretend-you-didnt-listen-to/)
-- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
-- [feel good indie rock](https://music.allwomenstalk.com/awesome-indie-bands-you-need-to-add-to-your-playlist/)
+- [boy kiss girl songs](https://music.allwomenstalk.com/songs-about-kissing-that-are-fun-and-flirty/)
+- [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
 - [got me good cody simpson](https://music.allwomenstalk.com/awesome-acoustic-performances-by-cody-simpson/)
+- [matt hires](https://music.allwomenstalk.com/sweet-soulful-songs-by-matt-hires/)
+- [man on the moon lyrics phillip phillips](https://music.allwomenstalk.com/acoustic-performances-by-phillip-phillips-thatll-leave-you-in-awe/)
+- [we could have it all adele](https://music.allwomenstalk.com/songs-from-adele-that-make-you-see-the-power-of-great-lyrics/)
+- [songs about periods](https://funny.allwomenstalk.com/silly-songs-to-listen-to-while-on-your-period/)
+- [us boy bands 90s](https://music.allwomenstalk.com/90s-boy-bands-you-pretend-you-didnt-listen-to/)
+- [feel good indie rock](https://music.allwomenstalk.com/awesome-indie-bands-you-need-to-add-to-your-playlist/)
 - [7 Supplies That Make Studying Easier ...](https://allwomenstalk.com/7-supplies-that-make-studying-easier/)
 - [7 Back to School Solutions ...](https://allwomenstalk.com/7-back-to-school-solutions/)
 

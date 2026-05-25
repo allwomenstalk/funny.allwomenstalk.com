@@ -3,7 +3,7 @@ title: "7 Funny Excuses for Not Texting Someone Back ..."
 description: "I Was so Excited You Texted Me That I Fainted; I Read That Texting Ruins Your Relationships; Doctor Put Drops in My Eyes. Totally Couldn't See All Day; Was Driving. You Don't Want Me to Die, do You?; I Wrote a Reply but Forgot to Press Send; More ..."
 url: "https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/"
 category: "gadgets"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Funny Excuses for Not Texting Someone Back ...
@@ -42,15 +42,15 @@ Texting is fast and easy, but sometimes we don't want to be bothered with it. Yo
 
 ## Related Posts
 
-- [crush funny flirty flirty quotes](https://funny.allwomenstalk.com/funny-quotes-about-the-difficulty-of-flirting/)
-- [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
 - [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
-- [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
-- [slang words 2015](https://lifestyle.allwomenstalk.com/whos-your-bae-the-slang-words-everyone-used-in/)
+- [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
 - [new year pickup line](https://funny.allwomenstalk.com/pick-up-lines-to-use-around-new-years/)
-- [holiday pickup line](https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/)
+- [crush funny flirty flirty quotes](https://funny.allwomenstalk.com/funny-quotes-about-the-difficulty-of-flirting/)
+- [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
 - [words that sound smart](https://lifestyle.allwomenstalk.com/words-thatll-make-you-sound-smart-when-you-use-them/)
 - [tell me a history joke](https://funny.allwomenstalk.com/corny-jokes-for-all-of-the-history-buffs-out-there/)
+- [holiday pickup line](https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/)
+- [slang words 2015](https://lifestyle.allwomenstalk.com/whos-your-bae-the-slang-words-everyone-used-in/)
 - [funny i love you more](https://funny.allwomenstalk.com/funny-clever-responses-to-i-love-you/)
 - [9 Things Not to Say via Text Message ...](https://lifestyle.allwomenstalk.com/things-not-to-say-via-text-message/)
 - [7 Texting Dos and Donts for Dating ...](https://love.allwomenstalk.com/7-texting-dos-and-donts-for-dating/)

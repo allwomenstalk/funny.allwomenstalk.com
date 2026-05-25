@@ -3,7 +3,7 @@ title: "11 Funny Old West Slang Terms We Should Use Again ..."
 description: "Above Snakes; Adam's Ale; Beetle Crushers; Catch a Weasel Asleep; Flannel Mouth; More ..."
 url: "https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/"
 category: "funny"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 11 Funny Old West Slang Terms We Should Use Again ...
@@ -59,14 +59,14 @@ There are thousands of words and phrases in the English language that we've neve
 
 ## Related Posts
 
+- [who invented tv shows](https://movies.allwomenstalk.com/words-invented-by-tv-shows/)
 - [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
 - [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
-- [when something means something else](https://lifestyle.allwomenstalk.com/colloquial-words-that-used-to-mean-something-else/)
-- [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
-- [words teenagers use](https://teen.allwomenstalk.com/words-teenagers-love-to-use/)
-- [funny signs to make](https://funny.allwomenstalk.com/funny-signs-to-make-you-chuckle-and-scratch-your-head/)
-- [who invented tv shows](https://movies.allwomenstalk.com/words-invented-by-tv-shows/)
 - [latin motos](https://funny.allwomenstalk.com/funny-latin-phrases-youll-benefit-from-learning/)
+- [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
+- [funny signs to make](https://funny.allwomenstalk.com/funny-signs-to-make-you-chuckle-and-scratch-your-head/)
+- [words teenagers use](https://teen.allwomenstalk.com/words-teenagers-love-to-use/)
+- [when something means something else](https://lifestyle.allwomenstalk.com/colloquial-words-that-used-to-mean-something-else/)
 - [old timer sayings funny](https://funny.allwomenstalk.com/silly-old-time-phrases-that-youll-love-using/)
 - [7 Popular Sayings That Are Just Plain Dumb ...](https://lifestyle.allwomenstalk.com/popular-sayings-that-are-just-plain-dumb/)
 - [7 Words That Are Funny to Say ...](https://allwomenstalk.com/7-words-that-are-funny-to-say/)

@@ -3,7 +3,7 @@ title: "7 Things You Should Never Say While Kissing a Guy ..."
 description: "Now I Know Why Your Ex Dumped You; Oooh, Sherlock; Am I Doing This Right?; This Would Be More Fun with More People; Let Me Tweet This; More ..."
 url: "https://funny.allwomenstalk.com/things-you-should-never-say-while-kissing-a-guy/"
 category: "funny"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Things You Should Never Say While Kissing a Guy ...
@@ -14,7 +14,7 @@ A lot of women worry about whether or not they're doing the right things with th
 
 ![Now I Know Why Your Ex Dumped You](https://img.allw.mn/content/x0/nn/gyrmnlzv56152027cb342490678616_500x280.gif)
 
-It's never appropriate to bring up an ex in the middle of a [make out session](https://love.allwomenstalk.com/tips-for-a-great-make-out-session/). It doesn't matter if you mention your ex or his ex, because both names should be off limits. After all, they're in your pasts for a reason.
+It's never appropriate to bring up an ex in the middle of a make out session. It doesn't matter if you mention your ex or his ex, because both names should be off limits. After all, they're in your pasts for a reason.
 
 ## 2. Oooh, Sherlock
 
@@ -56,16 +56,16 @@ If you want the kissing to continue, avoid saying these silly things. What's the
 
 ## Related Posts
 
-- [things to do while drunk with friends](https://health.allwomenstalk.com/things-you-should-never-do-while-drunk/)
-- [things not to post on social media](https://lifestyle.allwomenstalk.com/things-you-should-never-post-on-social-media/)
 - [overrated things in society](https://lifestyle.allwomenstalk.com/overrated-things-we-should-stop-romanticizing/)
-- [forced relationship](https://love.allwomenstalk.com/you-dont-belong-together-if-youre-forcing-these-things/)
 - [what to do at 12 am with friends](https://lifestyle.allwomenstalk.com/things-you-should-never-do-after-midnight/)
-- [how to make him lose interest in you](https://love.allwomenstalk.com/things-thatll-make-him-lose-interest-in-you-right-away/)
-- [short dress thong](https://fashion.allwomenstalk.com/times-when-you-shouldnt-wear-a-thong/)
-- [cliche advice](https://love.allwomenstalk.com/love-advice-cliches-that-you-shouldnt-actually-follow/)
 - [condom mistakes](https://love.allwomenstalk.com/condom-mistakes-you-dont-want-to-make/)
+- [forced relationship](https://love.allwomenstalk.com/you-dont-belong-together-if-youre-forcing-these-things/)
+- [things to do while drunk with friends](https://health.allwomenstalk.com/things-you-should-never-do-while-drunk/)
+- [short dress thong](https://fashion.allwomenstalk.com/times-when-you-shouldnt-wear-a-thong/)
+- [things not to post on social media](https://lifestyle.allwomenstalk.com/things-you-should-never-post-on-social-media/)
+- [cliche advice](https://love.allwomenstalk.com/love-advice-cliches-that-you-shouldnt-actually-follow/)
 - [egirl piercings](https://funny.allwomenstalk.com/never-say-these-things-to-a-girl-with-piercings/)
+- [how to make him lose interest in you](https://love.allwomenstalk.com/things-thatll-make-him-lose-interest-in-you-right-away/)
 - [11 Things to Never Tell Your Man ...](https://allwomenstalk.com/11-things-to-never-tell-your-man/)
 - [6 Things You Should Never Say to a Man ...](https://allwomenstalk.com/6-things-you-should-never-say-to-a-man/)
 

@@ -3,7 +3,7 @@ title: "11 Weirdest Crimes Committed You Wont Even Imagine ..."
 description: "Man Attacks Girlfriend with a Banana; Boy Punches His Grandma; Man Crashes into a Gas Station, Steals a Banana; Man Punches Pizza Guy; Robber Found Snoozing at the Place He Robbed; More ..."
 url: "https://funny.allwomenstalk.com/weirdest-crimes-committed-you-wont-even-imagine/"
 category: "funny"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 11 Weirdest Crimes Committed You Wont Even Imagine ...
@@ -60,16 +60,16 @@ This article was written in collaboration with editor Lisa Washington.
 
 ## Related Posts
 
-- [famous street magicians](https://celebs.allwomenstalk.com/best-magicians-who-will-boggle-your-mind/)
 - [when the bad guy is actually talented](https://movies.allwomenstalk.com/bad-guys-we-love-even-though-we-shouldnt/)
-- [scrubs sad moments](https://movies.allwomenstalk.com/sad-moments-from-scrubs-that-left-me-in-tears/)
-- [crazy news headlines](https://funny.allwomenstalk.com/real-but-crazy-newspaper-headlines/)
-- [what episode do serena and nate get together in se...](https://movies.allwomenstalk.com/memorable-gossip-girl-moments-i-will-never-get-over/)
-- [pysch season 4](https://movies.allwomenstalk.com/best-pysch-episodes-that-we-can-watch-over-and-over/)
-- [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
 - [disney series movies](https://movies.allwomenstalk.com/disney-movie-spin-off-shows-i-loved-as-a-kid/)
+- [famous street magicians](https://celebs.allwomenstalk.com/best-magicians-who-will-boggle-your-mind/)
 - [what spider is the most poisonous](https://lifestyle.allwomenstalk.com/of-the-worlds-most-poisonous-spiders/)
+- [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
+- [crazy news headlines](https://funny.allwomenstalk.com/real-but-crazy-newspaper-headlines/)
+- [scrubs sad moments](https://movies.allwomenstalk.com/sad-moments-from-scrubs-that-left-me-in-tears/)
+- [pysch season 4](https://movies.allwomenstalk.com/best-pysch-episodes-that-we-can-watch-over-and-over/)
 - [when someone you loved becomes a stranger](https://lifestyle.allwomenstalk.com/struggles-of-becoming-strangers-again/)
+- [what episode do serena and nate get together in se...](https://movies.allwomenstalk.com/memorable-gossip-girl-moments-i-will-never-get-over/)
 - [7 Shockingly True Crime Documentaries ...](https://movies.allwomenstalk.com/shockingly-true-crime-documentaries/)
 - [7 Weirdest Urban Legends ...](https://allwomenstalk.com/7-urban-legends/)
 

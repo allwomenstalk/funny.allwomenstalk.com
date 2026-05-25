@@ -127,15 +127,15 @@ But you will. Because crushes are frustrating but also SO exciting! Are you crus
 ## Related Posts
 
 - [food date ideas](https://love.allwomenstalk.com/food-related-date-ideas-for-hungry-couples/)
-- [valentine best gift](https://love.allwomenstalk.com/valentines-gifts-and-gestures-that-dont-cost-a-penny/)
-- [how old is valentines day](https://inspiration.allwomenstalk.com/ways-to-explain-valentines-day-to-your-children/)
-- [statistically a woman who purchases flowers on val...](https://love.allwomenstalk.com/valentines-day-statistics-that-might-surprise-you/)
 - [is valentines day celebrated around the world](https://travel.allwomenstalk.com/ways-valentines-day-is-celebrated-around-the-world/)
-- [feeling like million bucks](https://inspiration.allwomenstalk.com/ways-to-feel-like-a-million-dollars-this-valentines-day/)
-- [happy valentines day best friend](https://lifestyle.allwomenstalk.com/ways-to-celebrate-valentines-day-with-your-best-friends/)
+- [statistically a woman who purchases flowers on val...](https://love.allwomenstalk.com/valentines-day-statistics-that-might-surprise-you/)
 - [gif good morning funny](https://funny.allwomenstalk.com/funny-good-morning-gifs-to-send-your-boyfriend/)
-- [valentine blues](https://love.allwomenstalk.com/ways-to-deal-with-the-valentines-day-blues/)
+- [happy valentines day best friend](https://lifestyle.allwomenstalk.com/ways-to-celebrate-valentines-day-with-your-best-friends/)
+- [how old is valentines day](https://inspiration.allwomenstalk.com/ways-to-explain-valentines-day-to-your-children/)
 - [boyfriend working on valentines day](https://love.allwomenstalk.com/ways-to-cope-with-valentines-day-when-you-cant-be-with-your-partner/)
+- [valentine best gift](https://love.allwomenstalk.com/valentines-gifts-and-gestures-that-dont-cost-a-penny/)
+- [feeling like million bucks](https://inspiration.allwomenstalk.com/ways-to-feel-like-a-million-dollars-this-valentines-day/)
+- [valentine blues](https://love.allwomenstalk.com/ways-to-deal-with-the-valentines-day-blues/)
 - [19 Signs Your Crush Likes Someone else ...](https://allwomenstalk.com/13-signs-your-crush-likes-someone-else/)
 - [9 Adorable Signs That Youre Head over Heels in Lov...](https://love.allwomenstalk.com/adorable-signs-that-youre-head-over-heels-in-love/)
 

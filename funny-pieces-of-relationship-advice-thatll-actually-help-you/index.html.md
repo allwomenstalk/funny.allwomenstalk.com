@@ -74,16 +74,16 @@ These quotes prove that advice can be true and funny at the same time. What's th
 
 ## Related Posts
 
-- [laughter in a relationship](https://love.allwomenstalk.com/why-the-couple-who-laughs-together-stays-together/)
 - [why high school relationships dont last](https://teen.allwomenstalk.com/cold-hard-truths-about-high-school-relationships/)
-- [find mr right](https://love.allwomenstalk.com/ask-yourself-these-questions-to-find-mr-right/)
-- [married couple advice](https://love.allwomenstalk.com/pieces-of-valuable-relationship-advice-from-married-couples/)
-- [stay together forever](https://love.allwomenstalk.com/habits-of-couples-who-last-a-lifetime/)
+- [laughter in a relationship](https://love.allwomenstalk.com/why-the-couple-who-laughs-together-stays-together/)
 - [how to make my relationship stronger](https://love.allwomenstalk.com/you-can-make-your-relationship-stronger-with-these-easy-steps/)
-- [boyfriend girlfriend goals](https://love.allwomenstalk.com/relationship-goals-for-girls-in-college/)
-- [7 magical words in love](https://love.allwomenstalk.com/magic-words-thatll-enhance-your-relationship/)
+- [find mr right](https://love.allwomenstalk.com/ask-yourself-these-questions-to-find-mr-right/)
+- [stay together forever](https://love.allwomenstalk.com/habits-of-couples-who-last-a-lifetime/)
 - [side effects of being in love](https://love.allwomenstalk.com/the-side-effects-of-falling-in-love/)
 - [bad girlfriend quotes](https://love.allwomenstalk.com/these-things-dont-make-you-a-bad-girlfriend/)
+- [married couple advice](https://love.allwomenstalk.com/pieces-of-valuable-relationship-advice-from-married-couples/)
+- [boyfriend girlfriend goals](https://love.allwomenstalk.com/relationship-goals-for-girls-in-college/)
+- [7 magical words in love](https://love.allwomenstalk.com/magic-words-thatll-enhance-your-relationship/)
 - [10 Best Relationship Advice Blogs ...](https://lifestyle.allwomenstalk.com/best-relationship-advice-blogs/)
 - [11 Secrets for a Successful Relationship ...](https://allwomenstalk.com/10-secrets-for-a-successful-relationship/)
 

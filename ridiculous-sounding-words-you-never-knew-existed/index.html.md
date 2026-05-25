@@ -58,16 +58,16 @@ The more we use these words, the less strange they'll sound to us. What's the mo
 
 ## Related Posts
 
-- [old fashioned manners](https://lifestyle.allwomenstalk.com/its-time-to-bring-back-these-old-school-manners/)
-- [well you know what can i say gif](https://inspiration.allwomenstalk.com/these-empathy-cards-will-help-when-you-dont-know-what-to-say/)
 - [If Paintings Could Text ...](https://funny.allwomenstalk.com/if-paintings-could-text/)
-- [He Used Text Shorcuts to Prank His Parents. Result...](https://funny.allwomenstalk.com/he-used-text-shorcuts-to-prank-his-parents-results-hilarious/)
+- [well you know what can i say gif](https://inspiration.allwomenstalk.com/these-empathy-cards-will-help-when-you-dont-know-what-to-say/)
 - [7 Common Communication Mistakes That You Might Be ...](https://inspiration.allwomenstalk.com/common-communication-mistakes-that-you-might-be-making-without-even-realizing-it/)
-- [White Not Right Try These Other Tones ...](https://fashion.allwomenstalk.com/white-not-right-try-these-other-tones-fashion/)
-- [Fire up Your Vocabwith These Awesome Alternative W...](https://inspiration.allwomenstalk.com/cat-got-your-tongue-here-are-some-words-to-use-instead-of-awesome/)
-- [11 Words You Use That Once Had Different Meanings ...](https://lifestyle.allwomenstalk.com/words-you-use-that-once-had-different-meanings/)
+- [old fashioned manners](https://lifestyle.allwomenstalk.com/its-time-to-bring-back-these-old-school-manners/)
 - [7 Words You Should Use Less Frequently ...](https://lifestyle.allwomenstalk.com/words-you-should-use-less-frequently/)
 - [7 Unusual Dating Sites You Wont Believe Exist ...](https://love.allwomenstalk.com/unusual-dating-sites-you-wont-believe-exist/)
+- [Fire up Your Vocabwith These Awesome Alternative W...](https://inspiration.allwomenstalk.com/cat-got-your-tongue-here-are-some-words-to-use-instead-of-awesome/)
+- [11 Words You Use That Once Had Different Meanings ...](https://lifestyle.allwomenstalk.com/words-you-use-that-once-had-different-meanings/)
+- [White Not Right Try These Other Tones ...](https://fashion.allwomenstalk.com/white-not-right-try-these-other-tones-fashion/)
+- [He Used Text Shorcuts to Prank His Parents. Result...](https://funny.allwomenstalk.com/he-used-text-shorcuts-to-prank-his-parents-results-hilarious/)
 - [10 Funny Things That Children Say ...](https://allwomenstalk.com/10-funny-things-that-children-say/)
 - [10 Most Annoying Words ...](https://allwomenstalk.com/10-most-annoying-words/)
 

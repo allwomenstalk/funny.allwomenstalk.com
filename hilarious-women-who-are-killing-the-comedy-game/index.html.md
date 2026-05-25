@@ -50,16 +50,16 @@ All right, stalkers, speak up! Who are your favorite comediennes? We're talking 
 
 ## Related Posts
 
-- [internet chick](https://fashion.allwomenstalk.com/the-hottest-chick-on-the-internet-for-black-girls-to-check-out/)
-- [mother nature](https://lifestyle.allwomenstalk.com/heres-a-proof-that-mother-nature-is-stronger-than-any-man/)
-- [youtubeig](https://makeup.allwomenstalk.com/this-youtubeig-queen-is-an-inspiration-to-women-of-colour-everywhere/)
-- [hottest ballet dancers](https://lifestyle.allwomenstalk.com/ballet-dancers-who-are-talented-af/)
+- [muslim engagement rings](https://wedding.allwomenstalk.com/beyond-stunning-muslim-brides-we-can-all-be-envious-of/)
 - [epitome of class](https://fashion.allwomenstalk.com/check-out-this-woman-for-the-epitome-of-class-and-beauty/)
 - [inspiring women podcast](https://inspiration.allwomenstalk.com/inspiring-women-run-podcasts-to-listen-to-this-weekend/)
-- [muslim engagement rings](https://wedding.allwomenstalk.com/beyond-stunning-muslim-brides-we-can-all-be-envious-of/)
-- [video game characters girl](https://apps.allwomenstalk.com/most-badass-female-video-game-characters/)
 - [patricia bright and mike](https://parenting.allwomenstalk.com/the-ultimate-hot-mama-of-youtube-right-here/)
+- [hottest ballet dancers](https://lifestyle.allwomenstalk.com/ballet-dancers-who-are-talented-af/)
+- [video game characters girl](https://apps.allwomenstalk.com/most-badass-female-video-game-characters/)
+- [mother nature](https://lifestyle.allwomenstalk.com/heres-a-proof-that-mother-nature-is-stronger-than-any-man/)
 - [woman empowerment quotes](https://celebs.allwomenstalk.com/quotes-on-female-empowerment/)
+- [internet chick](https://fashion.allwomenstalk.com/the-hottest-chick-on-the-internet-for-black-girls-to-check-out/)
+- [youtubeig](https://makeup.allwomenstalk.com/this-youtubeig-queen-is-an-inspiration-to-women-of-colour-everywhere/)
 - [10 Stunning Leading Ladies ...](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 - [8 Notorious Women ...](https://celebs.allwomenstalk.com/8-notorious-women/)
 

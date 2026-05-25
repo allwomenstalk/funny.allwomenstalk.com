@@ -42,16 +42,16 @@ So... now that you've read through this list, cup of coffee in hand, how addicte
 
 ## Related Posts
 
-- [MASH: Whats Your Dream Home](https://lifestyle.allwomenstalk.com/mash-whats-your-dream-home/)
 - [Does Your Boyfriend Secretly Want You to Dump Him](https://love.allwomenstalk.com/signs-your-boyfriend-wants-you-to-dump-him/)
 - [Are You Making Any Massive Mistakes in the Shower ...](https://beauty.allwomenstalk.com/mistakes-youre-making-in-the-shower/)
+- [What do These Inkblots Say about You](https://lifestyle.allwomenstalk.com/what-do-these-inkblots-say-about-you/)
+- [loreal color riche stylo smoky glistening](https://love.allwomenstalk.com/whats-your-dating-personality/)
+- [MASH: Whats Your Dream Home](https://lifestyle.allwomenstalk.com/mash-whats-your-dream-home/)
+- [Are You Wearing the Right Foundation](https://makeup.allwomenstalk.com/are-you-wearing-the-right-foundation/)
 - [whats my real age](https://lifestyle.allwomenstalk.com/quiz-whats-your-real-age/)
 - [dancing in the 90s](https://music.allwomenstalk.com/which-90s-dance-are-you/)
-- [why is valentines day overrated](https://love.allwomenstalk.com/ways-valentines-day-is-overrated/)
-- [loreal color riche stylo smoky glistening](https://love.allwomenstalk.com/whats-your-dating-personality/)
-- [Are You Wearing the Right Foundation](https://makeup.allwomenstalk.com/are-you-wearing-the-right-foundation/)
 - [Are You in a Dating Rut](https://love.allwomenstalk.com/are-you-in-a-dating-rut/)
-- [What do These Inkblots Say about You](https://lifestyle.allwomenstalk.com/what-do-these-inkblots-say-about-you/)
+- [why is valentines day overrated](https://love.allwomenstalk.com/ways-valentines-day-is-overrated/)
 - [Drinking Coffee Elsewhere  Folgers Gourmet Blends ...](https://allwomenstalk.com/drinking-coffee-elsewhere-folgers-gourmet-blends-so-what/)
 - [These Facts May Make You Rethink Your Junk Food Cr...](https://food.allwomenstalk.com/trivia-and-facts-about-junk-food-that-will-cause-a-rethink/)
 

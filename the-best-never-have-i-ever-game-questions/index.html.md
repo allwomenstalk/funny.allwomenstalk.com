@@ -50,16 +50,16 @@ The next time you get your friends together, you should play a round or two of t
 
 ## Related Posts
 
-- [banish boredom](https://lifestyle.allwomenstalk.com/how-to-banish-boredom-when-youre-alone/)
-- [best games for intelligence](https://lifestyle.allwomenstalk.com/fun-games-thatll-make-you-more-intelligent/)
 - [fall bucket list for teens](https://lifestyle.allwomenstalk.com/the-ultimate-fall-bucket-list/)
-- [magic christmas eve](https://parenting.allwomenstalk.com/magical-things-to-do-with-the-kids-on-christmas-eve/)
 - [what do you do in autumn](https://lifestyle.allwomenstalk.com/activities-youll-have-fun-doing-during-autumn/)
 - [snowed in date ideas](https://love.allwomenstalk.com/fun-date-ideas-for-snow-days/)
 - [always running late](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-running-a-little-late/)
-- [funny charades ideas](https://funny.allwomenstalk.com/funny-ideas-for-charades-to-act-out-at-your-next-party/)
 - [bucket list for young adults](https://lifestyle.allwomenstalk.com/things-to-do-while-young-the-ultimate-bucket-list/)
 - [el salvador new years eve](https://lifestyle.allwomenstalk.com/try-these-new-years-eve-traditions-from-around-the-world/)
+- [magic christmas eve](https://parenting.allwomenstalk.com/magical-things-to-do-with-the-kids-on-christmas-eve/)
+- [best games for intelligence](https://lifestyle.allwomenstalk.com/fun-games-thatll-make-you-more-intelligent/)
+- [funny charades ideas](https://funny.allwomenstalk.com/funny-ideas-for-charades-to-act-out-at-your-next-party/)
+- [banish boredom](https://lifestyle.allwomenstalk.com/how-to-banish-boredom-when-youre-alone/)
 - [9 Conversation Topics You Dont Want to Bring up To...](https://lifestyle.allwomenstalk.com/conversation-topics-you-dont-want-to-bring-up-too-soon/)
 - [9 Unexpected Things They Dont Tell You about Sex ....](https://love.allwomenstalk.com/unexpected-things-they-dont-tell-you-about-sex/)
 

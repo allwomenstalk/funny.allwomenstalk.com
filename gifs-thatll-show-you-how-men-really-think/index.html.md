@@ -56,16 +56,16 @@ In all seriousness, men are just like women are. There's not all that big of a d
 
 ## Related Posts
 
-- [what to look for in a guy for a relationship](https://love.allwomenstalk.com/masculine-traits-you-should-look-for-in-a-partner/)
-- [things men wish women knew](https://love.allwomenstalk.com/these-are-the-things-men-wish-women-knew-about-them/)
-- [why do i hate being controlled](https://love.allwomenstalk.com/controlling-things-men-hate-when-women-do/)
-- [8 characteristics of a truly amazing girlfriend](https://love.allwomenstalk.com/characteristics-that-will-instantly-make-you-girlfriend-material/)
-- [why guys like cute girls](https://love.allwomenstalk.com/you-look-cute-when-youre-angry-feisty-things-guys-love-when-girls-do/)
-- [seventeen magazine quizzes](https://love.allwomenstalk.com/online-quizzes-thatll-determine-what-youre-looking-for-in-a-man/)
-- [hes so confusing](https://love.allwomenstalk.com/confusing-guy-habits-that-are-actually-easy-to-interpret/)
-- [what type of girl do i like](https://love.allwomenstalk.com/adorably-innocent-traits-men-find-endearing-in-women/)
-- [mans mind](https://love.allwomenstalk.com/heres-all-you-need-to-know-about-reading-a-mans-mind/)
 - [what is low maintenance person](https://love.allwomenstalk.com/low-maintenance-traits-men-want-their-girlfriends-to-have/)
+- [what to look for in a guy for a relationship](https://love.allwomenstalk.com/masculine-traits-you-should-look-for-in-a-partner/)
+- [mans mind](https://love.allwomenstalk.com/heres-all-you-need-to-know-about-reading-a-mans-mind/)
+- [8 characteristics of a truly amazing girlfriend](https://love.allwomenstalk.com/characteristics-that-will-instantly-make-you-girlfriend-material/)
+- [seventeen magazine quizzes](https://love.allwomenstalk.com/online-quizzes-thatll-determine-what-youre-looking-for-in-a-man/)
+- [what type of girl do i like](https://love.allwomenstalk.com/adorably-innocent-traits-men-find-endearing-in-women/)
+- [hes so confusing](https://love.allwomenstalk.com/confusing-guy-habits-that-are-actually-easy-to-interpret/)
+- [things men wish women knew](https://love.allwomenstalk.com/these-are-the-things-men-wish-women-knew-about-them/)
+- [why guys like cute girls](https://love.allwomenstalk.com/you-look-cute-when-youre-angry-feisty-things-guys-love-when-girls-do/)
+- [why do i hate being controlled](https://love.allwomenstalk.com/controlling-things-men-hate-when-women-do/)
 - [7 Things That Can Turn Guys off ...](https://love.allwomenstalk.com/things-that-can-turn-guys-off/)
 - [8 Facts about Men ...](https://love.allwomenstalk.com/facts-about-men/)
 

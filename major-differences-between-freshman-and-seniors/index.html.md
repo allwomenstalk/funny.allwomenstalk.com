@@ -42,16 +42,16 @@ Even if you're eager to get out of school, try to enjoy it. You don't have to lo
 
 ## Related Posts
 
+- [best credit cards for students](https://money.allwomenstalk.com/of-the-best-credit-cards-for-students/)
+- [collegekickstart](https://money.allwomenstalk.com/ways-to-kick-start-your-career-while-at-college/)
+- [how to get to ivy league](https://teen.allwomenstalk.com/tips-on-how-to-get-into-an-ivy-league-school/)
+- [how to save money as a highschool student](https://teen.allwomenstalk.com/reasons-to-save-money-in-high-school/)
+- [ivy league bound](https://teen.allwomenstalk.com/tips-for-ivy-league-bound-students/)
+- [benefits of public school](https://parenting.allwomenstalk.com/important-perks-of-public-schooling/)
+- [how to improve leadership skills as a student](https://teen.allwomenstalk.com/ways-to-develop-leadership-skills-in-high-school/)
+- [infographic topics for college students](https://teen.allwomenstalk.com/incredibly-useful-infographic-for-students/)
 - [a heavy workload](https://teen.allwomenstalk.com/quick-tips-for-managing-a-heavy-workload-in-college/)
 - [best colleges for food allergies](https://teen.allwomenstalk.com/tips-to-deal-with-food-allergies-at-college/)
-- [benefits of public school](https://parenting.allwomenstalk.com/important-perks-of-public-schooling/)
-- [infographic topics for college students](https://teen.allwomenstalk.com/incredibly-useful-infographic-for-students/)
-- [how to get to ivy league](https://teen.allwomenstalk.com/tips-on-how-to-get-into-an-ivy-league-school/)
-- [best credit cards for students](https://money.allwomenstalk.com/of-the-best-credit-cards-for-students/)
-- [how to save money as a highschool student](https://teen.allwomenstalk.com/reasons-to-save-money-in-high-school/)
-- [collegekickstart](https://money.allwomenstalk.com/ways-to-kick-start-your-career-while-at-college/)
-- [ivy league bound](https://teen.allwomenstalk.com/tips-for-ivy-league-bound-students/)
-- [how to improve leadership skills as a student](https://teen.allwomenstalk.com/ways-to-develop-leadership-skills-in-high-school/)
 - [7 Must-Know Facts ...](https://allwomenstalk.com/7-must-have-facts/)
 - [7 Differences between America and Britain ...](https://allwomenstalk.com/7-differences-between-america-and-britain/)
 

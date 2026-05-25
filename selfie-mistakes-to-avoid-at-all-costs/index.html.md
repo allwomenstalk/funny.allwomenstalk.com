@@ -42,16 +42,16 @@ As much as people make fun of selfies, there's nothing wrong with taking picture
 
 ## Related Posts
 
-- [9 Negative Things to Consciously Detach Yourself f...](https://inspiration.allwomenstalk.com/negative-things-to-consciously-detach-yourself-from/)
-- [7 Things Mr Wrong Will Say on a Speed Date ...](https://love.allwomenstalk.com/things-mr-wrong-will-say-on-a-speed-date/)
-- [7 Things Highly Focused People Dont do ...](https://inspiration.allwomenstalk.com/things-highly-focused-people-dont-do/)
 - [flight attendant attitude](https://travel.allwomenstalk.com/things-to-never-say-to-a-flight-attendant/)
-- [things to never do on an airplane](https://funny.allwomenstalk.com/things-you-should-never-say-on-a-plane/)
-- [7 Things You Shouldnt Get Annoyed about ...](https://health.allwomenstalk.com/things-you-shouldnt-get-annoyed-about/)
-- [7 Things You Dont Want to Hear on a First Date ...](https://funny.allwomenstalk.com/things-you-dont-want-to-hear-on-a-first-date/)
-- [7 Questionable Things You Should Never Snapchat .....](https://apps.allwomenstalk.com/questionable-things-you-should-never-snapchat/)
-- [7 Things You Never Want to Be in Life ...](https://inspiration.allwomenstalk.com/things-you-never-want-to-be-in-life/)
+- [7 Things Highly Focused People Dont do ...](https://inspiration.allwomenstalk.com/things-highly-focused-people-dont-do/)
+- [9 Negative Things to Consciously Detach Yourself f...](https://inspiration.allwomenstalk.com/negative-things-to-consciously-detach-yourself-from/)
 - [7 Things You Really Dont Need to Pack for a Holida...](https://travel.allwomenstalk.com/things-you-really-dont-need-to-pack-for-a-holiday/)
+- [7 Things You Never Want to Be in Life ...](https://inspiration.allwomenstalk.com/things-you-never-want-to-be-in-life/)
+- [7 Things Mr Wrong Will Say on a Speed Date ...](https://love.allwomenstalk.com/things-mr-wrong-will-say-on-a-speed-date/)
+- [7 Things You Shouldnt Get Annoyed about ...](https://health.allwomenstalk.com/things-you-shouldnt-get-annoyed-about/)
+- [7 Questionable Things You Should Never Snapchat .....](https://apps.allwomenstalk.com/questionable-things-you-should-never-snapchat/)
+- [things to never do on an airplane](https://funny.allwomenstalk.com/things-you-should-never-say-on-a-plane/)
+- [7 Things You Dont Want to Hear on a First Date ...](https://funny.allwomenstalk.com/things-you-dont-want-to-hear-on-a-first-date/)
 - [7 Fashion Faux-Pas to Avoid ...](https://allwomenstalk.com/7-fashion-faux-pas-to-avoid/)
 - [7 Hair Coloring Mistakes to Avoid ...](https://allwomenstalk.com/7-hair-coloring-mistakes-to-avoid/)
 

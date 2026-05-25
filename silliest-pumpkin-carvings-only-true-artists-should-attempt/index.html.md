@@ -104,15 +104,15 @@ Halloween is a fun holiday where you can show your creative side. What kind of p
 
 ## Related Posts
 
-- [carving ideas for white pumpkins](https://diy.allwomenstalk.com/pumpkin-carving-ideas-youll-want-to-copy/)
-- [best old halloween movies](https://movies.allwomenstalk.com/classic-halloween-movies-to-watch-this-month/)
-- [cheap ways to decorate for halloween](https://diy.allwomenstalk.com/inexpensive-and-crafty-ways-to-decorate-for-halloween/)
-- [not scary halloween movies for kids](https://movies.allwomenstalk.com/scary-halloween-movies-not-to-watch-with-kids/)
-- [halloween decorated mantels](https://diy.allwomenstalk.com/epic-halloween-mantels-to-adorn-your-house/)
-- [bumpy pumpkin varieties](https://diy.allwomenstalk.com/awesome-varieties-of-pumpkins-that-you-can-decorate-for-halloween/)
-- [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
 - [how to make a cheshire cat costume](https://teen.allwomenstalk.com/adorable-teen-halloween-costumes/)
+- [not scary halloween movies for kids](https://movies.allwomenstalk.com/scary-halloween-movies-not-to-watch-with-kids/)
 - [things to do in salem during halloween](https://travel.allwomenstalk.com/stunning-shots-of-halloween-in-salem/)
+- [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
+- [bumpy pumpkin varieties](https://diy.allwomenstalk.com/awesome-varieties-of-pumpkins-that-you-can-decorate-for-halloween/)
+- [cheap ways to decorate for halloween](https://diy.allwomenstalk.com/inexpensive-and-crafty-ways-to-decorate-for-halloween/)
+- [best old halloween movies](https://movies.allwomenstalk.com/classic-halloween-movies-to-watch-this-month/)
+- [carving ideas for white pumpkins](https://diy.allwomenstalk.com/pumpkin-carving-ideas-youll-want-to-copy/)
+- [halloween decorated mantels](https://diy.allwomenstalk.com/epic-halloween-mantels-to-adorn-your-house/)
 - [flying monkey wizard of oz costume diy](https://funny.allwomenstalk.com/dogs-in-togs-pooches-dressed-for-halloween/)
 - [5 Cool Pumpkin Decorating Ideas ...](https://twilight.allwomenstalk.com/5-cool-pumpkin-decorating-ideas/)
 - [7 Fun and Creative Pumpkin Carving Ideas ...](https://lifestyle.allwomenstalk.com/fun-and-creative-pumpkin-carving-ideas/)

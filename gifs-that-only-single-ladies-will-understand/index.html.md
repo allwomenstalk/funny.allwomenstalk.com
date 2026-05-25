@@ -56,15 +56,15 @@ Being single isn't nearly as bad as some people make it out to be. Sure, you don
 
 ## Related Posts
 
-- [how to spread positivity](https://inspiration.allwomenstalk.com/simple-ways-to-spread-positivity-everywhere-you-go/)
+- [lip kiss black and white](https://love.allwomenstalk.com/lessons-in-kissing-ways-to-lock-lips-like-a-pro-with-kisses-every-girl-should-know/)
+- [jessica alba tactics](https://inspiration.allwomenstalk.com/wait-til-you-try-these-life-tips-from-jessica-alba/)
 - [feminine skills to learn](https://lifestyle.allwomenstalk.com/traditionally-female-skills-you-dont-actually-need-to-have/)
 - [deruking classy lady](https://lifestyle.allwomenstalk.com/heres-how-a-true-lady-can-remain-classy-while-drunk/)
 - [being a strong independent woman](https://inspiration.allwomenstalk.com/ways-to-be-a-strong-independent-woman/)
 - [riot rose name meaning](https://gardening.allwomenstalk.com/january-to-december-months-of-birth-flowers-whats-yours/)
-- [lip kiss black and white](https://love.allwomenstalk.com/lessons-in-kissing-ways-to-lock-lips-like-a-pro-with-kisses-every-girl-should-know/)
-- [things to say to your sister](https://inspiration.allwomenstalk.com/things-you-can-always-count-on-your-sister-for/)
+- [how to spread positivity](https://inspiration.allwomenstalk.com/simple-ways-to-spread-positivity-everywhere-you-go/)
 - [a lady should be two things](https://inspiration.allwomenstalk.com/things-women-should-take-more-pride-in-to-be-happier/)
-- [jessica alba tactics](https://inspiration.allwomenstalk.com/wait-til-you-try-these-life-tips-from-jessica-alba/)
+- [things to say to your sister](https://inspiration.allwomenstalk.com/things-you-can-always-count-on-your-sister-for/)
 - [what should every girl have in her room](https://lifestyle.allwomenstalk.com/little-things-every-woman-needs-in-her-apartment/)
 - [7 Insensitively Tactless Things You Shouldnt Say t...](https://love.allwomenstalk.com/insensitively-tactless-things-you-shouldnt-say-to-single-people/)
 - [7 Things That Men Dont Get about Women ...](https://allwomenstalk.com/things-that-men-dont-get-about-women/)

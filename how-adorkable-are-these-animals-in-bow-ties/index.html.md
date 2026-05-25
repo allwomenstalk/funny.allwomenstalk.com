@@ -132,16 +132,16 @@ The 11th Doctor isn't the only one who looks smashing in a bow tie. Check out th
 
 ## Related Posts
 
-- [good pets to have](https://love.allwomenstalk.com/the-best-pets-to-raise-with-your-boyfriend/)
-- [animals that are surprisingly dangerous](https://lifestyle.allwomenstalk.com/surprisingly-deadly-animals-youve-never-even-heard-of/)
-- [spirit animal tattoo](https://beauty.allwomenstalk.com/find-your-inner-wild-with-these-gorgeous-spirit-animal-tattoos/)
+- [all cats are beautiful tattoo](https://beauty.allwomenstalk.com/meow-check-out-these-best-ever-kitty-tattoos/)
 - [domesticated wild animals](https://lifestyle.allwomenstalk.com/wild-animals-that-are-becoming-domesticated-household-pets/)
 - [cutest cat youve ever seen](https://lifestyle.allwomenstalk.com/the-cutest-cat-youll-ever-see/)
-- [all cats are beautiful tattoo](https://beauty.allwomenstalk.com/meow-check-out-these-best-ever-kitty-tattoos/)
+- [spirit animal tattoo](https://beauty.allwomenstalk.com/find-your-inner-wild-with-these-gorgeous-spirit-animal-tattoos/)
 - [cloud animals](https://lifestyle.allwomenstalk.com/amazing-nature-clouds-that-look-like-animals/)
-- [photoshoot ideas for puppies](https://lifestyle.allwomenstalk.com/absolutely-adorable-pet-photography-ideas-for-your-next-photo-shoot/)
 - [if animals could talk](https://funny.allwomenstalk.com/if-animals-could-talk/)
 - [animals gifs](https://funny.allwomenstalk.com/these-animal-gifs-will-definitely-make-your-day/)
+- [animals that are surprisingly dangerous](https://lifestyle.allwomenstalk.com/surprisingly-deadly-animals-youve-never-even-heard-of/)
+- [photoshoot ideas for puppies](https://lifestyle.allwomenstalk.com/absolutely-adorable-pet-photography-ideas-for-your-next-photo-shoot/)
+- [good pets to have](https://love.allwomenstalk.com/the-best-pets-to-raise-with-your-boyfriend/)
 - [Dear Fashion Kitty ...](https://allwomenstalk.com/dear-fashion-kitty-ask-fashion-kitty-2/)
 - [Dear Fashion Kitty ...](https://allwomenstalk.com/dear-fashion-kitty-ask-fashion-kitty-15/)
 

@@ -44,16 +44,16 @@ As much as you might hate exercising, you have to do it. Your body deserves to b
 
 ## Related Posts
 
+- [yoga sore legs](https://fitness.allwomenstalk.com/soothe-your-sore-muscles-with-these-yoga-inspired-stretches/)
+- [rewards to give yourself](https://fitness.allwomenstalk.com/excellent-exercise-rewards-to-keep-you-motivated/)
+- [how to get rid of bingo wings](https://fitness.allwomenstalk.com/the-best-exercises-to-tone-your-arms-to-prevent-bingo-wings/)
+- [oblique exercises love handles](https://fitness.allwomenstalk.com/exercises-to-lose-those-love-handles/)
 - [can you lose weight jumping on a trampoline](https://fitness.allwomenstalk.com/super-easy-trampoline-exercises-to-boost-weight-loss/)
 - [does jump rope build calves](https://fitness.allwomenstalk.com/awesome-exercises-for-curvaceous-calves/)
-- [how to get rid of muffin top in a week](https://fitness.allwomenstalk.com/exercises-to-banish-that-muffin-top/)
 - [active activities for couples](https://love.allwomenstalk.com/active-date-ideas-thatll-help-you-both-get-fit-while-having-fun/)
-- [20 lb kettlebell workout](https://fitness.allwomenstalk.com/the-best-exercises-using-kettle-bells/)
-- [rewards to give yourself](https://fitness.allwomenstalk.com/excellent-exercise-rewards-to-keep-you-motivated/)
-- [oblique exercises love handles](https://fitness.allwomenstalk.com/exercises-to-lose-those-love-handles/)
-- [how to get rid of bingo wings](https://fitness.allwomenstalk.com/the-best-exercises-to-tone-your-arms-to-prevent-bingo-wings/)
-- [yoga sore legs](https://fitness.allwomenstalk.com/soothe-your-sore-muscles-with-these-yoga-inspired-stretches/)
 - [best drugstore pre workout](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
+- [20 lb kettlebell workout](https://fitness.allwomenstalk.com/the-best-exercises-using-kettle-bells/)
+- [how to get rid of muffin top in a week](https://fitness.allwomenstalk.com/exercises-to-banish-that-muffin-top/)
 - [Exercise to Feel Great when Naked ...](https://allwomenstalk.com/exercise-to-feel-great-when-naked/)
 - [Exercise Today Even if You Dont Want to ...](https://fitness.allwomenstalk.com/reasons-to-exercise-today-even-if-you-dont-want-to/)
 

@@ -268,15 +268,15 @@ So there you have it, a great list of dozens of comebacks to use no matter the s
 
 ## Related Posts
 
-- [sobrenomes lficos](https://lifestyle.allwomenstalk.com/elf-names/)
-- [latin words of wisdom](https://inspiration.allwomenstalk.com/famous-latin-phrases/)
-- [what is a minnion](https://lifestyle.allwomenstalk.com/top-minion-names/)
-- [spicy memes for couples](https://funny.allwomenstalk.com/spicy-memes/)
-- [german girls name](https://lifestyle.allwomenstalk.com/german-girl-names/)
-- [funny and dirty memes](https://funny.allwomenstalk.com/naughty-memes/)
-- [what are some cool usernames](https://inspiration.allwomenstalk.com/cool-usernames/)
-- [italian baby names for girls](https://lifestyle.allwomenstalk.com/italian-girl-names/)
 - [coquette girl names](https://lifestyle.allwomenstalk.com/french-girl-names/)
+- [german girls name](https://lifestyle.allwomenstalk.com/german-girl-names/)
+- [spicy memes for couples](https://funny.allwomenstalk.com/spicy-memes/)
+- [italian baby names for girls](https://lifestyle.allwomenstalk.com/italian-girl-names/)
+- [latin words of wisdom](https://inspiration.allwomenstalk.com/famous-latin-phrases/)
+- [what are some cool usernames](https://inspiration.allwomenstalk.com/cool-usernames/)
+- [sobrenomes lficos](https://lifestyle.allwomenstalk.com/elf-names/)
+- [funny and dirty memes](https://funny.allwomenstalk.com/naughty-memes/)
+- [what is a minnion](https://lifestyle.allwomenstalk.com/top-minion-names/)
 - [memes to make you laugh](https://funny.allwomenstalk.com/relatable-memes/)
 - [5 Things to Make You Laugh Today ...](https://allwomenstalk.com/5-things-to-make-you-laugh-today/)
 - [7 Funny Jokes to Help You Smile ...](https://allwomenstalk.com/7-funny-jokes-to-help-you-smile/)

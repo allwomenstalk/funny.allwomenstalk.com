@@ -74,16 +74,16 @@ I don't know about you, but Ryan Reynolds is my absolute fave celeb dad, and a b
 
 ## Related Posts
 
-- [most awkward interviews](https://celebs.allwomenstalk.com/youll-cringe-at-these-unbelievably-awkward-celeb-interviews/)
-- [it was sexier in the nineties](https://celebs.allwomenstalk.com/90s-stars-who-are-even-sexier-today/)
-- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
-- [best celebrity workouts](https://fitness.allwomenstalk.com/celeb-workouts-for-women-who-want-to-look-like-stars/)
 - [full frontal movie stars](https://celebs.allwomenstalk.com/hot-actors-whove-gone-full-frontal-on-screen/)
+- [best celebrity workouts](https://fitness.allwomenstalk.com/celeb-workouts-for-women-who-want-to-look-like-stars/)
+- [social media food trends](https://food.allwomenstalk.com/foods-that-broke-the-internet-as-much-as-kim/)
+- [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
+- [how to snap celebrities](https://celebs.allwomenstalk.com/the-hottest-celebs-to-follow-on-snapchat/)
+- [it was sexier in the nineties](https://celebs.allwomenstalk.com/90s-stars-who-are-even-sexier-today/)
+- [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
 - [celebrity face swap](https://celebs.allwomenstalk.com/these-are-the-best-face-swaps-celebs-have-ever-posted/)
 - [harry potter cast oliver wood](https://celebs.allwomenstalk.com/where-the-supporting-harry-potter-cast-is-now/)
-- [how to snap celebrities](https://celebs.allwomenstalk.com/the-hottest-celebs-to-follow-on-snapchat/)
-- [celebrities](https://celebs.allwomenstalk.com/be-inspired-by-celebrities-who-have-branched-out-to-try-new-things/)
-- [halle berry sarah palin](https://celebs.allwomenstalk.com/did-you-know-these-celebs-were-beauty-queens-before-they-became-stars/)
+- [most awkward interviews](https://celebs.allwomenstalk.com/youll-cringe-at-these-unbelievably-awkward-celeb-interviews/)
 - [5 Latest Buzz about Our Favorite Hollywood Men ...](https://allwomenstalk.com/5-latest-buzz-about-our-favorite-hollywood-men/)
 - [20 Gorgeous Celebrities Both Men and Women Drool o...](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
 

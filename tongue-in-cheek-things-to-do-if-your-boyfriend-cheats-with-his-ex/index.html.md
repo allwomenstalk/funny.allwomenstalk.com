@@ -58,16 +58,16 @@ Has your boyfriend ever cheated on you with his ex? After you got him back, did 
 
 ## Related Posts
 
-- [how to deal with failing](https://teen.allwomenstalk.com/ways-to-recover-emotionally-after-failing-a-class/)
 - [how to fix a bad relationship](https://love.allwomenstalk.com/ways-to-fix-a-bad-relationship/)
-- [why do i feel sad when my friend is sad](https://lifestyle.allwomenstalk.com/things-to-do-when-your-best-friend-is-sad/)
-- [hear ex](https://love.allwomenstalk.com/things-you-feel-when-you-hear-about-an-ex/)
-- [why heartbreak is good for you](https://love.allwomenstalk.com/surprising-benefits-of-a-broken-heart/)
-- [how to keep busy after a breakup](https://love.allwomenstalk.com/ways-to-keep-busy-during-a-break-up/)
 - [how to get over concert depression](https://funny.allwomenstalk.com/phases-of-post-concert-depression/)
+- [why do i feel sad when my friend is sad](https://lifestyle.allwomenstalk.com/things-to-do-when-your-best-friend-is-sad/)
+- [how to not let your life revolve around your boyfr...](https://love.allwomenstalk.com/tips-on-how-to-not-let-your-life-revolve-around-him/)
 - [what to do when you think your boyfriend is cheati...](https://love.allwomenstalk.com/things-to-do-if-you-think-your-boyfriend-is-cheating/)
 - [i quit relationship quotes](https://love.allwomenstalk.com/reassuring-quotes-to-help-you-finally-end-a-bad-relationship/)
-- [how to not let your life revolve around your boyfr...](https://love.allwomenstalk.com/tips-on-how-to-not-let-your-life-revolve-around-him/)
+- [how to deal with failing](https://teen.allwomenstalk.com/ways-to-recover-emotionally-after-failing-a-class/)
+- [why heartbreak is good for you](https://love.allwomenstalk.com/surprising-benefits-of-a-broken-heart/)
+- [hear ex](https://love.allwomenstalk.com/things-you-feel-when-you-hear-about-an-ex/)
+- [how to keep busy after a breakup](https://love.allwomenstalk.com/ways-to-keep-busy-during-a-break-up/)
 - [7 Ways to Catch Your Cheating Boyfriend ...](https://allwomenstalk.com/7-ways-to-catch-your-cheating-boyfriend/)
 - [7 Ways to Deal with His Ex ...](https://allwomenstalk.com/7-ways-to-deal-with-his-ex/)
 

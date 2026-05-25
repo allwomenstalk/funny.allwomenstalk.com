@@ -152,16 +152,16 @@ I had a really hard time deciding which funny office notes to post. I suppose a 
 
 ## Related Posts
 
-- [comedy ted talks](https://funny.allwomenstalk.com/funny-ted-talks-thatll-make-you-laugh-in-no-time/)
-- [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
-- [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
-- [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
-- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
-- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
-- [dating customs around the world](https://love.allwomenstalk.com/funny-dating-customs-around-the-world/)
 - [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
-- [gmaes to play when bored](https://funny.allwomenstalk.com/texting-games-to-play-when-youre-bored/)
+- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
 - [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
+- [gmaes to play when bored](https://funny.allwomenstalk.com/texting-games-to-play-when-youre-bored/)
+- [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
+- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
+- [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
+- [comedy ted talks](https://funny.allwomenstalk.com/funny-ted-talks-thatll-make-you-laugh-in-no-time/)
+- [dating customs around the world](https://love.allwomenstalk.com/funny-dating-customs-around-the-world/)
+- [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
 - [25 Funny Exam Answers ...](https://lifestyle.allwomenstalk.com/funny-exam-answers/)
 - [10 Wittiest One-Liners ...](https://allwomenstalk.com/10-wittiest-one-liners/)
 

@@ -92,16 +92,16 @@ When you have nothing left to say, GIFs are the perfect way to express how you'r
 
 ## Related Posts
 
-- [words that used to be swear words](https://funny.allwomenstalk.com/ridiculous-words-that-used-to-be-considered-curses/)
-- [where are you these days funny reply](https://funny.allwomenstalk.com/funny-responses-to-what-are-you-going-to-do-with-your-life/)
-- [slang words 2015](https://lifestyle.allwomenstalk.com/whos-your-bae-the-slang-words-everyone-used-in/)
-- [whats a word you mispronounced one time](https://lifestyle.allwomenstalk.com/commonly-mispronounced-words-youve-been-saying-wrong/)
 - [words that sound smart](https://lifestyle.allwomenstalk.com/words-thatll-make-you-sound-smart-when-you-use-them/)
-- [charmander pick up lines](https://funny.allwomenstalk.com/silly-pokemon-pick-up-lines/)
-- [new year pickup line](https://funny.allwomenstalk.com/pick-up-lines-to-use-around-new-years/)
 - [crush funny flirty flirty quotes](https://funny.allwomenstalk.com/funny-quotes-about-the-difficulty-of-flirting/)
+- [charmander pick up lines](https://funny.allwomenstalk.com/silly-pokemon-pick-up-lines/)
+- [words that used to be swear words](https://funny.allwomenstalk.com/ridiculous-words-that-used-to-be-considered-curses/)
 - [tell me a history joke](https://funny.allwomenstalk.com/corny-jokes-for-all-of-the-history-buffs-out-there/)
 - [wrong use of words](https://lifestyle.allwomenstalk.com/everyday-words-we-all-use-incorrectly/)
+- [whats a word you mispronounced one time](https://lifestyle.allwomenstalk.com/commonly-mispronounced-words-youve-been-saying-wrong/)
+- [new year pickup line](https://funny.allwomenstalk.com/pick-up-lines-to-use-around-new-years/)
+- [where are you these days funny reply](https://funny.allwomenstalk.com/funny-responses-to-what-are-you-going-to-do-with-your-life/)
+- [slang words 2015](https://lifestyle.allwomenstalk.com/whos-your-bae-the-slang-words-everyone-used-in/)
 - [10 Worst Pick up Lines ...](https://allwomenstalk.com/10-worst-pick-up-lines/)
 - [25 Worst Chat-up Lines ...](https://love.allwomenstalk.com/worst-chat-up-lines/)
 

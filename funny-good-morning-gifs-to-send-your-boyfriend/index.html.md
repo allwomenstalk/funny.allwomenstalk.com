@@ -81,15 +81,15 @@ Don't forget to show your man how much you love him by making him laugh as soon 
 ## Related Posts
 
 - [french pet names for friends](https://love.allwomenstalk.com/romantic-french-words-to-memorize-for-your-mate/)
-- [how to say i love you poetically](https://love.allwomenstalk.com/poetic-ways-to-tell-someone-you-love-them/)
-- [who to romance as dark urge](https://love.allwomenstalk.com/ways-to-ramp-up-the-romance-after-dark/)
-- [date ideas in college](https://love.allwomenstalk.com/affordable-date-ideas-for-couples-in-college/)
-- [puuung real life](https://love.allwomenstalk.com/this-is-what-true-love-looks-like/)
-- [date dinner ideas](https://food.allwomenstalk.com/the-all-time-best-date-night-foods-for-a-perfect-evening-together/)
-- [facts about kissing](https://love.allwomenstalk.com/pecks-and-snogs-and-lots-more-in-lipsmackin-kissing-infographics/)
 - [ideas for handwritten letters](https://love.allwomenstalk.com/sealed-with-a-kiss-romantic-ideas-for-sending-handwritten-letters-to-your-lover/)
+- [puuung real life](https://love.allwomenstalk.com/this-is-what-true-love-looks-like/)
+- [who to romance as dark urge](https://love.allwomenstalk.com/ways-to-ramp-up-the-romance-after-dark/)
 - [worlds most romantic cities](https://travel.allwomenstalk.com/need-some-lovin-pack-your-bags-for-dates-in-the-most-romantic-cities-in-the-world/)
+- [date ideas in college](https://love.allwomenstalk.com/affordable-date-ideas-for-couples-in-college/)
 - [best games for couples game night](https://love.allwomenstalk.com/couples-night-in-best-video-games-to-play-with-your-partner/)
+- [how to say i love you poetically](https://love.allwomenstalk.com/poetic-ways-to-tell-someone-you-love-them/)
+- [facts about kissing](https://love.allwomenstalk.com/pecks-and-snogs-and-lots-more-in-lipsmackin-kissing-infographics/)
+- [date dinner ideas](https://food.allwomenstalk.com/the-all-time-best-date-night-foods-for-a-perfect-evening-together/)
 - [7 Unique Gift Ideas for Your Boyfriend ...](https://love.allwomenstalk.com/unique-gift-ideas-for-your-boyfriend/)
 - [11 Fashionable Christmas Gifts Your Guy Will Love ...](https://fashion.allwomenstalk.com/fashionable-christmas-gifts-your-guy-will-love/)
 

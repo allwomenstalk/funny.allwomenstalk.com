@@ -42,16 +42,16 @@ There's nothing better than a night with your girls. Make it memorable by playin
 
 ## Related Posts
 
-- [explore dubai on a budget](https://travel.allwomenstalk.com/things-to-do-in-dubai-on-a-budget/)
-- [activities for girls to do](https://travel.allwomenstalk.com/awesome-boardwalk-activities-you-cant-resist/)
-- [what to do at the beach without swimming](https://travel.allwomenstalk.com/stellar-seaside-activities-if-you-dont-swim/)
-- [old fashioned kids](https://parenting.allwomenstalk.com/old-fashioned-activities-to-do-with-your-kids/)
-- [things that teens do](https://teen.allwomenstalk.com/typical-teenage-things-worth-doing-at-least-once/)
-- [passion party themes](https://diy.allwomenstalk.com/ideas-for-a-harry-potter-theme-party/)
-- [nerdy things to do in tokyo](https://travel.allwomenstalk.com/ways-to-get-your-geek-on-in-tokyo/)
 - [cancel first date](https://love.allwomenstalk.com/ways-to-cancel-a-date-at-the-last-minute/)
-- [things to do on your lunch break](https://lifestyle.allwomenstalk.com/things-to-do-while-youre-on-your-lunch-break/)
+- [nerdy things to do in tokyo](https://travel.allwomenstalk.com/ways-to-get-your-geek-on-in-tokyo/)
 - [card group games](https://lifestyle.allwomenstalk.com/card-games-for-maximum-fun/)
+- [things to do on your lunch break](https://lifestyle.allwomenstalk.com/things-to-do-while-youre-on-your-lunch-break/)
+- [activities for girls to do](https://travel.allwomenstalk.com/awesome-boardwalk-activities-you-cant-resist/)
+- [explore dubai on a budget](https://travel.allwomenstalk.com/things-to-do-in-dubai-on-a-budget/)
+- [what to do at the beach without swimming](https://travel.allwomenstalk.com/stellar-seaside-activities-if-you-dont-swim/)
+- [passion party themes](https://diy.allwomenstalk.com/ideas-for-a-harry-potter-theme-party/)
+- [things that teens do](https://teen.allwomenstalk.com/typical-teenage-things-worth-doing-at-least-once/)
+- [old fashioned kids](https://parenting.allwomenstalk.com/old-fashioned-activities-to-do-with-your-kids/)
 - [7 Fun Things to do on a Girls Night out ...](https://lifestyle.allwomenstalk.com/fun-things-to-do-on-a-girls-night-out/)
 - [7 Incredibly Fun Things to do for Girls While Your...](https://love.allwomenstalk.com/incredibly-fun-things-to-do-for-girls-while-your-guy-plays-video-games/)
 

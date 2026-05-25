@@ -119,15 +119,15 @@ Sorry, guys! This is all tongue-in-cheek, all in fun … but it's still somethin
 ## Related Posts
 
 - [questions to ask about your childhood](https://love.allwomenstalk.com/questions-to-ask-your-serious-boyfriend-about-his-childhood/)
-- [quotes to make your girlfriend jealous](https://lifestyle.allwomenstalk.com/reassuring-quotes-for-women-who-get-jealous-easily/)
-- [how to deal with sexual insecurities](https://love.allwomenstalk.com/do-men-have-sexual-insecurities-too/)
-- [what arouses a women](https://love.allwomenstalk.com/things-that-men-find-exceptionally-arousing-in-women/)
-- [places to find love](https://love.allwomenstalk.com/the-worst-places-to-meet-men-if-you-want-something-serious/)
-- [beyonce independent woman gif](https://inspiration.allwomenstalk.com/these-assumptions-about-independent-women-are-all-wrong/)
-- [why am i not relationship material](https://love.allwomenstalk.com/how-do-guys-decide-if-youre-girlfriend-material/)
 - [anti relationship year](https://love.allwomenstalk.com/things-men-who-dont-want-a-relationship-need-to-understand/)
+- [why am i not relationship material](https://love.allwomenstalk.com/how-do-guys-decide-if-youre-girlfriend-material/)
 - [things that make a woman unattractive](https://love.allwomenstalk.com/things-men-find-unattractive-in-women/)
 - [settling for a man](https://love.allwomenstalk.com/what-happens-when-you-settle-for-a-man-when-you-deserve-more/)
+- [places to find love](https://love.allwomenstalk.com/the-worst-places-to-meet-men-if-you-want-something-serious/)
+- [quotes to make your girlfriend jealous](https://lifestyle.allwomenstalk.com/reassuring-quotes-for-women-who-get-jealous-easily/)
+- [beyonce independent woman gif](https://inspiration.allwomenstalk.com/these-assumptions-about-independent-women-are-all-wrong/)
+- [what arouses a women](https://love.allwomenstalk.com/things-that-men-find-exceptionally-arousing-in-women/)
+- [how to deal with sexual insecurities](https://love.allwomenstalk.com/do-men-have-sexual-insecurities-too/)
 - [If Women Were Apples and Men Were Grapes ...](https://allwomenstalk.com/if-women-were-apples-and-men-were-grapes/)
 - [10 Things Men Wont Ever Understand about Women ...](https://allwomenstalk.com/10-things-men-wont-ever-understand-about-women/)
 

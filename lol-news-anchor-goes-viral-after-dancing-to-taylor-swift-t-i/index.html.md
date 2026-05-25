@@ -18,16 +18,16 @@ LOL, what are your thoughts on Dan and his dancing?
 
 ## Related Posts
 
-- [jennifer lawrence house](https://lifestyle.allwomenstalk.com/home-tour-inside-jennifer-lawrences-7-mil-beverly-hills-home/)
-- [pretty girls 11 year olds](https://beauty.allwomenstalk.com/this-9-year-old-model-is-being-called-the-most-beautiful-girl-in-the-world/)
-- [liam hemsworth stuff](https://celebs.allwomenstalk.com/lol-watch-the-hunger-games-liam-hemsworth-strut-his-stuff-in-high-heels/)
-- [pitch perfect 2 trailer](https://movies.allwomenstalk.com/the-barden-bellas-return-in-new-aca-amazing-pitch-perfect-trailer/)
-- [hey arnold characters in real life](https://movies.allwomenstalk.com/hey-arnold-characters-all-grown-up-who-had-the-biggest-transformation/)
-- [rihanna personality type](https://celebs.allwomenstalk.com/rihanna-proves-shes-a-huge-scandal-fan-with-these-d-c-pics/)
 - [amy jo johnson body](https://celebs.allwomenstalk.com/original-pink-power-ranger-amy-jo-johnson-suited-up-for-a-street-performance/)
-- [dior spokesmodel](https://celebs.allwomenstalk.com/jennifer-lawrence-stuns-in-new-dior-campaign/)
-- [dominique battiste](https://music.allwomenstalk.com/dance-class-does-a-better-anaconda-dance-than-nicki-minaj-herself-video/)
+- [rihanna personality type](https://celebs.allwomenstalk.com/rihanna-proves-shes-a-huge-scandal-fan-with-these-d-c-pics/)
+- [liam hemsworth stuff](https://celebs.allwomenstalk.com/lol-watch-the-hunger-games-liam-hemsworth-strut-his-stuff-in-high-heels/)
 - [disney breast cancer awareness](https://inspiration.allwomenstalk.com/talented-artist-uses-disney-princesses-to-promote-breast-cancer-awareness/)
+- [jennifer lawrence house](https://lifestyle.allwomenstalk.com/home-tour-inside-jennifer-lawrences-7-mil-beverly-hills-home/)
+- [pitch perfect 2 trailer](https://movies.allwomenstalk.com/the-barden-bellas-return-in-new-aca-amazing-pitch-perfect-trailer/)
+- [dior spokesmodel](https://celebs.allwomenstalk.com/jennifer-lawrence-stuns-in-new-dior-campaign/)
+- [hey arnold characters in real life](https://movies.allwomenstalk.com/hey-arnold-characters-all-grown-up-who-had-the-biggest-transformation/)
+- [dominique battiste](https://music.allwomenstalk.com/dance-class-does-a-better-anaconda-dance-than-nicki-minaj-herself-video/)
+- [pretty girls 11 year olds](https://beauty.allwomenstalk.com/this-9-year-old-model-is-being-called-the-most-beautiful-girl-in-the-world/)
 - [Is That Taylor or a Stripper](https://celebs.allwomenstalk.com/momsen-looks-like-a-stripper/)
 - [Katy Perry to Get Naughty with Ted Mosby....](https://celebs.allwomenstalk.com/katy-perry-to-get-naughty-with-ted-mosby/)
 

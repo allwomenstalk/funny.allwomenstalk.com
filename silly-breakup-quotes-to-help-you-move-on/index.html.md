@@ -68,16 +68,16 @@ Most people will go through dozens of breakups in their lives, so you shouldn't 
 
 ## Related Posts
 
-- [breaking up during the holidays](https://love.allwomenstalk.com/ways-to-handle-a-holiday-breakup/)
+- [how to break up with someone you love over text](https://love.allwomenstalk.com/steps-to-connecting-with-an-old-flame/)
 - [watch my ex](https://love.allwomenstalk.com/ways-to-handle-watching-your-ex-move-on/)
 - [breakup essentials](https://love.allwomenstalk.com/essentials-you-need-to-get-through-a-breakup/)
-- [worst types of breakups](https://love.allwomenstalk.com/types-of-breakups-that-everyone-will-go-through/)
-- [love message for him to fall in love long distance...](https://love.allwomenstalk.com/things-to-do-when-your-boyfriend-hurts-your-feelings/)
-- [will he regret breaking up](https://love.allwomenstalk.com/ways-to-make-him-regret-breaking-up-with-you/)
-- [signs a girl is vain](https://love.allwomenstalk.com/ways-to-cope-with-a-vain-boyfriend/)
-- [what if my crush doesnt like me](https://love.allwomenstalk.com/ways-to-cope-when-your-crush-doesnt-feel-the-same-way/)
 - [failed romance movies](https://movies.allwomenstalk.com/movies-about-failed-relationships-to-help-you-get-over-him/)
-- [how to break up with someone you love over text](https://love.allwomenstalk.com/steps-to-connecting-with-an-old-flame/)
+- [love message for him to fall in love long distance...](https://love.allwomenstalk.com/things-to-do-when-your-boyfriend-hurts-your-feelings/)
+- [breaking up during the holidays](https://love.allwomenstalk.com/ways-to-handle-a-holiday-breakup/)
+- [worst types of breakups](https://love.allwomenstalk.com/types-of-breakups-that-everyone-will-go-through/)
+- [will he regret breaking up](https://love.allwomenstalk.com/ways-to-make-him-regret-breaking-up-with-you/)
+- [what if my crush doesnt like me](https://love.allwomenstalk.com/ways-to-cope-when-your-crush-doesnt-feel-the-same-way/)
+- [signs a girl is vain](https://love.allwomenstalk.com/ways-to-cope-with-a-vain-boyfriend/)
 - [7 Ways to Move past a Breakup ...](https://love.allwomenstalk.com/ways-to-move-past-a-breakup/)
 - [7 Tips on How to Get through a Break up ...](https://love.allwomenstalk.com/tips-on-how-to-get-through-a-break-up/)
 

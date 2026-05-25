@@ -16,16 +16,16 @@ Watch this now and SHARE it with your Facebook friends!
 
 ## Related Posts
 
-- [well you know what can i say gif](https://inspiration.allwomenstalk.com/these-empathy-cards-will-help-when-you-dont-know-what-to-say/)
-- [7 Unusual Dating Sites You Wont Believe Exist ...](https://love.allwomenstalk.com/unusual-dating-sites-you-wont-believe-exist/)
-- [7 Words You Should Use Less Frequently ...](https://lifestyle.allwomenstalk.com/words-you-should-use-less-frequently/)
-- [White Not Right Try These Other Tones ...](https://fashion.allwomenstalk.com/white-not-right-try-these-other-tones-fashion/)
+- [7 Common Communication Mistakes That You Might Be ...](https://inspiration.allwomenstalk.com/common-communication-mistakes-that-you-might-be-making-without-even-realizing-it/)
+- [Ridiculously Funny Sounding Words You Can Use to C...](https://funny.allwomenstalk.com/ridiculous-sounding-words-you-never-knew-existed/)
 - [11 Words You Use That Once Had Different Meanings ...](https://lifestyle.allwomenstalk.com/words-you-use-that-once-had-different-meanings/)
+- [7 Unusual Dating Sites You Wont Believe Exist ...](https://love.allwomenstalk.com/unusual-dating-sites-you-wont-believe-exist/)
+- [well you know what can i say gif](https://inspiration.allwomenstalk.com/these-empathy-cards-will-help-when-you-dont-know-what-to-say/)
 - [Fire up Your Vocabwith These Awesome Alternative W...](https://inspiration.allwomenstalk.com/cat-got-your-tongue-here-are-some-words-to-use-instead-of-awesome/)
 - [9 Silly Euphemisms for Your Period to Use during T...](https://funny.allwomenstalk.com/silly-euphemisms-for-your-period-to-use-during-that-time-of-the-month/)
-- [Ridiculously Funny Sounding Words You Can Use to C...](https://funny.allwomenstalk.com/ridiculous-sounding-words-you-never-knew-existed/)
+- [White Not Right Try These Other Tones ...](https://fashion.allwomenstalk.com/white-not-right-try-these-other-tones-fashion/)
+- [7 Words You Should Use Less Frequently ...](https://lifestyle.allwomenstalk.com/words-you-should-use-less-frequently/)
 - [If Paintings Could Text ...](https://funny.allwomenstalk.com/if-paintings-could-text/)
-- [7 Common Communication Mistakes That You Might Be ...](https://inspiration.allwomenstalk.com/common-communication-mistakes-that-you-might-be-making-without-even-realizing-it/)
 - [8 Things Mothers like to Say ...](https://parenting.allwomenstalk.com/8-things-mothers-like-to-say/)
 - [Dont Say It Top Ten Lines a Woman Should Never Hea...](https://allwomenstalk.com/top-ten-lines-a-woman-should-never-hear-from-you/)
 

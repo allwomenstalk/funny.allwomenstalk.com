@@ -71,15 +71,15 @@ When you decorate your Christmas tree this year, don't feel like it has to be a 
 
 ## Related Posts
 
-- [49 Fab DIY Banners to Make Your Next Party Pop](https://diy.allwomenstalk.com/fab-diy-banners-to-make-your-next-party-pop/)
-- [diy easter crafts](https://diy.allwomenstalk.com/easter-crafts-you-need-to-make-this-year/)
-- [cute aprons](https://diy.allwomenstalk.com/little-ones-helping-in-the-kitchen-make-these-cute-aprons-for-them/)
 - [An Insight into Basic Techniques: 33 How to Tutori...](https://diy.allwomenstalk.com/an-insight-into-basic-techniques-how-to-tutorials-for-sewing/)
-- [7 Simple DIY Projects for Dog Owners ...](https://diy.allwomenstalk.com/simple-diy-projects-for-dog-owners/)
+- [49 Fab DIY Banners to Make Your Next Party Pop](https://diy.allwomenstalk.com/fab-diy-banners-to-make-your-next-party-pop/)
+- [cute aprons](https://diy.allwomenstalk.com/little-ones-helping-in-the-kitchen-make-these-cute-aprons-for-them/)
 - [7 Pineapple DIYs That Are Sure to Make You Smile ....](https://diy.allwomenstalk.com/pineapple-diys-that-are-sure-to-make-you-smile/)
 - [Youll Love These Easy Fashion DIY Ideas](https://fashion.allwomenstalk.com/youll-love-these-easy-fashion-diy-ideas/)
-- [After Piecing Together Fabric Scraps Youll Be Amaz...](https://diy.allwomenstalk.com/after-piecing-together-fabric-scraps-youll-be-amazed-at-the-pretty-pouches-you-can-make/)
+- [diy easter crafts](https://diy.allwomenstalk.com/easter-crafts-you-need-to-make-this-year/)
+- [7 Simple DIY Projects for Dog Owners ...](https://diy.allwomenstalk.com/simple-diy-projects-for-dog-owners/)
 - [7 Incredibly Adorable Bear Crafts You Have to Make...](https://diy.allwomenstalk.com/incredibly-adorable-bear-crafts-you-have-to-make/)
+- [After Piecing Together Fabric Scraps Youll Be Amaz...](https://diy.allwomenstalk.com/after-piecing-together-fabric-scraps-youll-be-amazed-at-the-pretty-pouches-you-can-make/)
 - [7 Essential Knitting Tutorials for Novices ...](https://diy.allwomenstalk.com/essential-knitting-tutorials-for-novices/)
 - [9 Wall Decals to Decorate Your Apartment ...](https://lifestyle.allwomenstalk.com/wall-decals-to-decorate-your-apartment/)
 - [7 Top Reasons to DIY Paper Christmas Ornaments ...](https://lifestyle.allwomenstalk.com/top-reasons-to-diy-paper-christmas-ornaments/)

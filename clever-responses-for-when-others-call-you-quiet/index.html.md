@@ -50,16 +50,16 @@ With clever comebacks like these, you'll never have to feel embarrassed over you
 
 ## Related Posts
 
-- [funny things to say in class](https://funny.allwomenstalk.com/funny-excuses-for-skipping-class/)
 - [describing words about yourself](https://inspiration.allwomenstalk.com/confidence-boosting-words-to-use-to-describe-yourself/)
-- [funny ways of answering the phone](https://funny.allwomenstalk.com/funny-replies-for-when-the-teacher-calls-on-you/)
 - [brown food names](https://food.allwomenstalk.com/food-names-youve-been-saying-wrong/)
+- [six word stories funny](https://books.allwomenstalk.com/the-best-6-word-stories-ever-written/)
+- [united kingdom accent](https://lifestyle.allwomenstalk.com/how-to-fake-a-british-accent/)
 - [what do drunk texts look like](https://funny.allwomenstalk.com/hysterical-drunk-text-fails/)
+- [funny ways of answering the phone](https://funny.allwomenstalk.com/funny-replies-for-when-the-teacher-calls-on-you/)
+- [funny things to say in class](https://funny.allwomenstalk.com/funny-excuses-for-skipping-class/)
+- [hate doesnt know own name](https://lifestyle.allwomenstalk.com/things-you-can-do-if-you-hate-your-name/)
 - [use that word lightly](https://lifestyle.allwomenstalk.com/words-you-should-never-use-lightly/)
 - [stuff to tell your boyfriend](https://love.allwomenstalk.com/corny-phrases-hell-actually-love-to-hear/)
-- [six word stories funny](https://books.allwomenstalk.com/the-best-6-word-stories-ever-written/)
-- [hate doesnt know own name](https://lifestyle.allwomenstalk.com/things-you-can-do-if-you-hate-your-name/)
-- [united kingdom accent](https://lifestyle.allwomenstalk.com/how-to-fake-a-british-accent/)
 - [7 Simple Things to Tell Yourself when the Going Ge...](https://inspiration.allwomenstalk.com/simple-things-to-tell-yourself-when-the-going-gets-tough/)
 - [7 Ways to Stop Insulting Yourself when Youre Upset...](https://inspiration.allwomenstalk.com/ways-to-stop-insulting-yourself-when-youre-upset/)
 

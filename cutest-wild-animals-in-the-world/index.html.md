@@ -42,16 +42,16 @@ These are just a few of the cutest wild animals I've seen. I'd mention the frogs
 
 ## Related Posts
 
-- [do birds pant](https://lifestyle.allwomenstalk.com/reasons-why-birds-make-great-pets/)
-- [cute animals that migrate](https://travel.allwomenstalk.com/incredible-animal-migrations-that-will-amaze-you/)
-- [easiest pets to have](https://teen.allwomenstalk.com/pets-to-have-in-college-that-are-easy-to-take-care-of/)
-- [dog twitter accounts](https://lifestyle.allwomenstalk.com/twitter-accounts-all-animal-lovers-should-follow/)
-- [top 7 baby animals](https://lifestyle.allwomenstalk.com/baby-animals-that-will-make-you-go-awww/)
-- [getting a second dog was a mistake](https://lifestyle.allwomenstalk.com/tips-when-bringing-another-dog-home/)
-- [rainforest animals and birds](https://lifestyle.allwomenstalk.com/amazing-birds-and-animals-of-the-tropical-rainforest/)
-- [pretentious cat](https://lifestyle.allwomenstalk.com/cat-personalities-we-all-identify-with/)
-- [how to make a bunny happy](https://lifestyle.allwomenstalk.com/foolproof-tips-for-keeping-your-bunny-active-and-happy/)
 - [little animals from madagascar](https://lifestyle.allwomenstalk.com/of-the-cutest-animals-in-madagascar/)
+- [cute animals that migrate](https://travel.allwomenstalk.com/incredible-animal-migrations-that-will-amaze-you/)
+- [how to make a bunny happy](https://lifestyle.allwomenstalk.com/foolproof-tips-for-keeping-your-bunny-active-and-happy/)
+- [do birds pant](https://lifestyle.allwomenstalk.com/reasons-why-birds-make-great-pets/)
+- [getting a second dog was a mistake](https://lifestyle.allwomenstalk.com/tips-when-bringing-another-dog-home/)
+- [pretentious cat](https://lifestyle.allwomenstalk.com/cat-personalities-we-all-identify-with/)
+- [rainforest animals and birds](https://lifestyle.allwomenstalk.com/amazing-birds-and-animals-of-the-tropical-rainforest/)
+- [top 7 baby animals](https://lifestyle.allwomenstalk.com/baby-animals-that-will-make-you-go-awww/)
+- [dog twitter accounts](https://lifestyle.allwomenstalk.com/twitter-accounts-all-animal-lovers-should-follow/)
+- [easiest pets to have](https://teen.allwomenstalk.com/pets-to-have-in-college-that-are-easy-to-take-care-of/)
 - [Top 7 Colorful Animals ...](https://travel.allwomenstalk.com/top-7-colorful-animals/)
 - [7 Animals on the Endangered Species List ...](https://lifestyle.allwomenstalk.com/animals-on-the-endangered-species-list/)
 

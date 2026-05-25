@@ -48,15 +48,15 @@ So tell us, what funny or jokey ways have you ever used to get back at someone?
 
 ## Related Posts
 
-- [what to say to a lady](https://lifestyle.allwomenstalk.com/heres-how-to-say-no-like-a-lady/)
-- [why do i cry in confrontations](https://inspiration.allwomenstalk.com/how-to-handle-confrontation-without-crying/)
 - [is it normal to have a crush on your professor](https://teen.allwomenstalk.com/how-to-handle-an-embarrassing-crush-on-a-teacher/)
-- [how to stop gossip about you](https://lifestyle.allwomenstalk.com/when-people-gossip-about-you-do-these-things/)
-- [cattiness at work](https://lifestyle.allwomenstalk.com/meow-hiss-how-to-deal-with-catty-women-at-work/)
-- [my immature lover drama](https://lifestyle.allwomenstalk.com/how-to-deal-with-immature-friends-for-drama-free-relationships/)
 - [how can i get rid of jealousy](https://love.allwomenstalk.com/these-tricks-will-get-rid-of-your-jealousy/)
 - [how to handle having less money than your friends](https://money.allwomenstalk.com/how-to-handle-being-the-poor-one-in-your-friend-group/)
+- [how to stop gossip about you](https://lifestyle.allwomenstalk.com/when-people-gossip-about-you-do-these-things/)
+- [cattiness at work](https://lifestyle.allwomenstalk.com/meow-hiss-how-to-deal-with-catty-women-at-work/)
 - [ignore negative people](https://inspiration.allwomenstalk.com/tips-for-ignoring-the-negative-people-in-your-life/)
+- [what to say to a lady](https://lifestyle.allwomenstalk.com/heres-how-to-say-no-like-a-lady/)
+- [my immature lover drama](https://lifestyle.allwomenstalk.com/how-to-deal-with-immature-friends-for-drama-free-relationships/)
+- [why do i cry in confrontations](https://inspiration.allwomenstalk.com/how-to-handle-confrontation-without-crying/)
 - [what if partner doesnt like engagement ring](https://jewelry.allwomenstalk.com/how-to-deal-with-receiving-an-engagement-ring-you-hate/)
 - [No Need to Steal ...](https://allwomenstalk.com/no-need-to-steal/)
 - [Everything You Need to Know about Making Your Bad ...](https://inspiration.allwomenstalk.com/ways-to-turn-around-a-bad-day/)

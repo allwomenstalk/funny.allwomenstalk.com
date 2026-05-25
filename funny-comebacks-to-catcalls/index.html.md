@@ -50,16 +50,16 @@ What other ideas can you come up with?
 
 ## Related Posts
 
-- [how to talk in different languages](https://love.allwomenstalk.com/how-to-talk-dirty-in-different-languages/)
-- [if you were a holiday youd be pick up line](https://love.allwomenstalk.com/pickup-lines-to-use-underneath-the-mistletoe/)
-- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
-- [psychology of a nosy person](https://funny.allwomenstalk.com/comebacks-for-all-of-the-nosy-people-in-your-life/)
-- [canadian vocabulary](https://lifestyle.allwomenstalk.com/common-canadian-words-you-should-steal/)
 - [words that should exist but dont](https://lifestyle.allwomenstalk.com/words-that-dont-exist-but-should/)
-- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
 - [sign language russian](https://lifestyle.allwomenstalk.com/sign-language-infographics-thatll-make-you-smarter/)
-- [how do you say hi in other languages](https://lifestyle.allwomenstalk.com/how-to-say-hello-in-languages-from-around-the-world/)
+- [how to talk in different languages](https://love.allwomenstalk.com/how-to-talk-dirty-in-different-languages/)
+- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
+- [if you were a holiday youd be pick up line](https://love.allwomenstalk.com/pickup-lines-to-use-underneath-the-mistletoe/)
+- [canadian vocabulary](https://lifestyle.allwomenstalk.com/common-canadian-words-you-should-steal/)
 - [11 rules of grammar](https://lifestyle.allwomenstalk.com/grammar-rules-that-most-people-have-never-learned/)
+- [psychology of a nosy person](https://funny.allwomenstalk.com/comebacks-for-all-of-the-nosy-people-in-your-life/)
+- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
+- [how do you say hi in other languages](https://lifestyle.allwomenstalk.com/how-to-say-hello-in-languages-from-around-the-world/)
 - [3 Funny Jokes for Girls](https://allwomenstalk.com/funny-jokes-for-girls/)
 - [20 Funny Jokes about Men ...](https://allwomenstalk.com/20-funny-jokes-about-men/)
 

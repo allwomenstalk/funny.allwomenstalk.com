@@ -68,16 +68,16 @@ If you're single, you should say it loud and proud. There's no need to be embarr
 
 ## Related Posts
 
-- [get girls attention](https://love.allwomenstalk.com/how-to-catch-his-attention-in-a-room-full-of-other-girls/)
-- [when a guy is serious about you](https://love.allwomenstalk.com/how-to-show-him-youre-serious-about-him/)
-- [dont forget the date](https://love.allwomenstalk.com/dont-forget-to-do-these-things-on-your-first-date/)
-- [is he interested or friendly](https://love.allwomenstalk.com/is-he-flirting-or-just-being-friendly/)
 - [how to catch a girls eye](https://love.allwomenstalk.com/ways-to-use-your-looks-to-catch-his-eye/)
-- [dreamy eyes look](https://love.allwomenstalk.com/ways-to-look-dreamy-and-desirable-in-your-man-s-eyes/)
 - [situations for friends for tds](https://love.allwomenstalk.com/fun-hypothetical-situations-to-ask-your-bf-about/)
-- [how to avoid awkward silence with a girl](https://love.allwomenstalk.com/how-to-avoid-awkward-silences-during-a-date/)
+- [dreamy eyes look](https://love.allwomenstalk.com/ways-to-look-dreamy-and-desirable-in-your-man-s-eyes/)
+- [when a guy is serious about you](https://love.allwomenstalk.com/how-to-show-him-youre-serious-about-him/)
 - [how to introduce yourself on a date](https://love.allwomenstalk.com/how-to-introduce-yourself-to-him/)
+- [how to avoid awkward silence with a girl](https://love.allwomenstalk.com/how-to-avoid-awkward-silences-during-a-date/)
 - [how to pick up a boy](https://love.allwomenstalk.com/how-to-pick-up-a-guy-at-a-party/)
+- [is he interested or friendly](https://love.allwomenstalk.com/is-he-flirting-or-just-being-friendly/)
+- [get girls attention](https://love.allwomenstalk.com/how-to-catch-his-attention-in-a-room-full-of-other-girls/)
+- [dont forget the date](https://love.allwomenstalk.com/dont-forget-to-do-these-things-on-your-first-date/)
 - [7 Ways to Show Subtly That You Are Available ...](https://love.allwomenstalk.com/ways-to-show-subtly-that-you-are-available/)
 - [15 Ways to Let a Guy Know Youre Interested in Him ...](https://love.allwomenstalk.com/ways-to-let-a-guy-know-you-are-interested/)
 

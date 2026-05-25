@@ -42,16 +42,16 @@ If you have a Tumblr, you probably spend half of your life on it, which is why y
 
 ## Related Posts
 
-- [inspirational website](https://inspiration.allwomenstalk.com/inspiring-websites-to-check-out/)
-- [plus size influencer](https://fashion.allwomenstalk.com/fabulous-plus-size-fashion-bloggers-to-follow-on-instagram/)
-- [gluten free goddess](https://food.allwomenstalk.com/blogs-to-follow-if-youre-gluten-free/)
-- [celebrities with lifestyle blogs](https://celebs.allwomenstalk.com/awesome-blogs-run-by-celebrities/)
-- [best vloggers in the world](https://lifestyle.allwomenstalk.com/amazing-daily-vloggers-to-check-out/)
-- [blake lively blog](https://celebs.allwomenstalk.com/reasons-to-read-blake-livelys-lifestyle-blog/)
-- [leandra medine weight](https://fashion.allwomenstalk.com/fashion-bloggers-who-will-change-the-game-this-year/)
 - [blogs about healthy eating](https://food.allwomenstalk.com/inspiring-whole-foods-blogs-to-follow/)
+- [celebrities with lifestyle blogs](https://celebs.allwomenstalk.com/awesome-blogs-run-by-celebrities/)
+- [leandra medine weight](https://fashion.allwomenstalk.com/fashion-bloggers-who-will-change-the-game-this-year/)
 - [acne blogs](https://skincare.allwomenstalk.com/blogs-for-people-who-suffer-from-acne/)
+- [gluten free goddess](https://food.allwomenstalk.com/blogs-to-follow-if-youre-gluten-free/)
 - [blog about parenting](https://parenting.allwomenstalk.com/top-parenting-blogs/)
+- [plus size influencer](https://fashion.allwomenstalk.com/fabulous-plus-size-fashion-bloggers-to-follow-on-instagram/)
+- [blake lively blog](https://celebs.allwomenstalk.com/reasons-to-read-blake-livelys-lifestyle-blog/)
+- [inspirational website](https://inspiration.allwomenstalk.com/inspiring-websites-to-check-out/)
+- [best vloggers in the world](https://lifestyle.allwomenstalk.com/amazing-daily-vloggers-to-check-out/)
 - [7 Cool Twilight Blogs ...](https://paranormal.allwomenstalk.com/7-cool-twilight-blogs/)
 - [7 of My Favorite Paranormal Blogs ...](https://paranormal.allwomenstalk.com/7-of-my-favorite-paranormal-blogs/)
 

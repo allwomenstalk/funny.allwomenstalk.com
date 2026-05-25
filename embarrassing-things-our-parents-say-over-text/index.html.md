@@ -74,16 +74,16 @@ How many times has your mom or dad texted you something that is so, so embarrass
 
 ## Related Posts
 
-- [apocalypse jokes](https://funny.allwomenstalk.com/dad-jokes-that-will-actually-make-you-laugh/)
-- [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
-- [aussie pick up lines](https://lifestyle.allwomenstalk.com/australian-slang-terms-you-havent-heard/)
-- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
-- [recent additions to the dictionary](https://lifestyle.allwomenstalk.com/a-few-new-words-being-added-to-the-dictionary/)
-- [emoji pick up lines](https://funny.allwomenstalk.com/the-biggest-pick-up-line-failures/)
 - [how to professionally say someone is lazy](https://funny.allwomenstalk.com/the-best-comebacks-for-being-called-lazy/)
-- [funniest roses are red poems](https://funny.allwomenstalk.com/the-funniest-lines-to-use-when-dumping-him/)
-- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
 - [site:allwomenstalk.com](https://funny.allwomenstalk.com/funny-comebacks-to-catcalls/)
+- [aussie pick up lines](https://lifestyle.allwomenstalk.com/australian-slang-terms-you-havent-heard/)
+- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
+- [funniest roses are red poems](https://funny.allwomenstalk.com/the-funniest-lines-to-use-when-dumping-him/)
+- [apocalypse jokes](https://funny.allwomenstalk.com/dad-jokes-that-will-actually-make-you-laugh/)
+- [emoji pick up lines](https://funny.allwomenstalk.com/the-biggest-pick-up-line-failures/)
+- [recent additions to the dictionary](https://lifestyle.allwomenstalk.com/a-few-new-words-being-added-to-the-dictionary/)
+- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
+- [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
 - [9 Things Not to Say via Text Message ...](https://lifestyle.allwomenstalk.com/things-not-to-say-via-text-message/)
 - [7 Things Your Mother-in-Law Wants to Say but Wont ...](https://allwomenstalk.com/7-things-your-mother-in-law-wants-to-say-but-wont/)
 

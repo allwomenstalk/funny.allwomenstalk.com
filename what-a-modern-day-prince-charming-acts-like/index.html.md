@@ -42,16 +42,16 @@ Don't settle for a frog when you could have a prince. Wait until you find a real
 
 ## Related Posts
 
-- [deciding between two guys](https://love.allwomenstalk.com/how-to-choose-between-two-men/)
-- [pillowyalk](https://love.allwomenstalk.com/subjects-thatre-perfect-for-pillow-talk/)
-- [garls bf](https://love.allwomenstalk.com/things-having-a-bf-shouldnt-stop-you-from-doing/)
-- [unfairr r34](https://love.allwomenstalk.com/things-its-unfair-to-ask-your-bf-to-do/)
-- [best compliments for him](https://love.allwomenstalk.com/compliments-your-man-would-never-forget/)
-- [emitaz pregnant](https://love.allwomenstalk.com/shallow-things-its-okay-to-look-for-in-a-man/)
-- [deal breakers for men](https://love.allwomenstalk.com/the-most-common-dating-deal-breakers-for-men/)
 - [boyfriend girlfriend test](https://love.allwomenstalk.com/tests-girls-use-to-evaluate-their-bfs/)
+- [deal breakers for men](https://love.allwomenstalk.com/the-most-common-dating-deal-breakers-for-men/)
+- [best compliments for him](https://love.allwomenstalk.com/compliments-your-man-would-never-forget/)
 - [what drives a man away in a relationship](https://love.allwomenstalk.com/things-that-could-drive-a-guy-away/)
+- [unfairr r34](https://love.allwomenstalk.com/things-its-unfair-to-ask-your-bf-to-do/)
+- [emitaz pregnant](https://love.allwomenstalk.com/shallow-things-its-okay-to-look-for-in-a-man/)
+- [deciding between two guys](https://love.allwomenstalk.com/how-to-choose-between-two-men/)
 - [how to make a beautiful girl](https://beauty.allwomenstalk.com/negative-traits-that-can-make-you-appear-uglier/)
+- [garls bf](https://love.allwomenstalk.com/things-having-a-bf-shouldnt-stop-you-from-doing/)
+- [pillowyalk](https://love.allwomenstalk.com/subjects-thatre-perfect-for-pillow-talk/)
 - [Dating Dilemma: He Falls Short ...](https://allwomenstalk.com/dating-dilemma-he-falls-short/)
 - [Meet mister Lonely ...](https://allwomenstalk.com/meet-mister-lonely/)
 

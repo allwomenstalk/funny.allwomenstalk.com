@@ -42,16 +42,16 @@ Latin is a beautiful language, but you can string the words together to make sil
 
 ## Related Posts
 
+- [some e card](https://funny.allwomenstalk.com/hilariously-sassy-e-cards-that-we-cant-get-enough-of/)
+- [anti jokes list](https://funny.allwomenstalk.com/anti-jokes-that-will-make-you-burst-out-in-laughter/)
+- [t shirts saying](https://fashion.allwomenstalk.com/hilarious-t-shirt-sayings-you-will-laugh-out-loud-at/)
+- [funny words like shenanigans](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
 - [f1 pickup lines](https://funny.allwomenstalk.com/perfect-guardians-of-the-galaxy-pick-up-lines/)
+- [hermit the frog drawing](https://inspiration.allwomenstalk.com/quotes-from-kermit-the-frog-the-puppet-with-a-lot-to-say/)
+- [old timer sayings funny](https://funny.allwomenstalk.com/silly-old-time-phrases-that-youll-love-using/)
 - [words teenagers use](https://teen.allwomenstalk.com/words-teenagers-love-to-use/)
 - [pickup line espaol](https://funny.allwomenstalk.com/silly-pick-up-lines-in-latin/)
-- [old timer sayings funny](https://funny.allwomenstalk.com/silly-old-time-phrases-that-youll-love-using/)
-- [funny words like shenanigans](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
-- [hermit the frog drawing](https://inspiration.allwomenstalk.com/quotes-from-kermit-the-frog-the-puppet-with-a-lot-to-say/)
-- [some e card](https://funny.allwomenstalk.com/hilariously-sassy-e-cards-that-we-cant-get-enough-of/)
-- [t shirts saying](https://fashion.allwomenstalk.com/hilarious-t-shirt-sayings-you-will-laugh-out-loud-at/)
 - [jokes about piercings](https://funny.allwomenstalk.com/clever-jokes-only-literature-lovers-will-appreciate/)
-- [anti jokes list](https://funny.allwomenstalk.com/anti-jokes-that-will-make-you-burst-out-in-laughter/)
 - [7 Funny Jokes to Help You Smile ...](https://allwomenstalk.com/7-funny-jokes-to-help-you-smile/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 

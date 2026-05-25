@@ -66,16 +66,16 @@ Grammar and punctuation aren't as boring as they seem, and these jokes prove it.
 
 ## Related Posts
 
-- [medieval words and phrases](https://funny.allwomenstalk.com/fancy-medieval-words-that-should-be-brought-back/)
 - [is funner a word oxford dictionary](https://funny.allwomenstalk.com/new-words-that-shouldnt-be-in-the-dictionary/)
+- [medieval words and phrases](https://funny.allwomenstalk.com/fancy-medieval-words-that-should-be-brought-back/)
 - [some e card](https://funny.allwomenstalk.com/hilariously-sassy-e-cards-that-we-cant-get-enough-of/)
-- [f1 pickup lines](https://funny.allwomenstalk.com/perfect-guardians-of-the-galaxy-pick-up-lines/)
-- [good break up lines](https://funny.allwomenstalk.com/funny-break-up-lines-to-use-on-someone-you-cant-stand/)
-- [pickup in french](https://funny.allwomenstalk.com/french-pick-up-lines-that-are-as-corny-as-they-are-romantic/)
-- [good mean girl comebacks](https://funny.allwomenstalk.com/insults-you-should-steal-from-the-movie-mean-girls/)
-- [t shirts saying](https://fashion.allwomenstalk.com/hilarious-t-shirt-sayings-you-will-laugh-out-loud-at/)
-- [what to do if you didnt do your homework](https://funny.allwomenstalk.com/excuses-for-when-you-forget-your-homework/)
 - [funny jokes on education](https://funny.allwomenstalk.com/jokes-about-school-for-those-who-arent-excited-about-returning/)
+- [what to do if you didnt do your homework](https://funny.allwomenstalk.com/excuses-for-when-you-forget-your-homework/)
+- [good mean girl comebacks](https://funny.allwomenstalk.com/insults-you-should-steal-from-the-movie-mean-girls/)
+- [pickup in french](https://funny.allwomenstalk.com/french-pick-up-lines-that-are-as-corny-as-they-are-romantic/)
+- [f1 pickup lines](https://funny.allwomenstalk.com/perfect-guardians-of-the-galaxy-pick-up-lines/)
+- [t shirts saying](https://fashion.allwomenstalk.com/hilarious-t-shirt-sayings-you-will-laugh-out-loud-at/)
+- [good break up lines](https://funny.allwomenstalk.com/funny-break-up-lines-to-use-on-someone-you-cant-stand/)
 - [8 Great Literary Lovers ...](https://love.allwomenstalk.com/great-literary-lovers/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 

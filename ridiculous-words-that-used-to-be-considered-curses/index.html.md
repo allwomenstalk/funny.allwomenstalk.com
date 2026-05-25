@@ -50,16 +50,16 @@ Our language is constantly changing, even when you don't realize it. It's why so
 
 ## Related Posts
 
-- [kissing humor](https://funny.allwomenstalk.com/cute-jokes-about-kissing/)
+- [glamorous words](https://lifestyle.allwomenstalk.com/classy-words-to-use-to-sound-like-a-lady/)
+- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
 - [is conversate a real word](https://lifestyle.allwomenstalk.com/words-you-use-that-dont-actually-exist-in-dictionaries/)
 - [charmander pick up lines](https://funny.allwomenstalk.com/silly-pokemon-pick-up-lines/)
-- [how to turn down a date](https://funny.allwomenstalk.com/funny-responses-to-use-when-turning-down-a-date/)
 - [how to reply to a compliment on instagram](https://funny.allwomenstalk.com/funny-responses-for-when-you-need-to-accept-a-compliment/)
-- [glamorous words](https://lifestyle.allwomenstalk.com/classy-words-to-use-to-sound-like-a-lady/)
+- [how to turn down a date](https://funny.allwomenstalk.com/funny-responses-to-use-when-turning-down-a-date/)
 - [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
 - [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
-- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
 - [invented words by shakespeare](https://lifestyle.allwomenstalk.com/words-invented-by-shakespeare-we-still-use-today/)
+- [kissing humor](https://funny.allwomenstalk.com/cute-jokes-about-kissing/)
 - [7 Everyday Phrases Attributed to Shakespeare ...](https://lifestyle.allwomenstalk.com/everyday-phrases-attributed-to-shakespeare/)
 - [10 Funny Things That Children Say ...](https://allwomenstalk.com/10-funny-things-that-children-say/)
 

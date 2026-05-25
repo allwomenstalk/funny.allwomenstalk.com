@@ -94,16 +94,16 @@ Which one made you laugh out loud?
 
 ## Related Posts
 
+- [Getting the Word out ...](https://allwomenstalk.com/getting-the-word-out/)
+- [The Next Four Letter Word ...](https://allwomenstalk.com/the-next-four-letter-word/)
 - [memes about being drunk](https://funny.allwomenstalk.com/drunk-memes/)
-- [memes to make you laugh](https://funny.allwomenstalk.com/relatable-memes/)
-- [bad dark jokes](https://funny.allwomenstalk.com/dark-humor-jokes/)
 - [The Instinctiv Application Anticipates What You Wa...](https://allwomenstalk.com/the-instinctiv-application-anticipates-what-you-want-to-hear-next/)
 - [The Increased Tolerance of Pet Names ...](https://allwomenstalk.com/the-increased-tolerance-of-pet-names/)
+- [bad dark jokes](https://funny.allwomenstalk.com/dark-humor-jokes/)
 - [funny and dirty memes](https://funny.allwomenstalk.com/naughty-memes/)
-- [Getting the Word out ...](https://allwomenstalk.com/getting-the-word-out/)
-- [cheezy pick up](https://funny.allwomenstalk.com/cheesy-pick-up-lines/)
-- [The Next Four Letter Word ...](https://allwomenstalk.com/the-next-four-letter-word/)
+- [memes to make you laugh](https://funny.allwomenstalk.com/relatable-memes/)
 - [Fighting Words: Names We Call Ourselves and Each O...](https://allwomenstalk.com/fighting-words-names-we-call-ourselves-and-each-other/)
+- [cheezy pick up](https://funny.allwomenstalk.com/cheesy-pick-up-lines/)
 - [7 Appetizingly Spicy Curry Recipes ...](https://food.allwomenstalk.com/appetizingly-spicy-curry-recipes/)
 - [10 Sexy Foods to Get Your Valentine in a Spicy Moo...](https://allwomenstalk.com/10-sexy-foods-to-get-your-valentine-in-a-spicy-mood/)
 

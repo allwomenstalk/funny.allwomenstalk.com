@@ -56,16 +56,16 @@ If you want the kissing to continue, avoid saying these silly things. What's the
 
 ## Related Posts
 
-- [overrated things in society](https://lifestyle.allwomenstalk.com/overrated-things-we-should-stop-romanticizing/)
-- [what to do at 12 am with friends](https://lifestyle.allwomenstalk.com/things-you-should-never-do-after-midnight/)
-- [condom mistakes](https://love.allwomenstalk.com/condom-mistakes-you-dont-want-to-make/)
-- [forced relationship](https://love.allwomenstalk.com/you-dont-belong-together-if-youre-forcing-these-things/)
-- [things to do while drunk with friends](https://health.allwomenstalk.com/things-you-should-never-do-while-drunk/)
-- [short dress thong](https://fashion.allwomenstalk.com/times-when-you-shouldnt-wear-a-thong/)
-- [things not to post on social media](https://lifestyle.allwomenstalk.com/things-you-should-never-post-on-social-media/)
-- [cliche advice](https://love.allwomenstalk.com/love-advice-cliches-that-you-shouldnt-actually-follow/)
-- [egirl piercings](https://funny.allwomenstalk.com/never-say-these-things-to-a-girl-with-piercings/)
 - [how to make him lose interest in you](https://love.allwomenstalk.com/things-thatll-make-him-lose-interest-in-you-right-away/)
+- [overrated things in society](https://lifestyle.allwomenstalk.com/overrated-things-we-should-stop-romanticizing/)
+- [cliche advice](https://love.allwomenstalk.com/love-advice-cliches-that-you-shouldnt-actually-follow/)
+- [condom mistakes](https://love.allwomenstalk.com/condom-mistakes-you-dont-want-to-make/)
+- [things to do while drunk with friends](https://health.allwomenstalk.com/things-you-should-never-do-while-drunk/)
+- [forced relationship](https://love.allwomenstalk.com/you-dont-belong-together-if-youre-forcing-these-things/)
+- [things not to post on social media](https://lifestyle.allwomenstalk.com/things-you-should-never-post-on-social-media/)
+- [egirl piercings](https://funny.allwomenstalk.com/never-say-these-things-to-a-girl-with-piercings/)
+- [short dress thong](https://fashion.allwomenstalk.com/times-when-you-shouldnt-wear-a-thong/)
+- [what to do at 12 am with friends](https://lifestyle.allwomenstalk.com/things-you-should-never-do-after-midnight/)
 - [11 Things to Never Tell Your Man ...](https://allwomenstalk.com/11-things-to-never-tell-your-man/)
 - [6 Things You Should Never Say to a Man ...](https://allwomenstalk.com/6-things-you-should-never-say-to-a-man/)
 

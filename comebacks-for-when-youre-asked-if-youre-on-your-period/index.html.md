@@ -44,16 +44,16 @@ Having a period isn't a walk in the park, which is why it shouldn't be made fun 
 
 ## Related Posts
 
-- [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
-- [holiday pickup line](https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/)
 - [new year pickup line](https://funny.allwomenstalk.com/pick-up-lines-to-use-around-new-years/)
-- [funny i love you more](https://funny.allwomenstalk.com/funny-clever-responses-to-i-love-you/)
 - [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
-- [words that sound smart](https://lifestyle.allwomenstalk.com/words-thatll-make-you-sound-smart-when-you-use-them/)
 - [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
+- [funny i love you more](https://funny.allwomenstalk.com/funny-clever-responses-to-i-love-you/)
+- [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
 - [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
-- [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
+- [words that sound smart](https://lifestyle.allwomenstalk.com/words-thatll-make-you-sound-smart-when-you-use-them/)
 - [crazy grandma memes](https://funny.allwomenstalk.com/hilarious-grandmas-has-yours-ever-given-you-advice-as-crazy-as-this/)
+- [holiday pickup line](https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/)
+- [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
 - [7 Smart Answers to Silly and Irritating Questions ...](https://love.allwomenstalk.com/smart-answers-to-silly-and-irritating-questions/)
 - [7 Classic White Lies Women Tell ...](https://love.allwomenstalk.com/classic-white-lies-women-tell/)
 

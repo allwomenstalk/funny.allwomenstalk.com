@@ -134,15 +134,15 @@ That being said, there are those times we all feel depressed-maybe not clinicall
 
 ## Related Posts
 
-- [ANOTHER 7 - Things about Me](https://allwomenstalk.com/another-7-things-about-me/)
+- [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
 - [You Can Handle It ...](https://allwomenstalk.com/you-can-handle-it/)
-- [sober curious retreat](https://health.allwomenstalk.com/the-rise-of-sober-curious-and-why-we-should-all-be-taking-it-on-board/)
 - [Jessica Faces Her Fears...and so Should You ...](https://allwomenstalk.com/jessica-faces-her-fearsand-so-should-you/)
 - [7 Things about Me](https://allwomenstalk.com/7-things-about-me/)
 - [Things That Make Me Go Mmm - and Think ...](https://allwomenstalk.com/things-that-make-me-go-mmm-and-think/)
-- [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
-- [What Really Matters ...](https://allwomenstalk.com/what-really-matters/)
 - [riche le stylo smoky eye blinged and brilliant](https://allwomenstalk.com/no-need-to-steal/)
+- [What Really Matters ...](https://allwomenstalk.com/what-really-matters/)
+- [sober curious retreat](https://health.allwomenstalk.com/the-rise-of-sober-curious-and-why-we-should-all-be-taking-it-on-board/)
+- [ANOTHER 7 - Things about Me](https://allwomenstalk.com/another-7-things-about-me/)
 - [Things That Are Not Wrong with Me 1-3.
 
 1. Head L....](https://allwomenstalk.com/things-that-are-not-wrong-with-me-1-31-head-l/)

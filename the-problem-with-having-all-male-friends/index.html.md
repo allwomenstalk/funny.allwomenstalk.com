@@ -82,16 +82,16 @@ Do you have all guy friends, or do you mostly hang out with girls?
 
 ## Related Posts
 
-- [how do you know if youre a good kisser](https://love.allwomenstalk.com/traits-that-make-a-woman-a-good-kisser/)
 - [bedrooms for men](https://love.allwomenstalk.com/men-dont-care-about-these-things-in-the-bedroom/)
-- [how to take things slow with a guy](https://love.allwomenstalk.com/how-to-stop-getting-screwed-over-by-men/)
-- [signs a man is territorial](https://love.allwomenstalk.com/how-to-mark-your-territory-to-keep-women-away-from-your-man/)
 - [men in their 20s](https://love.allwomenstalk.com/annoying-habits-of-men-in-their-20s/)
-- [most sensitive part in men](https://love.allwomenstalk.com/things-most-men-are-sensitive-about/)
-- [mean girl personality traits](https://love.allwomenstalk.com/mean-girl-traits-that-will-chase-boys-away/)
 - [when he carries your bag](https://love.allwomenstalk.com/things-men-only-do-when-theyre-crazy-about-you/)
-- [what on a mans mind](https://love.allwomenstalk.com/secrets-about-the-way-your-mans-mind-works/)
 - [i love my psycho girlfriend](https://love.allwomenstalk.com/things-thatll-earn-you-the-title-of-a-psycho-girlfriend/)
+- [what on a mans mind](https://love.allwomenstalk.com/secrets-about-the-way-your-mans-mind-works/)
+- [signs a man is territorial](https://love.allwomenstalk.com/how-to-mark-your-territory-to-keep-women-away-from-your-man/)
+- [how to take things slow with a guy](https://love.allwomenstalk.com/how-to-stop-getting-screwed-over-by-men/)
+- [most sensitive part in men](https://love.allwomenstalk.com/things-most-men-are-sensitive-about/)
+- [how do you know if youre a good kisser](https://love.allwomenstalk.com/traits-that-make-a-woman-a-good-kisser/)
+- [mean girl personality traits](https://love.allwomenstalk.com/mean-girl-traits-that-will-chase-boys-away/)
 - [11 Things Guys Hate about Girls ...](https://love.allwomenstalk.com/things-guys-hate-about-girls/)
 - [8 Things I Wish Id Always Known about Men ...](https://allwomenstalk.com/8-things-i-wish-id-always-known-about-men/)
 

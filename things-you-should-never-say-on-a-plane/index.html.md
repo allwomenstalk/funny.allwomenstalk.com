@@ -42,16 +42,16 @@ I hope you had a little giggle about these things you shouldn’t say on a plane
 
 ## Related Posts
 
+- [7 Social Media Donts That Youre Better off Avoidin...](https://lifestyle.allwomenstalk.com/social-media-donts-that-youre-better-off-avoiding/)
 - [annoying things boyfriends do](https://love.allwomenstalk.com/annoying-things-boyfriends-do-that-you-should-forgive/)
+- [7 Questions You Should Never Ask Your Partner ...](https://love.allwomenstalk.com/questions-you-should-never-ask-your-partner/)
+- [9 Negative Things to Consciously Detach Yourself f...](https://inspiration.allwomenstalk.com/negative-things-to-consciously-detach-yourself-from/)
+- [7 Stupid Things Weve All Done when Crushing on Som...](https://funny.allwomenstalk.com/stupid-things-weve-all-done-when-crushing-on-someone/)
 - [7 Things You Should Never Say to Your Guy ...](https://love.allwomenstalk.com/things-you-should-never-say-to-your-guy/)
 - [paris riche le smoky java](https://movies.allwomenstalk.com/worst-things-about-going-to-the-movies/)
-- [9 Negative Things to Consciously Detach Yourself f...](https://inspiration.allwomenstalk.com/negative-things-to-consciously-detach-yourself-from/)
 - [7 Worst Things to do at Your Workplace ...](https://inspiration.allwomenstalk.com/worst-things-to-do-at-your-workplace/)
-- [7 Social Media Donts That Youre Better off Avoidin...](https://lifestyle.allwomenstalk.com/social-media-donts-that-youre-better-off-avoiding/)
-- [week before your wedding](https://wedding.allwomenstalk.com/things-you-should-not-do-the-week-before-your-wedding/)
 - [7 First Date Deal Breakers ...](https://love.allwomenstalk.com/first-date-deal-breakers/)
-- [7 Questions You Should Never Ask Your Partner ...](https://love.allwomenstalk.com/questions-you-should-never-ask-your-partner/)
-- [7 Stupid Things Weve All Done when Crushing on Som...](https://funny.allwomenstalk.com/stupid-things-weve-all-done-when-crushing-on-someone/)
+- [week before your wedding](https://wedding.allwomenstalk.com/things-you-should-not-do-the-week-before-your-wedding/)
 - [7 Things You Should Never Tell Your Kids ...](https://allwomenstalk.com/7-things-you-should-never-tell-your-kids/)
 - [7 Things Not to Say to Strangers ...](https://allwomenstalk.com/7-things-not-to-say-to-strangers/)
 

@@ -62,16 +62,16 @@ I feel its important to tell corny jokes every now and again because they can ma
 
 ## Related Posts
 
+- [annoying everyday problems](https://funny.allwomenstalk.com/annoying-problems-only-writers-will-understand/)
 - [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
 - [funny notes to leave coworkers](https://funny.allwomenstalk.com/hysterically-funny-office-notes/)
 - [trick riddles to ask your friends](https://funny.allwomenstalk.com/awesome-riddles-thatll-stump-your-friends/)
 - [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
-- [annoying everyday problems](https://funny.allwomenstalk.com/annoying-problems-only-writers-will-understand/)
-- [what does cuteness overload mean as an insult](https://inspiration.allwomenstalk.com/cool-foreign-words-without-an-english-translation/)
 - [each states nickname](https://travel.allwomenstalk.com/states-and-their-nicknames-well-its-51-if-you-include-the-usa-_/)
-- [nursery rhymes creepy origins](https://books.allwomenstalk.com/nursery-rhyme-origins-you-wont-expect/)
-- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
 - [comedy ted talks](https://funny.allwomenstalk.com/funny-ted-talks-thatll-make-you-laugh-in-no-time/)
+- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
+- [nursery rhymes creepy origins](https://books.allwomenstalk.com/nursery-rhyme-origins-you-wont-expect/)
+- [what does cuteness overload mean as an insult](https://inspiration.allwomenstalk.com/cool-foreign-words-without-an-english-translation/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 - [7 Funny Jokes for Kids ...](https://allwomenstalk.com/7-funny-jokes-for-kids/)
 

@@ -59,16 +59,16 @@ There are thousands of words and phrases in the English language that we've neve
 
 ## Related Posts
 
-- [who invented tv shows](https://movies.allwomenstalk.com/words-invented-by-tv-shows/)
-- [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
 - [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
-- [latin motos](https://funny.allwomenstalk.com/funny-latin-phrases-youll-benefit-from-learning/)
 - [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
+- [7 Popular Sayings That Are Just Plain Dumb ...](https://lifestyle.allwomenstalk.com/popular-sayings-that-are-just-plain-dumb/)
+- [latin motos](https://funny.allwomenstalk.com/funny-latin-phrases-youll-benefit-from-learning/)
+- [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
 - [funny signs to make](https://funny.allwomenstalk.com/funny-signs-to-make-you-chuckle-and-scratch-your-head/)
-- [words teenagers use](https://teen.allwomenstalk.com/words-teenagers-love-to-use/)
+- [who invented tv shows](https://movies.allwomenstalk.com/words-invented-by-tv-shows/)
 - [when something means something else](https://lifestyle.allwomenstalk.com/colloquial-words-that-used-to-mean-something-else/)
 - [old timer sayings funny](https://funny.allwomenstalk.com/silly-old-time-phrases-that-youll-love-using/)
-- [7 Popular Sayings That Are Just Plain Dumb ...](https://lifestyle.allwomenstalk.com/popular-sayings-that-are-just-plain-dumb/)
+- [words teenagers use](https://teen.allwomenstalk.com/words-teenagers-love-to-use/)
 - [7 Words That Are Funny to Say ...](https://allwomenstalk.com/7-words-that-are-funny-to-say/)
 - [9 Cool-Sounding Words to Add to Your Vocabulary .....](https://allwomenstalk.com/9-cool-sounding-words-to-add-to-your-vocabulary/)
 

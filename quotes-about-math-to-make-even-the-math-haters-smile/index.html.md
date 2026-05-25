@@ -56,16 +56,16 @@ These are just a few quotes about math to make you smile and you don't even have
 
 ## Related Posts
 
+- [a poem to make someone feel better](https://inspiration.allwomenstalk.com/poems-to-make-you-feel-stronger/)
+- [laura ingalls wilder quote](https://inspiration.allwomenstalk.com/heartfelt-quotes-from-laura-ingalls-wilder/)
+- [yoda quote try or try not](https://inspiration.allwomenstalk.com/powerful-quotes-from-yoda-that-are-lessons-in-life/)
+- [quote on fall season](https://inspiration.allwomenstalk.com/beautiful-quotes-about-the-fall-season/)
+- [romantic passionate quotes](https://love.allwomenstalk.com/passionate-quotes-about-love/)
+- [quotes about broken relationship](https://love.allwomenstalk.com/quotes-you-can-relate-to-if-youve-experienced-a-broken-heart/)
+- [quotes on clever person](https://inspiration.allwomenstalk.com/sayings-about-intelligence-that-will-make-you-feel-better/)
+- [be truthful quotes](https://inspiration.allwomenstalk.com/quotes-about-life-that-are-all-too-true/)
 - [rayron mindy project](https://funny.allwomenstalk.com/hilarious-and-relatable-quotes-from-the-mindy-project-to-brighten-your-day/)
 - [sad dr seuss quotes](https://love.allwomenstalk.com/beautiful-quotes-about-lost-love/)
-- [quotes about broken relationship](https://love.allwomenstalk.com/quotes-you-can-relate-to-if-youve-experienced-a-broken-heart/)
-- [quote on fall season](https://inspiration.allwomenstalk.com/beautiful-quotes-about-the-fall-season/)
-- [be truthful quotes](https://inspiration.allwomenstalk.com/quotes-about-life-that-are-all-too-true/)
-- [yoda quote try or try not](https://inspiration.allwomenstalk.com/powerful-quotes-from-yoda-that-are-lessons-in-life/)
-- [laura ingalls wilder quote](https://inspiration.allwomenstalk.com/heartfelt-quotes-from-laura-ingalls-wilder/)
-- [romantic passionate quotes](https://love.allwomenstalk.com/passionate-quotes-about-love/)
-- [a poem to make someone feel better](https://inspiration.allwomenstalk.com/poems-to-make-you-feel-stronger/)
-- [quotes on clever person](https://inspiration.allwomenstalk.com/sayings-about-intelligence-that-will-make-you-feel-better/)
 - [9 Inspiring Quotes to Lift Your Spirits ...](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
 - [9 Enlightening Quotes to Hang on Your Wall ...](https://lifestyle.allwomenstalk.com/enlightening-quotes-to-hang-on-your-wall/)
 

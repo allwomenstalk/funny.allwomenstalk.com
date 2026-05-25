@@ -66,15 +66,15 @@ If someone has a crush on you, be polite to them. Of course, if you've turned th
 
 ## Related Posts
 
-- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
-- [awesome practical jokes](https://funny.allwomenstalk.com/harmless-practical-jokes-to-play-on-your-pals/)
-- [is conversate a real word](https://lifestyle.allwomenstalk.com/words-you-use-that-dont-actually-exist-in-dictionaries/)
-- [glamorous words](https://lifestyle.allwomenstalk.com/classy-words-to-use-to-sound-like-a-lady/)
 - [frases de falta de respeto](https://lifestyle.allwomenstalk.com/disrespectful-phrases-to-stop-using-to-be-more-likable/)
-- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
+- [glamorous words](https://lifestyle.allwomenstalk.com/classy-words-to-use-to-sound-like-a-lady/)
+- [invented words by shakespeare](https://lifestyle.allwomenstalk.com/words-invented-by-shakespeare-we-still-use-today/)
 - [oscar wilde insults](https://books.allwomenstalk.com/best-literary-insults-to-steal/)
 - [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
-- [invented words by shakespeare](https://lifestyle.allwomenstalk.com/words-invented-by-shakespeare-we-still-use-today/)
+- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
+- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
+- [is conversate a real word](https://lifestyle.allwomenstalk.com/words-you-use-that-dont-actually-exist-in-dictionaries/)
+- [awesome practical jokes](https://funny.allwomenstalk.com/harmless-practical-jokes-to-play-on-your-pals/)
 - [kissing humor](https://funny.allwomenstalk.com/cute-jokes-about-kissing/)
 - [7 Shrewdly Clever Reasons to Avoid a Dating Type ....](https://love.allwomenstalk.com/shrewdly-clever-reasons-to-avoid-a-dating-type/)
 - [10 Ways to Avoid Awkward Moments on a First Date ....](https://allwomenstalk.com/10-ways-to-avoid-awkward-moments-on-a-first-date/)

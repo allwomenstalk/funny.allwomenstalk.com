@@ -68,16 +68,16 @@ Well, there you have it! These are just seven out of MANY hilarious Leslie Knope
 
 ## Related Posts
 
+- [love quotes from classic literature](https://books.allwomenstalk.com/incredible-quotes-from-classic-novels/)
+- [quotes on alaska](https://books.allwomenstalk.com/brilliant-quotes-from-looking-for-alaska/)
+- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
 - [its our choices harry potter quotes](https://books.allwomenstalk.com/uplifting-quotes-from-the-harry-potter-series/)
-- [the fault in our stars book quotes](https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/)
-- [greys anatomy motivational quotes](https://inspiration.allwomenstalk.com/profoundly-relatable-and-inspiring-quotes-from-greys-anatomy/)
 - [socrates quotes on youth](https://inspiration.allwomenstalk.com/wise-words-from-socrates-that-ring-true-even-today/)
 - [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
 - [what is thomas jeffersons famous quote](https://inspiration.allwomenstalk.com/quotes-from-thomas-jefferson-that-we-can-still-learn-from/)
+- [the fault in our stars book quotes](https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/)
+- [greys anatomy motivational quotes](https://inspiration.allwomenstalk.com/profoundly-relatable-and-inspiring-quotes-from-greys-anatomy/)
 - [princess diana quotes kindness](https://inspiration.allwomenstalk.com/inspiring-and-uplifting-quotes-by-princess-diana/)
-- [quotes on alaska](https://books.allwomenstalk.com/brilliant-quotes-from-looking-for-alaska/)
-- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
-- [love quotes from classic literature](https://books.allwomenstalk.com/incredible-quotes-from-classic-novels/)
 - [9 Celebrities That Make Me Laugh ...](https://7fun.net/9-celebrities-that-make-me-laugh/)
 - [9 of the Best Ellen DeGeneres Quotes That Are Tota...](https://inspiration.allwomenstalk.com/of-the-best-ellen-degeneres-quotes-that-are-totally-inspirational/)
 

@@ -42,16 +42,16 @@ Never give out your number to someone you don't want contacting you. You're in c
 
 ## Related Posts
 
-- [how to get your boyfriend in the mood](https://love.allwomenstalk.com/ways-to-tell-him-youre-in-the-mood-without-saying-a-word/)
-- [he didnt touch me on first date](https://love.allwomenstalk.com/important-things-you-can-tell-about-a-man-on-the-first-date/)
-- [flaws in a guy](https://love.allwomenstalk.com/tips-to-help-you-overlook-your-guys-flaws/)
-- [boyfriend pandora mens rings](https://wedding.allwomenstalk.com/hints-to-give-your-boyfriend-about-the-engagement-ring-you-want/)
-- [how to flirt properly](https://love.allwomenstalk.com/ways-to-be-a-great-flirt/)
-- [when a guy wants to show you off](https://love.allwomenstalk.com/ways-a-proud-boyfriend-will-show-you-off/)
 - [caring gestures](https://love.allwomenstalk.com/sweet-gestures-to-make-that-show-him-you-care/)
+- [when a guy wants to show you off](https://love.allwomenstalk.com/ways-a-proud-boyfriend-will-show-you-off/)
 - [i will tell him how i feel](https://love.allwomenstalk.com/reasons-to-just-tell-him-how-you-feel/)
-- [look for a boyfriend](https://teen.allwomenstalk.com/places-teens-can-look-for-boyfriends/)
+- [boyfriend pandora mens rings](https://wedding.allwomenstalk.com/hints-to-give-your-boyfriend-about-the-engagement-ring-you-want/)
 - [how to turn on a boyfriend](https://love.allwomenstalk.com/ways-to-turn-your-boyfriend-into-a-fiance/)
+- [how to get your boyfriend in the mood](https://love.allwomenstalk.com/ways-to-tell-him-youre-in-the-mood-without-saying-a-word/)
+- [flaws in a guy](https://love.allwomenstalk.com/tips-to-help-you-overlook-your-guys-flaws/)
+- [how to flirt properly](https://love.allwomenstalk.com/ways-to-be-a-great-flirt/)
+- [look for a boyfriend](https://teen.allwomenstalk.com/places-teens-can-look-for-boyfriends/)
+- [he didnt touch me on first date](https://love.allwomenstalk.com/important-things-you-can-tell-about-a-man-on-the-first-date/)
 - [7 Ways to Know a Guy Likes You ...](https://allwomenstalk.com/7-ways-to-know-a-guy-likes-you/)
 - [7 Ways to Know Hes Not into You ...](https://allwomenstalk.com/7-ways-to-know-hes-not-into-you/)
 

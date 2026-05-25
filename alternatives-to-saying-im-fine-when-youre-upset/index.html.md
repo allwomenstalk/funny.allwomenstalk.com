@@ -117,15 +117,15 @@ If you use these alternatives, he'll miss the days when you told him you were fi
 ## Related Posts
 
 - [ways to be mindful](https://inspiration.allwomenstalk.com/ways-to-be-more-mindful-of-others/)
-- [how to leave your friend group](https://inspiration.allwomenstalk.com/ways-to-handle-a-friendship-thats-falling-apart/)
-- [when your kindness is not killing anybody](https://lifestyle.allwomenstalk.com/reasons-you-should-always-kill-them-with-kindness/)
-- [shutting people out](https://lifestyle.allwomenstalk.com/ways-youre-accidentally-shutting-others-out/)
-- [if you dont want to](https://love.allwomenstalk.com/things-to-say-when-you-dont-want-the-convo-to-end/)
-- [forgetting your name](https://lifestyle.allwomenstalk.com/ways-to-cover-up-youve-forgotten-someones-name/)
 - [how to overcome haters](https://inspiration.allwomenstalk.com/how-to-deal-with-your-haters-without-having-a-meltdown/)
+- [when your kindness is not killing anybody](https://lifestyle.allwomenstalk.com/reasons-you-should-always-kill-them-with-kindness/)
+- [how to leave your friend group](https://inspiration.allwomenstalk.com/ways-to-handle-a-friendship-thats-falling-apart/)
+- [revenge study motivation](https://lifestyle.allwomenstalk.com/how-to-maturely-use-revenge-as-a-motivational-tool/)
+- [shutting people out](https://lifestyle.allwomenstalk.com/ways-youre-accidentally-shutting-others-out/)
+- [forgetting your name](https://lifestyle.allwomenstalk.com/ways-to-cover-up-youve-forgotten-someones-name/)
+- [if you dont want to](https://love.allwomenstalk.com/things-to-say-when-you-dont-want-the-convo-to-end/)
 - [boring conversation](https://lifestyle.allwomenstalk.com/the-trick-to-escaping-a-terribly-boring-conversation/)
 - [why is everyone so negative](https://inspiration.allwomenstalk.com/how-to-stop-being-negative-to-everyone-around-you/)
-- [revenge study motivation](https://lifestyle.allwomenstalk.com/how-to-maturely-use-revenge-as-a-motivational-tool/)
 - [7 Ways to Cope when You Cant Get along with Someon...](https://allwomenstalk.com/7-ways-to-cope-when-you-cant-get-along-with-someone/)
 - [7 Ways to Deal with Emotional Abuse ...](https://allwomenstalk.com/ways-to-deal-with-emotional-abuse/)
 

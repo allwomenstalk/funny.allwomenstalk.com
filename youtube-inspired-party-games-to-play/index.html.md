@@ -42,16 +42,16 @@ It's time to grab your friends and have some fun! What's your favorite game to w
 
 ## Related Posts
 
-- [rotten apples cards against humanity](https://funny.allwomenstalk.com/fun-card-games-youve-never-played-before/)
-- [things to do alone when bored](https://lifestyle.allwomenstalk.com/fun-things-to-do-during-your-alone-time/)
-- [which of the following statements is not true abou...](https://books.allwomenstalk.com/heres-where-you-can-go-when-tired-of-the-internet/)
-- [banish boredom](https://lifestyle.allwomenstalk.com/how-to-banish-boredom-when-youre-alone/)
 - [just pearly things dad](https://lifestyle.allwomenstalk.com/i-love-you-dad-activities-for-fathers-day/)
-- [monday.com hacks](https://lifestyle.allwomenstalk.com/hack-your-sunday-for-a-better-week/)
+- [snorkeling aesthetic](https://travel.allwomenstalk.com/vacation-activities-that-are-fun-and-keep-you-fit/)
 - [activities to do alone](https://lifestyle.allwomenstalk.com/inspirational-activities-to-do-solo-this-weekend/)
 - [best movie dates](https://movies.allwomenstalk.com/best-dates-in-the-movies/)
-- [snorkeling aesthetic](https://travel.allwomenstalk.com/vacation-activities-that-are-fun-and-keep-you-fit/)
+- [things to do alone when bored](https://lifestyle.allwomenstalk.com/fun-things-to-do-during-your-alone-time/)
 - [never have i ever questions girls night](https://funny.allwomenstalk.com/the-best-never-have-i-ever-game-questions/)
+- [banish boredom](https://lifestyle.allwomenstalk.com/how-to-banish-boredom-when-youre-alone/)
+- [rotten apples cards against humanity](https://funny.allwomenstalk.com/fun-card-games-youve-never-played-before/)
+- [monday.com hacks](https://lifestyle.allwomenstalk.com/hack-your-sunday-for-a-better-week/)
+- [which of the following statements is not true abou...](https://books.allwomenstalk.com/heres-where-you-can-go-when-tired-of-the-internet/)
 - [10 Awesome Halloween Party Ideas ...](https://lifestyle.allwomenstalk.com/awesome-halloween-party-ideas/)
 - [9 Ways to Throw an Awesome Holiday Party ...](https://lifestyle.allwomenstalk.com/ways-to-throw-an-awesome-holiday-party/)
 

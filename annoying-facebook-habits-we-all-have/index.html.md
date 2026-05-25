@@ -80,15 +80,15 @@ Like I said before, post what you want, when you want. These are just a few thin
 
 ## Related Posts
 
-- [just hanging out at home](https://lifestyle.allwomenstalk.com/ways-to-hang-out-by-yourself/)
-- [the holiday season is a perfect time to reflect](https://inspiration.allwomenstalk.com/important-things-to-reflect-upon-during-the-holiday-season/)
-- [candid naturists](https://health.allwomenstalk.com/things-we-can-learn-from-naturists/)
-- [native language effect](https://lifestyle.allwomenstalk.com/surprising-ways-your-native-language-can-affect-your-life/)
-- [youre not a bad person its just a bad world](https://inspiration.allwomenstalk.com/bad-things-that-dont-make-you-a-bad-person/)
-- [signs of a materialistic woman](https://money.allwomenstalk.com/costly-consequences-of-a-materialistic-mindset/)
+- [taylor swift philosophy in life](https://inspiration.allwomenstalk.com/inspirational-things-taylor-swift-has-taught-us/)
 - [real and fake friends](https://lifestyle.allwomenstalk.com/major-differences-between-real-friends-and-fake-friends/)
 - [is family more important than work](https://lifestyle.allwomenstalk.com/things-that-are-more-important-than-work/)
-- [taylor swift philosophy in life](https://inspiration.allwomenstalk.com/inspirational-things-taylor-swift-has-taught-us/)
+- [the holiday season is a perfect time to reflect](https://inspiration.allwomenstalk.com/important-things-to-reflect-upon-during-the-holiday-season/)
+- [signs of a materialistic woman](https://money.allwomenstalk.com/costly-consequences-of-a-materialistic-mindset/)
+- [native language effect](https://lifestyle.allwomenstalk.com/surprising-ways-your-native-language-can-affect-your-life/)
+- [youre not a bad person its just a bad world](https://inspiration.allwomenstalk.com/bad-things-that-dont-make-you-a-bad-person/)
+- [just hanging out at home](https://lifestyle.allwomenstalk.com/ways-to-hang-out-by-yourself/)
+- [candid naturists](https://health.allwomenstalk.com/things-we-can-learn-from-naturists/)
 - [how to use enemies](https://inspiration.allwomenstalk.com/great-lessons-to-learn-from-your-enemies/)
 - [7 Things to Avoid Posting on Facebook during the H...](https://lifestyle.allwomenstalk.com/things-to-avoid-posting-on-facebook-during-the-holidays-that-you-will-regret-later/)
 - [12 Bad Habits You Should Break Right Now ...](https://allwomenstalk.com/12-bad-habits-you-should-break-right-now/)

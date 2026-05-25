@@ -56,16 +56,16 @@ Who are your favorite funny women on YouTube? Give me some people to check out i
 
 ## Related Posts
 
-- [turban trend](https://fashion.allwomenstalk.com/women-rocking-the-turban-trend/)
-- [marigay mckee powers](https://fashion.allwomenstalk.com/women-bosses-in-the-fashion-world-to-inspire-you/)
 - [ashley buzzfeed](https://apps.allwomenstalk.com/funny-women-on-twitter-you-should-be-following/)
+- [marigay mckee powers](https://fashion.allwomenstalk.com/women-bosses-in-the-fashion-world-to-inspire-you/)
 - [who played the womens parts in the theater](https://movies.allwomenstalk.com/crossdressing-female-roles-played-by-male-actors/)
+- [turban trend](https://fashion.allwomenstalk.com/women-rocking-the-turban-trend/)
+- [funny female empowerment quotes](https://funny.allwomenstalk.com/funny-quotes-from-female-comedians-about-womanhood/)
+- [loreal riche le stylo smoky endless pearl](https://music.allwomenstalk.com/bitch-in-business-all-about-that-bass-parody-is-all-about-girl-power/)
 - [inspirational fictional characters](https://inspiration.allwomenstalk.com/fictional-female-characters-to-gain-inspiration-from/)
 - [feminist zines](https://lifestyle.allwomenstalk.com/feminst-zines-you-need-to-check-out/)
-- [misconceptions about feminism](https://lifestyle.allwomenstalk.com/common-misconceptions-about-feminism/)
 - [levina teerlinc artwork](https://lifestyle.allwomenstalk.com/women-artists-who-deserve-more-acclaim/)
-- [loreal riche le stylo smoky endless pearl](https://music.allwomenstalk.com/bitch-in-business-all-about-that-bass-parody-is-all-about-girl-power/)
-- [funny female empowerment quotes](https://funny.allwomenstalk.com/funny-quotes-from-female-comedians-about-womanhood/)
+- [misconceptions about feminism](https://lifestyle.allwomenstalk.com/common-misconceptions-about-feminism/)
 - [Oh Those Simpson Sisters ...](https://allwomenstalk.com/oh-those-simpson-sisters/)
 - [QampA the Fug Girls ...](https://allwomenstalk.com/qampa-the-fug-girls/)
 

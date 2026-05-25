@@ -74,16 +74,16 @@ When you're with your friends, embarrassing yourself should be more fun than ter
 
 ## Related Posts
 
+- [oscar wilde insults](https://books.allwomenstalk.com/best-literary-insults-to-steal/)
 - [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
-- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
-- [frases de falta de respeto](https://lifestyle.allwomenstalk.com/disrespectful-phrases-to-stop-using-to-be-more-likable/)
 - [is conversate a real word](https://lifestyle.allwomenstalk.com/words-you-use-that-dont-actually-exist-in-dictionaries/)
 - [invented words by shakespeare](https://lifestyle.allwomenstalk.com/words-invented-by-shakespeare-we-still-use-today/)
-- [latin mottos and meanings](https://lifestyle.allwomenstalk.com/latin-phrases-thatll-make-you-sound-wise-beyond-your-years/)
+- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
 - [kissing humor](https://funny.allwomenstalk.com/cute-jokes-about-kissing/)
-- [awesome practical jokes](https://funny.allwomenstalk.com/harmless-practical-jokes-to-play-on-your-pals/)
 - [glamorous words](https://lifestyle.allwomenstalk.com/classy-words-to-use-to-sound-like-a-lady/)
-- [oscar wilde insults](https://books.allwomenstalk.com/best-literary-insults-to-steal/)
+- [frases de falta de respeto](https://lifestyle.allwomenstalk.com/disrespectful-phrases-to-stop-using-to-be-more-likable/)
+- [latin mottos and meanings](https://lifestyle.allwomenstalk.com/latin-phrases-thatll-make-you-sound-wise-beyond-your-years/)
+- [awesome practical jokes](https://funny.allwomenstalk.com/harmless-practical-jokes-to-play-on-your-pals/)
 - [7 Smart Answers to Silly and Irritating Questions ...](https://love.allwomenstalk.com/smart-answers-to-silly-and-irritating-questions/)
 - [5 Yellow Fun Things to Say Hello to...](https://allwomenstalk.com/5-yellow-fun-things-to-say-hello-to/)
 

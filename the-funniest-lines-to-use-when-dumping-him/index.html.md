@@ -117,15 +117,15 @@ You probably shouldn't use any of these on your boyfriend, unless you want to sh
 ## Related Posts
 
 - [site:allwomenstalk.com](https://funny.allwomenstalk.com/funny-comebacks-to-catcalls/)
-- [emoji pick up lines](https://funny.allwomenstalk.com/the-biggest-pick-up-line-failures/)
-- [psychology of a nosy person](https://funny.allwomenstalk.com/comebacks-for-all-of-the-nosy-people-in-your-life/)
-- [if you were a holiday youd be pick up line](https://love.allwomenstalk.com/pickup-lines-to-use-underneath-the-mistletoe/)
-- [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
-- [11 rules of grammar](https://lifestyle.allwomenstalk.com/grammar-rules-that-most-people-have-never-learned/)
 - [sign language russian](https://lifestyle.allwomenstalk.com/sign-language-infographics-thatll-make-you-smarter/)
-- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
-- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
+- [11 rules of grammar](https://lifestyle.allwomenstalk.com/grammar-rules-that-most-people-have-never-learned/)
+- [emoji pick up lines](https://funny.allwomenstalk.com/the-biggest-pick-up-line-failures/)
 - [recent additions to the dictionary](https://lifestyle.allwomenstalk.com/a-few-new-words-being-added-to-the-dictionary/)
+- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
+- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
+- [if you were a holiday youd be pick up line](https://love.allwomenstalk.com/pickup-lines-to-use-underneath-the-mistletoe/)
+- [psychology of a nosy person](https://funny.allwomenstalk.com/comebacks-for-all-of-the-nosy-people-in-your-life/)
+- [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
 - [7 Ideas on How to Dump a Guy Nicely ...](https://allwomenstalk.com/7-ideas-on-how-to-dump-a-guy-nicely/)
 - [15 Sweet Things to Say to Your Boyfriend ...](https://allwomenstalk.com/8-sweet-things-to-say-to-your-boyfriend/)
 

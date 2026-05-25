@@ -56,16 +56,16 @@ Don't throw out your old board games before you play them again a few times. You
 
 ## Related Posts
 
-- [christmas is better with friends](https://lifestyle.allwomenstalk.com/fun-ways-to-celebrate-christmas-with-your-friends/)
-- [friendship theme party ideas](https://lifestyle.allwomenstalk.com/fab-tips-for-organizing-a-theme-party-for-friends/)
 - [games to play when snowed in](https://lifestyle.allwomenstalk.com/card-and-board-games-to-play-on-your-next-snow-day/)
-- [non traditional ways to celebrate thanksgiving](https://lifestyle.allwomenstalk.com/ways-to-celebrate-thanksgiving/)
-- [auld lang syne lyrics printable](https://lifestyle.allwomenstalk.com/hark-how-to-celebrate-new-years-eve-with-a-real-bang/)
-- [amazingpartys](https://lifestyle.allwomenstalk.com/simplest-steps-ever-to-an-amazing-party/)
-- [thanksgiving family fun](https://lifestyle.allwomenstalk.com/lovely-family-activities-for-thanksgiving-day/)
 - [fun things to do in december](https://lifestyle.allwomenstalk.com/things-to-do-in-december/)
-- [gift basket for house guest](https://lifestyle.allwomenstalk.com/nice-things-to-do-for-holiday-house-guests/)
 - [last minute thanksgiving gifts](https://lifestyle.allwomenstalk.com/fun-ways-to-celebrate-thanksgiving-last-minute/)
+- [non traditional ways to celebrate thanksgiving](https://lifestyle.allwomenstalk.com/ways-to-celebrate-thanksgiving/)
+- [christmas is better with friends](https://lifestyle.allwomenstalk.com/fun-ways-to-celebrate-christmas-with-your-friends/)
+- [auld lang syne lyrics printable](https://lifestyle.allwomenstalk.com/hark-how-to-celebrate-new-years-eve-with-a-real-bang/)
+- [friendship theme party ideas](https://lifestyle.allwomenstalk.com/fab-tips-for-organizing-a-theme-party-for-friends/)
+- [gift basket for house guest](https://lifestyle.allwomenstalk.com/nice-things-to-do-for-holiday-house-guests/)
+- [thanksgiving family fun](https://lifestyle.allwomenstalk.com/lovely-family-activities-for-thanksgiving-day/)
+- [amazingpartys](https://lifestyle.allwomenstalk.com/simplest-steps-ever-to-an-amazing-party/)
 - [7 Ways to Make Camping More Fun ...](https://travel.allwomenstalk.com/7-ways-to-make-camping-more-fun/)
 - [7 Ways to Show Your Creativity ...](https://allwomenstalk.com/7-ways-to-show-your-creativity/)
 

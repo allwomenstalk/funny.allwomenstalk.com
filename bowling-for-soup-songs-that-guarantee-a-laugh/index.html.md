@@ -56,15 +56,15 @@ Bowling for Soup is an awesome band with dozens of songs to brighten your day. W
 
 ## Related Posts
 
-- [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
-- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
-- [lady gaga love game video](https://music.allwomenstalk.com/best-lady-gaga-music-videos-that-we-absolutely-love/)
-- [music legends that are still alive](https://music.allwomenstalk.com/music-legends-you-can-still-see-in-concert-today/)
+- [blue ivy dancing](https://music.allwomenstalk.com/best-beyonce-music-videos-that-we-absolutely-love/)
 - [all punk bands](https://music.allwomenstalk.com/punk-bands-you-need-on-your-ipod/)
 - [is billy gibbons still alive](https://music.allwomenstalk.com/musical-artists-and-bands-who-changed-music-forever/)
 - [bands that sound like other bands](https://music.allwomenstalk.com/amazing-sites-for-finding-new-bands/)
+- [are lana del rey concerts good](https://music.allwomenstalk.com/amazing-concerts-you-need-to-see-in-your-lifetime/)
+- [greatest blues guitarists of all time](https://music.allwomenstalk.com/blues-guitarists-you-must-hear/)
+- [music legends that are still alive](https://music.allwomenstalk.com/music-legends-you-can-still-see-in-concert-today/)
 - [funniest parody songs](https://music.allwomenstalk.com/funny-song-parodies-to-listen-to-when-you-need-a-good-laugh/)
-- [blue ivy dancing](https://music.allwomenstalk.com/best-beyonce-music-videos-that-we-absolutely-love/)
+- [lady gaga love game video](https://music.allwomenstalk.com/best-lady-gaga-music-videos-that-we-absolutely-love/)
 - [best relax song](https://music.allwomenstalk.com/cool-bands-to-listen-to-when-you-want-to-relax/)
 - [10 Funniest Songs Ever ...](https://allwomenstalk.com/10-funniest-songs-ever/)
 - [7 Great Country Songs ...](https://allwomenstalk.com/7-great-country-songs/)

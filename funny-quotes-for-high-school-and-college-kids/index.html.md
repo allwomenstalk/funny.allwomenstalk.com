@@ -68,16 +68,16 @@ No matter how horrible your classes are, you'll end up missing school once it's 
 
 ## Related Posts
 
-- [gone girl ebook](https://books.allwomenstalk.com/thought-provoking-quotes-from-gone-girl-about-life/)
-- [be different quotes](https://inspiration.allwomenstalk.com/fantastic-quotes-that-celebrate-being-unique/)
-- [phrases about missing someone](https://inspiration.allwomenstalk.com/calming-quotes-for-when-youre-missing-someone-special/)
+- [never forget your past](https://inspiration.allwomenstalk.com/inspirational-quotes-about-letting-go-of-the-past/)
+- [dont stress quotes funny](https://funny.allwomenstalk.com/silly-quotes-about-stress-that-will-calm-you-down/)
 - [accept where you are quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-about-learning-to-accept-yourself/)
 - [quotes about not forgiving someone](https://inspiration.allwomenstalk.com/quotes-about-forgiveness-when-its-not-easy-to-find/)
-- [after rejection quotes](https://teen.allwomenstalk.com/quotes-for-dealing-with-rejection-from-your-dream-school/)
-- [dont stress quotes funny](https://funny.allwomenstalk.com/silly-quotes-about-stress-that-will-calm-you-down/)
-- [never forget your past](https://inspiration.allwomenstalk.com/inspirational-quotes-about-letting-go-of-the-past/)
+- [be different quotes](https://inspiration.allwomenstalk.com/fantastic-quotes-that-celebrate-being-unique/)
 - [i am not single quotes](https://love.allwomenstalk.com/quotes-for-singles-when-you-need-faith-that-love-will-still-come/)
 - [blake lively quotes](https://celebs.allwomenstalk.com/awesome-quotes-from-blake-lively-you-need-to-read/)
+- [gone girl ebook](https://books.allwomenstalk.com/thought-provoking-quotes-from-gone-girl-about-life/)
+- [phrases about missing someone](https://inspiration.allwomenstalk.com/calming-quotes-for-when-youre-missing-someone-special/)
+- [after rejection quotes](https://teen.allwomenstalk.com/quotes-for-dealing-with-rejection-from-your-dream-school/)
 - [10 Funny Things That Children Say ...](https://allwomenstalk.com/10-funny-things-that-children-say/)
 - [7 Funny Jokes for Kids ...](https://allwomenstalk.com/7-funny-jokes-for-kids/)
 

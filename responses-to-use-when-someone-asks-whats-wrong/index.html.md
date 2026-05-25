@@ -116,16 +116,16 @@ Now you'll be able to put nosy people in their place. What do you usually say wh
 
 ## Related Posts
 
+- [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
+- [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
 - [symptoms of nomofobia](https://lifestyle.allwomenstalk.com/do-you-have-the-symptoms-of-nomophobia/)
-- [i trust my boyfriend](https://love.allwomenstalk.com/should-i-trust-my-boyfriend-around-my-friends/)
+- [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
+- [finger trampoline tattoo](https://beauty.allwomenstalk.com/questions-girls-thinking-of-getting-their-first-tattoo-should-ask-themselves/)
+- [cohost snao](https://apps.allwomenstalk.com/you-can-be-our-next-snapchat-co-host-see-how/)
 - [crying watching tv](https://movies.allwomenstalk.com/did-you-know-crying-during-movies-means-youre-a-stronger-person/)
+- [i trust my boyfriend](https://love.allwomenstalk.com/should-i-trust-my-boyfriend-around-my-friends/)
 - [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
 - [style quotes in english](https://fashion.allwomenstalk.com/what-does-your-fashion-style-say-about-you/)
-- [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
-- [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
-- [cohost snao](https://apps.allwomenstalk.com/you-can-be-our-next-snapchat-co-host-see-how/)
-- [finger trampoline tattoo](https://beauty.allwomenstalk.com/questions-girls-thinking-of-getting-their-first-tattoo-should-ask-themselves/)
-- [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
 - [7 of Womens Most Puzzling Behaviors Explained ...](https://love.allwomenstalk.com/of-womens-most-puzzling-behaviors-explained/)
 - [7 Things That Make Guys Upset ...](https://allwomenstalk.com/7-things-that-make-guys-upset/)
 

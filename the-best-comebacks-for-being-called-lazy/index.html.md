@@ -116,16 +116,16 @@ We're all capable of being lazy every once in a while, so don't worry about it. 
 
 ## Related Posts
 
-- [if you were a holiday youd be pick up line](https://love.allwomenstalk.com/pickup-lines-to-use-underneath-the-mistletoe/)
+- [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
+- [sign language russian](https://lifestyle.allwomenstalk.com/sign-language-infographics-thatll-make-you-smarter/)
 - [funniest roses are red poems](https://funny.allwomenstalk.com/the-funniest-lines-to-use-when-dumping-him/)
 - [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
 - [emoji pick up lines](https://funny.allwomenstalk.com/the-biggest-pick-up-line-failures/)
-- [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
 - [recent additions to the dictionary](https://lifestyle.allwomenstalk.com/a-few-new-words-being-added-to-the-dictionary/)
+- [if you were a holiday youd be pick up line](https://love.allwomenstalk.com/pickup-lines-to-use-underneath-the-mistletoe/)
 - [11 rules of grammar](https://lifestyle.allwomenstalk.com/grammar-rules-that-most-people-have-never-learned/)
 - [site:allwomenstalk.com](https://funny.allwomenstalk.com/funny-comebacks-to-catcalls/)
 - [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
-- [sign language russian](https://lifestyle.allwomenstalk.com/sign-language-infographics-thatll-make-you-smarter/)
 - [7 Popular Excuses for Calling into Work ...](https://allwomenstalk.com/7-popular-excuses-for-calling-into-work/)
 - [7 Fashionable Excuses for Being Late ...](https://fashion.allwomenstalk.com/fashionable-excuses-for-being-late/)
 

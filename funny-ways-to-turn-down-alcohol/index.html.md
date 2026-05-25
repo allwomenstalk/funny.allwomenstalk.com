@@ -42,16 +42,16 @@ You should never feel embarrassed about turning down drinks at a party. After al
 
 ## Related Posts
 
-- [dessert wine pairing chart](https://food.allwomenstalk.com/wine-hacks-to-help-you-get-your-drink-on/)
 - [good fruit smoothie combinations](https://food.allwomenstalk.com/clever-smoothie-combos-youve-never-tasted/)
 - [starbugs menu](https://food.allwomenstalk.com/the-secret-starbucks-holiday-menu/)
-- [pumpkin menu starbucks](https://food.allwomenstalk.com/pumpkin-spice-menu-items-from-starbucks/)
-- [whats the best flavored water](https://food.allwomenstalk.com/the-healthiest-fruits-for-creating-flavored-water/)
-- [ice tray hacks](https://food.allwomenstalk.com/ice-cube-tray-hacks-you-have-to-try/)
-- [cocktails fire](https://food.allwomenstalk.com/cocktails-that-are-perfect-for-drinking-by-the-fire/)
 - [soda substitutes](https://food.allwomenstalk.com/alternatives-to-soda-with-far-fewer-calories/)
-- [marshmallow flask](https://food.allwomenstalk.com/marshmallow-drinks-to-sip-on-this-season/)
+- [dessert wine pairing chart](https://food.allwomenstalk.com/wine-hacks-to-help-you-get-your-drink-on/)
+- [cocktails fire](https://food.allwomenstalk.com/cocktails-that-are-perfect-for-drinking-by-the-fire/)
+- [ice tray hacks](https://food.allwomenstalk.com/ice-cube-tray-hacks-you-have-to-try/)
 - [healthiest thing to drink in the morning](https://food.allwomenstalk.com/start-your-day-with-these-healthy-breakfast-drinks/)
+- [whats the best flavored water](https://food.allwomenstalk.com/the-healthiest-fruits-for-creating-flavored-water/)
+- [pumpkin menu starbucks](https://food.allwomenstalk.com/pumpkin-spice-menu-items-from-starbucks/)
+- [marshmallow flask](https://food.allwomenstalk.com/marshmallow-drinks-to-sip-on-this-season/)
 - [7 Positive Tips to Avoid Peer Pressure ...](https://lifestyle.allwomenstalk.com/positive-tips-to-avoid-peer-pressure/)
 - [7 Sure Ways to Have Fun without Drinking ...](https://allwomenstalk.com/8-sure-ways-to-have-fun-without-drinking/)
 

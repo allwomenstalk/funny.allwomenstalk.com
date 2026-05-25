@@ -266,15 +266,15 @@ If you can't bear the thought of pulling on an ugly sweater for the holidays, ev
 
 ## Related Posts
 
-- [what to do when someone gives you a gift you dont ...](https://inspiration.allwomenstalk.com/things-to-do-with-a-christmas-gift-you-dont-want/)
-- [gift wrapping tutorials](https://diy.allwomenstalk.com/fabulous-gift-wrapping-tutorials-for-the-holidays/)
-- [7 Great Gifts for Soon-to-be Grads ...](https://gifts.allwomenstalk.com/great-gifts-for-soon-to-be-grads/)
 - [Holiday Gift Guide: 7 Cute Texting Gloves for Tech...](https://fashion.allwomenstalk.com/holiday-gift-guide-cute-texting-gloves-for-tech-lovers/)
-- [gift ideas for little girls](https://lifestyle.allwomenstalk.com/gift-ideas-for-little-girls/)
-- [le shadow and brilliant](https://parenting.allwomenstalk.com/awesome-gift-ideas-for-a-new-baby/)
-- [15 Pairs of Christmas Socks to Make You Smile ...](https://fashion.allwomenstalk.com/pairs-of-christmas-socks-to-make-you-smile/)
 - [The Lowdown: How to Return Christmas Gifts ...](https://money.allwomenstalk.com/the-lowdown-how-to-return-christmas-gifts/)
+- [gift ideas for little girls](https://lifestyle.allwomenstalk.com/gift-ideas-for-little-girls/)
+- [what to do when someone gives you a gift you dont ...](https://inspiration.allwomenstalk.com/things-to-do-with-a-christmas-gift-you-dont-want/)
 - [15 Holiday Gifts for Your Boyfriend ...](https://love.allwomenstalk.com/holiday-gifts-for-your-boyfriend/)
+- [15 Pairs of Christmas Socks to Make You Smile ...](https://fashion.allwomenstalk.com/pairs-of-christmas-socks-to-make-you-smile/)
+- [le shadow and brilliant](https://parenting.allwomenstalk.com/awesome-gift-ideas-for-a-new-baby/)
+- [7 Great Gifts for Soon-to-be Grads ...](https://gifts.allwomenstalk.com/great-gifts-for-soon-to-be-grads/)
+- [gift wrapping tutorials](https://diy.allwomenstalk.com/fabulous-gift-wrapping-tutorials-for-the-holidays/)
 - [gift for grandparents that have everything](https://lifestyle.allwomenstalk.com/christmas-gift-ideas-for-grandparents-that-theyll-really-love/)
 - [I Love That T-Shirt ...](https://allwomenstalk.com/i-love-that-t-shirt/)
 - [12 Days of Christmas with 365Hangers ...](https://fashion.allwomenstalk.com/days-of-christmas-with-365hangers/)

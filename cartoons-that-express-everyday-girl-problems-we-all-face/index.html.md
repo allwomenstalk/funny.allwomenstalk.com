@@ -117,15 +117,15 @@ To see more of Cassandra's work -- she's so funny! -- follow her on Instagram at
 ## Related Posts
 
 - [mr strong hand](https://love.allwomenstalk.com/the-remarkable-things-strong-women-do-while-waiting-for-mr-right/)
-- [douche game](https://love.allwomenstalk.com/game-changers-for-girls-who-want-to-stop-dating-douche-bags/)
-- [vision board inspo](https://love.allwomenstalk.com/relationshipgoals-inspo-every-woman-can-put-on-her-vision-board/)
-- [simple kiss](https://love.allwomenstalk.com/complete-step-by-step-guide-to-a-perfect-first-kiss-for-girls-who-are-feeling-nervous/)
-- [comics about anxiety](https://funny.allwomenstalk.com/girls-with-anxiety-can-appreciate-and-relate-to-these-comic-strips/)
-- [hidden snapchat features](https://apps.allwomenstalk.com/hidden-features-of-snapchat-every-girl-must-know/)
-- [turning friend into girlfriend](https://love.allwomenstalk.com/girls-guide-to-getting-out-of-the-friend-zone-and-into-girlfriend-territory/)
 - [pimples in weird places](https://skincare.allwomenstalk.com/strangest-places-where-girls-are-getting-pimples-and-ways-to-deal/)
+- [douche game](https://love.allwomenstalk.com/game-changers-for-girls-who-want-to-stop-dating-douche-bags/)
+- [turning friend into girlfriend](https://love.allwomenstalk.com/girls-guide-to-getting-out-of-the-friend-zone-and-into-girlfriend-territory/)
+- [hidden snapchat features](https://apps.allwomenstalk.com/hidden-features-of-snapchat-every-girl-must-know/)
+- [comics about anxiety](https://funny.allwomenstalk.com/girls-with-anxiety-can-appreciate-and-relate-to-these-comic-strips/)
 - [emotional detox quotes](https://inspiration.allwomenstalk.com/ways-to-detoxyour-junk-emotions-for-girls-who-feel-out-of-control/)
 - [candace cabrera tavino](https://fitness.allwomenstalk.com/genius-yoga-stretches-for-girls-who-need-to-boost-their-creativity/)
+- [vision board inspo](https://love.allwomenstalk.com/relationshipgoals-inspo-every-woman-can-put-on-her-vision-board/)
+- [simple kiss](https://love.allwomenstalk.com/complete-step-by-step-guide-to-a-perfect-first-kiss-for-girls-who-are-feeling-nervous/)
 - [Breast Memes That Sum up Common Problems Busty Gir...](https://lifestyle.allwomenstalk.com/common-problems-busty-girls-have/)
 - [Need a Giggle These Adorable Cartoons Can Help](https://funny.allwomenstalk.com/need-a-giggle-these-adorable-cartoons-can-help/)
 

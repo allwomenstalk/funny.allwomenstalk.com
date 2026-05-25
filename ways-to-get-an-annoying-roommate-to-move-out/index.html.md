@@ -42,16 +42,16 @@ Sadly, you can't really try any of these tactics. However annoying your roommate
 
 ## Related Posts
 
-- [how to buy a mattress pad](https://lifestyle.allwomenstalk.com/things-to-consider-when-buying-a-mattress-pad/)
-- [any ideas are welcome](https://diy.allwomenstalk.com/touching-ideas-for-a-welcome-home-party/)
 - [rent my space for storage](https://money.allwomenstalk.com/ways-to-make-money-from-your-spare-room/)
-- [burglarizing meaning](https://money.allwomenstalk.com/tips-on-how-to-prevent-your-home-from-being-burglarized/)
 - [looking for a tradesman](https://lifestyle.allwomenstalk.com/ways-to-find-a-reliable-tradesman/)
-- [how to get your husband to help around the house](https://lifestyle.allwomenstalk.com/tips-on-how-to-get-your-partner-to-help-around-the-house/)
-- [advantages of a roommate](https://money.allwomenstalk.com/of-the-best-financial-benefits-of-having-a-roommate/)
-- [how big is a mini mansion](https://money.allwomenstalk.com/reasons-why-a-small-house-is-better-than-a-mini-mansion/)
+- [any ideas are welcome](https://diy.allwomenstalk.com/touching-ideas-for-a-welcome-home-party/)
 - [dorm mates](https://teen.allwomenstalk.com/quick-ways-to-become-friends-with-your-new-dormmates/)
+- [advantages of a roommate](https://money.allwomenstalk.com/of-the-best-financial-benefits-of-having-a-roommate/)
+- [how to buy a mattress pad](https://lifestyle.allwomenstalk.com/things-to-consider-when-buying-a-mattress-pad/)
+- [how to get your husband to help around the house](https://lifestyle.allwomenstalk.com/tips-on-how-to-get-your-partner-to-help-around-the-house/)
+- [how big is a mini mansion](https://money.allwomenstalk.com/reasons-why-a-small-house-is-better-than-a-mini-mansion/)
 - [returning home after living abroad](https://travel.allwomenstalk.com/tips-for-moving-back-home-after-living-abroad/)
+- [burglarizing meaning](https://money.allwomenstalk.com/tips-on-how-to-prevent-your-home-from-being-burglarized/)
 - [8 Ways to Cope with Irritating Neighbors ...](https://allwomenstalk.com/8-ways-to-cope-with-irritating-neighbors/)
 - [9 Ways to Deal with Annoying House Guests ...](https://allwomenstalk.com/9-ways-to-deal-with-annoying-house-guests/)
 

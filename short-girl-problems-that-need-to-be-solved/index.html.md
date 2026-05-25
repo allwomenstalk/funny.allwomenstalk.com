@@ -114,15 +114,15 @@ It's so not fair! Ride in a car with four or more friends, and guess who gets re
 
 ## Related Posts
 
-- [keep radiating positivity](https://inspiration.allwomenstalk.com/ways-to-radiate-positivity-for-insecure-girls/)
-- [keep him busy](https://inspiration.allwomenstalk.com/simple-ways-to-keep-busy-and-entertained-for-girls-who-are-always-bored/)
-- [ralph lauren singles day](https://lifestyle.allwomenstalk.com/things-successful-women-do-at-work-every-day/)
-- [can tall girls be cute](https://lifestyle.allwomenstalk.com/the-best-things-about-being-a-tall-girl/)
-- [coffee board scholarship](https://teen.allwomenstalk.com/college-scholarships-that-are-a-godsend/)
-- [ways to pamper your wife](https://beauty.allwomenstalk.com/ways-to-pamper-yourself-for-women-who-never-have-time/)
 - [depressed makeup look](https://inspiration.allwomenstalk.com/tips-for-those-who-are-not-depressed-but-feel-kinda-lost-in-life/)
-- [is being bossy a bad thing](https://lifestyle.allwomenstalk.com/this-is-why-its-better-to-be-a-bossy-girl/)
 - [women classic style](https://fashion.allwomenstalk.com/dont-make-these-style-mistakes-if-youre-a-petite-woman/)
+- [keep him busy](https://inspiration.allwomenstalk.com/simple-ways-to-keep-busy-and-entertained-for-girls-who-are-always-bored/)
+- [keep radiating positivity](https://inspiration.allwomenstalk.com/ways-to-radiate-positivity-for-insecure-girls/)
+- [coffee board scholarship](https://teen.allwomenstalk.com/college-scholarships-that-are-a-godsend/)
+- [can tall girls be cute](https://lifestyle.allwomenstalk.com/the-best-things-about-being-a-tall-girl/)
+- [ways to pamper your wife](https://beauty.allwomenstalk.com/ways-to-pamper-yourself-for-women-who-never-have-time/)
+- [is being bossy a bad thing](https://lifestyle.allwomenstalk.com/this-is-why-its-better-to-be-a-bossy-girl/)
+- [ralph lauren singles day](https://lifestyle.allwomenstalk.com/things-successful-women-do-at-work-every-day/)
 - [its ok to be bigger than your partner](https://love.allwomenstalk.com/tips-for-tall-girls-who-are-bigger-than-their-boyfriends/)
 - [7 Shows That Relate to Any Girls Life ...](https://lifestyle.allwomenstalk.com/shows-that-relate-to-any-girls-life/)
 - [7 Common Female Problems That Girl Code Discusses ...](https://lifestyle.allwomenstalk.com/common-female-problems-that-girl-code-discusses/)

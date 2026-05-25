@@ -44,16 +44,16 @@ Pick-up lines aren't always useful, but they can be fun to use around your frien
 
 ## Related Posts
 
-- [pickup in french](https://funny.allwomenstalk.com/french-pick-up-lines-that-are-as-corny-as-they-are-romantic/)
+- [t shirts saying](https://fashion.allwomenstalk.com/hilarious-t-shirt-sayings-you-will-laugh-out-loud-at/)
+- [funny words like shenanigans](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
+- [good mean girl comebacks](https://funny.allwomenstalk.com/insults-you-should-steal-from-the-movie-mean-girls/)
 - [good break up lines](https://funny.allwomenstalk.com/funny-break-up-lines-to-use-on-someone-you-cant-stand/)
+- [jokes about piercings](https://funny.allwomenstalk.com/clever-jokes-only-literature-lovers-will-appreciate/)
 - [f1 pickup lines](https://funny.allwomenstalk.com/perfect-guardians-of-the-galaxy-pick-up-lines/)
 - [some e card](https://funny.allwomenstalk.com/hilariously-sassy-e-cards-that-we-cant-get-enough-of/)
 - [medieval words and phrases](https://funny.allwomenstalk.com/fancy-medieval-words-that-should-be-brought-back/)
-- [t shirts saying](https://fashion.allwomenstalk.com/hilarious-t-shirt-sayings-you-will-laugh-out-loud-at/)
-- [good mean girl comebacks](https://funny.allwomenstalk.com/insults-you-should-steal-from-the-movie-mean-girls/)
-- [funny words like shenanigans](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
+- [pickup in french](https://funny.allwomenstalk.com/french-pick-up-lines-that-are-as-corny-as-they-are-romantic/)
 - [is funner a word oxford dictionary](https://funny.allwomenstalk.com/new-words-that-shouldnt-be-in-the-dictionary/)
-- [jokes about piercings](https://funny.allwomenstalk.com/clever-jokes-only-literature-lovers-will-appreciate/)
 - [10 Worst Pick up Lines ...](https://allwomenstalk.com/10-worst-pick-up-lines/)
 - [7 Funny Jokes to Help You Smile ...](https://allwomenstalk.com/7-funny-jokes-to-help-you-smile/)
 

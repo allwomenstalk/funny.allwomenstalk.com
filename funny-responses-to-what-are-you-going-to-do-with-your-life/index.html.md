@@ -42,16 +42,16 @@ You're not obligated to tell others your plans for the future, if you even have 
 
 ## Related Posts
 
-- [wrong use of words](https://lifestyle.allwomenstalk.com/everyday-words-we-all-use-incorrectly/)
 - [whats a word you mispronounced one time](https://lifestyle.allwomenstalk.com/commonly-mispronounced-words-youve-been-saying-wrong/)
-- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
+- [wrong use of words](https://lifestyle.allwomenstalk.com/everyday-words-we-all-use-incorrectly/)
+- [words that used to be swear words](https://funny.allwomenstalk.com/ridiculous-words-that-used-to-be-considered-curses/)
+- [charmander pick up lines](https://funny.allwomenstalk.com/silly-pokemon-pick-up-lines/)
+- [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
+- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
 - [how to turn down a date](https://funny.allwomenstalk.com/funny-responses-to-use-when-turning-down-a-date/)
 - [is conversate a real word](https://lifestyle.allwomenstalk.com/words-you-use-that-dont-actually-exist-in-dictionaries/)
-- [charmander pick up lines](https://funny.allwomenstalk.com/silly-pokemon-pick-up-lines/)
-- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
-- [words that used to be swear words](https://funny.allwomenstalk.com/ridiculous-words-that-used-to-be-considered-curses/)
 - [how to reply to a compliment on instagram](https://funny.allwomenstalk.com/funny-responses-for-when-you-need-to-accept-a-compliment/)
-- [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
+- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
 - [7 Ways to Answer the Question Why Should We Hire Y...](https://lifestyle.allwomenstalk.com/ways-to-answer-the-question-why-should-we-hire-you/)
 - [7 Ways to Decide What You Want to Be when You Grow...](https://allwomenstalk.com/ways-to-decide-what-you-want-to-be-when-you-grow-up/)
 

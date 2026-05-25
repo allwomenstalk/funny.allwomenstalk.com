@@ -52,15 +52,15 @@ You don't have to be a heartbreaker in order to use these ridiculous pick up lin
 
 ## Related Posts
 
-- [gif for crush](https://funny.allwomenstalk.com/gifs-to-use-the-next-time-you-talk-to-your-crush/)
-- [tinder social experiment](https://lifestyle.allwomenstalk.com/social-experiment-changing-up-appearances-for-tinder-dates/)
-- [i dont know what to talk about with my boyfriend](https://love.allwomenstalk.com/things-to-do-when-you-and-your-boyfriend-are-not-talking/)
-- [typical boy things](https://lifestyle.allwomenstalk.com/typically-guy-things-you-should-know-how-to-do/)
 - [how to be a friend with a guy](https://love.allwomenstalk.com/tips-for-when-your-boyfriend-is-jealous-of-your-guy-friends/)
-- [i cant wait to see you response](https://love.allwomenstalk.com/text-messages-your-guy-would-love-to-receive-from-you/)
-- [ill brag about you to my friends](https://love.allwomenstalk.com/ways-hell-brag-about-you-to-his-friends/)
-- [boyfriend is busy with school](https://love.allwomenstalk.com/ways-to-make-time-for-him-during-a-busy-school-year/)
 - [questions to ask your best friends boyfriend](https://love.allwomenstalk.com/ways-to-respond-if-your-friends-boyfriend-hits-on-you/)
+- [gif for crush](https://funny.allwomenstalk.com/gifs-to-use-the-next-time-you-talk-to-your-crush/)
+- [typical boy things](https://lifestyle.allwomenstalk.com/typically-guy-things-you-should-know-how-to-do/)
+- [ill brag about you to my friends](https://love.allwomenstalk.com/ways-hell-brag-about-you-to-his-friends/)
+- [tinder social experiment](https://lifestyle.allwomenstalk.com/social-experiment-changing-up-appearances-for-tinder-dates/)
+- [i cant wait to see you response](https://love.allwomenstalk.com/text-messages-your-guy-would-love-to-receive-from-you/)
+- [i dont know what to talk about with my boyfriend](https://love.allwomenstalk.com/things-to-do-when-you-and-your-boyfriend-are-not-talking/)
+- [boyfriend is busy with school](https://love.allwomenstalk.com/ways-to-make-time-for-him-during-a-busy-school-year/)
 - [no one wants to be my friend](https://love.allwomenstalk.com/ways-to-handle-a-friend-wanting-to-date-you/)
 - [Flirty Texts for Him to Make His Day ...](https://love.allwomenstalk.com/text-flirting-ideas-to-try-today/)
 - [Rules of Flirting to Live by ...](https://allwomenstalk.com/rules-of-flirting/)

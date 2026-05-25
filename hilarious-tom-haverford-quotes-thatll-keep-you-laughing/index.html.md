@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of many of my personal favorit
 
 ## Related Posts
 
-- [who is dodinsky](https://teen.allwomenstalk.com/inspiring-quotes-for-high-school-seniors/)
-- [quotes about pen and paper](https://inspiration.allwomenstalk.com/best-quotes-about-writing-to-help-you-put-pen-to-paper/)
-- [the boy done good](https://funny.allwomenstalk.com/frequently-misquoted-sayings-youll-love-to-read/)
-- [noahs poem from the notebook](https://books.allwomenstalk.com/engrossing-quotes-from-the-notebook/)
 - [quotes about life for teens](https://teen.allwomenstalk.com/quotes-for-teens-with-big-dreams/)
+- [coco chanel - quotes fashion  facts](https://inspiration.allwomenstalk.com/fabulous-quotes-from-coco-chanel/)
+- [the boy done good](https://funny.allwomenstalk.com/frequently-misquoted-sayings-youll-love-to-read/)
+- [who is dodinsky](https://teen.allwomenstalk.com/inspiring-quotes-for-high-school-seniors/)
 - [7 heaven theme song](https://movies.allwomenstalk.com/awesome-life-quotes-from-7th-heaven/)
 - [olaf quotes from frozen](https://funny.allwomenstalk.com/frozen-quotes-to-use-in-your-everyday-life/)
 - [wayne dyer quotes on relationships](https://love.allwomenstalk.com/simple-quotes-about-the-language-of-love/)
+- [quotes about pen and paper](https://inspiration.allwomenstalk.com/best-quotes-about-writing-to-help-you-put-pen-to-paper/)
 - [i fell in love slowly and then all at once](https://inspiration.allwomenstalk.com/inspiring-quotes-from-john-green-that-youll-love/)
-- [coco chanel - quotes fashion  facts](https://inspiration.allwomenstalk.com/fabulous-quotes-from-coco-chanel/)
+- [noahs poem from the notebook](https://books.allwomenstalk.com/engrossing-quotes-from-the-notebook/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 - [7 Lame Jokes That Make Me Laugh ...](https://allwomenstalk.com/7-lame-jokes-that-make-me-laugh/)
 

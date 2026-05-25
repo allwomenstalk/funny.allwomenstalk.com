@@ -80,16 +80,16 @@ If only editors re-read their headlines before signing off the copy. These newsp
 
 ## Related Posts
 
-- [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
-- [lorelai gilmore nails](https://movies.allwomenstalk.com/of-the-most-touching-moments-on-gilmore-girls/)
-- [when the bad guy is actually talented](https://movies.allwomenstalk.com/bad-guys-we-love-even-though-we-shouldnt/)
-- [300 movie villain images](https://movies.allwomenstalk.com/of-the-most-ridiculous-movie-villains-ever/)
-- [sequels to gone with the wind](https://books.allwomenstalk.com/sequels-that-were-not-penned-by-the-authors-of-the-originals/)
-- [watch usa network online](https://movies.allwomenstalk.com/usa-network-tv-shows-to-watch/)
 - [most emotional modern family episodes](https://movies.allwomenstalk.com/incredibly-emotional-scenes-from-how-i-met-your-mother/)
+- [adam devine blink 182](https://movies.allwomenstalk.com/of-the-best-workaholics-moments/)
+- [watch usa network online](https://movies.allwomenstalk.com/usa-network-tv-shows-to-watch/)
 - [addictive series](https://movies.allwomenstalk.com/addictive-tv-shows-you-simply-must-check-out/)
 - [when someone you loved becomes a stranger](https://lifestyle.allwomenstalk.com/struggles-of-becoming-strangers-again/)
-- [adam devine blink 182](https://movies.allwomenstalk.com/of-the-best-workaholics-moments/)
+- [lorelai gilmore nails](https://movies.allwomenstalk.com/of-the-most-touching-moments-on-gilmore-girls/)
+- [when the bad guy is actually talented](https://movies.allwomenstalk.com/bad-guys-we-love-even-though-we-shouldnt/)
+- [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
+- [sequels to gone with the wind](https://books.allwomenstalk.com/sequels-that-were-not-penned-by-the-authors-of-the-originals/)
+- [300 movie villain images](https://movies.allwomenstalk.com/of-the-most-ridiculous-movie-villains-ever/)
 - [10 Little Known Facts about 911 ...](https://lifestyle.allwomenstalk.com/interesting-facts-about-911/)
 - [10 Favorite Quotes ...](https://allwomenstalk.com/10-favorite-quotes/)
 

@@ -58,16 +58,16 @@ Sometimes, the jokes that make you roll your eyes will also make you laugh. Do y
 
 ## Related Posts
 
-- [whats a word you mispronounced one time](https://lifestyle.allwomenstalk.com/commonly-mispronounced-words-youve-been-saying-wrong/)
-- [how to turn down a date](https://funny.allwomenstalk.com/funny-responses-to-use-when-turning-down-a-date/)
-- [words that used to be swear words](https://funny.allwomenstalk.com/ridiculous-words-that-used-to-be-considered-curses/)
-- [charmander pick up lines](https://funny.allwomenstalk.com/silly-pokemon-pick-up-lines/)
 - [wrong use of words](https://lifestyle.allwomenstalk.com/everyday-words-we-all-use-incorrectly/)
 - [where are you these days funny reply](https://funny.allwomenstalk.com/funny-responses-to-what-are-you-going-to-do-with-your-life/)
-- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
-- [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
 - [how to reply to a compliment on instagram](https://funny.allwomenstalk.com/funny-responses-for-when-you-need-to-accept-a-compliment/)
+- [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
 - [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
+- [charmander pick up lines](https://funny.allwomenstalk.com/silly-pokemon-pick-up-lines/)
+- [whats a word you mispronounced one time](https://lifestyle.allwomenstalk.com/commonly-mispronounced-words-youve-been-saying-wrong/)
+- [words that used to be swear words](https://funny.allwomenstalk.com/ridiculous-words-that-used-to-be-considered-curses/)
+- [how to turn down a date](https://funny.allwomenstalk.com/funny-responses-to-use-when-turning-down-a-date/)
+- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
 - [5 Things to Make You Laugh Today ...](https://allwomenstalk.com/5-things-to-make-you-laugh-today/)
 - [5 Silly Things to Make You Laugh...](https://allwomenstalk.com/5-silly-things-to-make-you-laugh/)
 

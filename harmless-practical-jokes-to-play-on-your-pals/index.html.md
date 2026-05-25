@@ -42,15 +42,15 @@ As long as you don't hurt anyone, there's nothing wrong with playing pranks ever
 
 ## Related Posts
 
-- [carcolepsy](https://funny.allwomenstalk.com/these-words-need-to-exist-starting-now/)
-- [words you didnt know existed](https://lifestyle.allwomenstalk.com/words-youve-always-needed-but-never-realized-existed/)
-- [latin mottos and meanings](https://lifestyle.allwomenstalk.com/latin-phrases-thatll-make-you-sound-wise-beyond-your-years/)
-- [trick.questions](https://funny.allwomenstalk.com/see-if-you-can-figure-out-these-trick-questions/)
 - [latein beleidigungen](https://funny.allwomenstalk.com/silly-latin-insults-you-need-to-learn/)
-- [dictionary word games online](https://health.allwomenstalk.com/keep-your-mind-active-with-these-unique-word-games-youve-never-heard-of/)
-- [what does it mean when a guy tells you good mornin...](https://love.allwomenstalk.com/what-men-mean-when-they-send-you-these-common-texts/)
+- [latin mottos and meanings](https://lifestyle.allwomenstalk.com/latin-phrases-thatll-make-you-sound-wise-beyond-your-years/)
 - [degradation kink phrases](https://lifestyle.allwomenstalk.com/degrading-sexist-phrases-that-everyone-should-stop-saying/)
+- [dictionary word games online](https://health.allwomenstalk.com/keep-your-mind-active-with-these-unique-word-games-youve-never-heard-of/)
+- [carcolepsy](https://funny.allwomenstalk.com/these-words-need-to-exist-starting-now/)
 - [awesome would you rather questions](https://funny.allwomenstalk.com/these-wild-would-you-rather-questions-will-stump-your-friends/)
+- [words you didnt know existed](https://lifestyle.allwomenstalk.com/words-youve-always-needed-but-never-realized-existed/)
+- [what does it mean when a guy tells you good mornin...](https://love.allwomenstalk.com/what-men-mean-when-they-send-you-these-common-texts/)
+- [trick.questions](https://funny.allwomenstalk.com/see-if-you-can-figure-out-these-trick-questions/)
 - [comebacks for glasses insults](https://lifestyle.allwomenstalk.com/classy-comebacks-thatll-help-you-stay-sophisticated/)
 - [5 Silly Things to Make You Laugh...](https://allwomenstalk.com/5-silly-things-to-make-you-laugh/)
 - [7 Funny Jokes to Help You Smile ...](https://allwomenstalk.com/7-funny-jokes-to-help-you-smile/)

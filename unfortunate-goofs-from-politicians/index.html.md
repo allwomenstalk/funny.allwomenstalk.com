@@ -43,15 +43,15 @@ Politicians just keep coming out with gaffes. What is your own favorite politica
 ## Related Posts
 
 - [Does Anyone Remember These TV Spin-Offs](https://movies.allwomenstalk.com/tv-spin-offs-you-probably-forgot-about/)
-- [7 Private Eyes in the Movies and on TV Who Get the...](https://movies.allwomenstalk.com/private-eyes-in-the-movies-and-on-tv-who-get-the-job-done/)
-- [2014s Top Guilty Pleasure Reality Shows ...](https://movies.allwomenstalk.com/reality-shows-worth-checking-out/)
-- [The US Remakes of These UK Hits Totally Flopped .....](https://7fun.net/british-shows-remade-for-the-us-which-flopped/)
-- [7 Awesome New Shows to Check out This Fall ...](https://movies.allwomenstalk.com/awesome-new-shows-to-check-out-this-fall/)
 - [The First Look at Holiday Broadway Musical Event: ...](https://movies.allwomenstalk.com/the-first-look-at-holiday-broadway-musical-event-peter-pan-live/)
 - [Mockingjay Final Trailer Released: BURN ...](https://movies.allwomenstalk.com/mockingjay-final-trailer-released-burn/)
 - [Whoa the Hunger Games is Set to Come to Life on St...](https://movies.allwomenstalk.com/whoa-the-hunger-games-is-set-to-come-to-life-on-stage/)
-- [Netflix Needs to Add These Shows Pronto ...](https://movies.allwomenstalk.com/awesome-tv-shows-netflix-needs-to-add-to-their-site/)
+- [7 Awesome New Shows to Check out This Fall ...](https://movies.allwomenstalk.com/awesome-new-shows-to-check-out-this-fall/)
 - [the most epic safety video ever made](https://travel.allwomenstalk.com/new-zealand-airline-releases-the-most-epic-safety-video-ever-made/)
+- [2014s Top Guilty Pleasure Reality Shows ...](https://movies.allwomenstalk.com/reality-shows-worth-checking-out/)
+- [7 Private Eyes in the Movies and on TV Who Get the...](https://movies.allwomenstalk.com/private-eyes-in-the-movies-and-on-tv-who-get-the-job-done/)
+- [The US Remakes of These UK Hits Totally Flopped .....](https://7fun.net/british-shows-remade-for-the-us-which-flopped/)
+- [Netflix Needs to Add These Shows Pronto ...](https://movies.allwomenstalk.com/awesome-tv-shows-netflix-needs-to-add-to-their-site/)
 - [7 Really Stupid Action Movies ...](https://movies.allwomenstalk.com/really-stupid-action-movies/)
 - [7 People Who Shouldnt Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
 

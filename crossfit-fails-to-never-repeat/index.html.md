@@ -82,16 +82,16 @@ Funny! So, which ones are your fave? Comment below!
 
 ## Related Posts
 
-- [prettiest body in the world](https://fitness.allwomenstalk.com/how-to-plan-your-days-to-create-a-better-body/)
-- [what to do before starting workout](https://fitness.allwomenstalk.com/things-to-do-before-you-start-working-out/)
-- [jennifer aniston diet and exercise](https://fitness.allwomenstalk.com/dont-sweat-it-make-it-easier-to-go-to-the-gym/)
-- [leggings that tone your legs](https://fitness.allwomenstalk.com/workouts-thatll-make-you-look-amazing-in-leggings/)
-- [yoga stunts for 2](https://fitness.allwomenstalk.com/yoga-poses-for-active-women-who-lift-weights/)
-- [standing grasshopper pose](https://fitness.allwomenstalk.com/poses-from-the-new-yoga-craze/)
-- [calories burned sitting on exercise ball](https://fitness.allwomenstalk.com/how-to-burn-calories-while-doing-business/)
 - [train insane undo](https://fitness.allwomenstalk.com/ways-to-train-insane-or-remain-the-same/)
 - [exercises to make neck thinner](https://fitness.allwomenstalk.com/workouts-to-slim-your-neck/)
+- [prettiest body in the world](https://fitness.allwomenstalk.com/how-to-plan-your-days-to-create-a-better-body/)
+- [calories burned sitting on exercise ball](https://fitness.allwomenstalk.com/how-to-burn-calories-while-doing-business/)
+- [yoga stunts for 2](https://fitness.allwomenstalk.com/yoga-poses-for-active-women-who-lift-weights/)
+- [what to do before starting workout](https://fitness.allwomenstalk.com/things-to-do-before-you-start-working-out/)
+- [jennifer aniston diet and exercise](https://fitness.allwomenstalk.com/dont-sweat-it-make-it-easier-to-go-to-the-gym/)
 - [how to break a sweat](https://fitness.allwomenstalk.com/why-you-shouldnt-be-afraid-to-break-a-sweat/)
+- [leggings that tone your legs](https://fitness.allwomenstalk.com/workouts-thatll-make-you-look-amazing-in-leggings/)
+- [standing grasshopper pose](https://fitness.allwomenstalk.com/poses-from-the-new-yoga-craze/)
 - [7 Core Strengthening Exercises ...](https://health.allwomenstalk.com/core-strengthening-exercises/)
 - [10 Most Common Work-out Mistakes ...](https://fitene.com/10-most-common-work-out-mistakes/)
 

@@ -60,16 +60,16 @@ This article was written in collaboration with editor Lisa Washington.
 
 ## Related Posts
 
-- [when the bad guy is actually talented](https://movies.allwomenstalk.com/bad-guys-we-love-even-though-we-shouldnt/)
 - [disney series movies](https://movies.allwomenstalk.com/disney-movie-spin-off-shows-i-loved-as-a-kid/)
-- [famous street magicians](https://celebs.allwomenstalk.com/best-magicians-who-will-boggle-your-mind/)
-- [what spider is the most poisonous](https://lifestyle.allwomenstalk.com/of-the-worlds-most-poisonous-spiders/)
-- [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
-- [crazy news headlines](https://funny.allwomenstalk.com/real-but-crazy-newspaper-headlines/)
-- [scrubs sad moments](https://movies.allwomenstalk.com/sad-moments-from-scrubs-that-left-me-in-tears/)
 - [pysch season 4](https://movies.allwomenstalk.com/best-pysch-episodes-that-we-can-watch-over-and-over/)
+- [what spider is the most poisonous](https://lifestyle.allwomenstalk.com/of-the-worlds-most-poisonous-spiders/)
+- [crazy news headlines](https://funny.allwomenstalk.com/real-but-crazy-newspaper-headlines/)
 - [when someone you loved becomes a stranger](https://lifestyle.allwomenstalk.com/struggles-of-becoming-strangers-again/)
+- [scrubs sad moments](https://movies.allwomenstalk.com/sad-moments-from-scrubs-that-left-me-in-tears/)
 - [what episode do serena and nate get together in se...](https://movies.allwomenstalk.com/memorable-gossip-girl-moments-i-will-never-get-over/)
+- [famous street magicians](https://celebs.allwomenstalk.com/best-magicians-who-will-boggle-your-mind/)
+- [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
+- [when the bad guy is actually talented](https://movies.allwomenstalk.com/bad-guys-we-love-even-though-we-shouldnt/)
 - [7 Shockingly True Crime Documentaries ...](https://movies.allwomenstalk.com/shockingly-true-crime-documentaries/)
 - [7 Weirdest Urban Legends ...](https://allwomenstalk.com/7-urban-legends/)
 

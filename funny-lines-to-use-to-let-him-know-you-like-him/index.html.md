@@ -50,16 +50,16 @@ It's time to be brave and try to turn your crush into your boyfriend. What's the
 
 ## Related Posts
 
-- [why is whispering attractive](https://love.allwomenstalk.com/facts-about-attraction-that-can-help-you-get-a-date/)
 - [how to get bf](https://love.allwomenstalk.com/things-you-should-always-ask-your-bf-for-permission-for/)
-- [when another woman flirts with your man](https://love.allwomenstalk.com/ways-to-handle-another-woman-flirting-with-your-man/)
-- [how to stop being shy and make friends](https://lifestyle.allwomenstalk.com/the-best-ways-to-bond-with-someone-really-shy/)
-- [how do you show you care](https://love.allwomenstalk.com/ways-to-show-your-man-you-truly-care/)
-- [how to let your boyfriend know you appreciate him](https://love.allwomenstalk.com/ways-to-show-your-man-you-appreciate-him/)
 - [common courtesies](https://love.allwomenstalk.com/common-courtesies-you-should-pay-your-boyfriend/)
 - [hug boyfriend game](https://love.allwomenstalk.com/how-to-make-your-first-boyfriend-an-experience-to-treasure/)
-- [things to say to him](https://love.allwomenstalk.com/how-to-make-sure-he-is-thinking-of-you/)
+- [how to stop being shy and make friends](https://lifestyle.allwomenstalk.com/the-best-ways-to-bond-with-someone-really-shy/)
 - [what to do instead of nagging](https://love.allwomenstalk.com/do-these-things-instead-of-nagging-your-man/)
+- [how do you show you care](https://love.allwomenstalk.com/ways-to-show-your-man-you-truly-care/)
+- [things to say to him](https://love.allwomenstalk.com/how-to-make-sure-he-is-thinking-of-you/)
+- [how to let your boyfriend know you appreciate him](https://love.allwomenstalk.com/ways-to-show-your-man-you-appreciate-him/)
+- [when another woman flirts with your man](https://love.allwomenstalk.com/ways-to-handle-another-woman-flirting-with-your-man/)
+- [why is whispering attractive](https://love.allwomenstalk.com/facts-about-attraction-that-can-help-you-get-a-date/)
 - [7 Ways to Show Subtly That You Are Available ...](https://love.allwomenstalk.com/ways-to-show-subtly-that-you-are-available/)
 - [9 Subtle Ways to Flirt with Men ...](https://love.allwomenstalk.com/subtle-ways-to-flirt-with-men/)
 

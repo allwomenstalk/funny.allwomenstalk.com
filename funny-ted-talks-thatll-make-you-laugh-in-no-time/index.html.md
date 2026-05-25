@@ -42,16 +42,16 @@ Laughter is the best medicine so I think it’s great to learn something while d
 
 ## Related Posts
 
-- [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
 - [gmaes to play when bored](https://funny.allwomenstalk.com/texting-games-to-play-when-youre-bored/)
-- [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
-- [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
-- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
-- [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
-- [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
-- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
-- [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
 - [dating customs around the world](https://love.allwomenstalk.com/funny-dating-customs-around-the-world/)
+- [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
+- [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
+- [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
+- [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
+- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
+- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
+- [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
+- [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
 - [7 Reasons to Laugh More ...](https://allwomenstalk.com/7-reasons-to-laugh-more/)
 - [7 Things That Make Me Laugh ...](https://allwomenstalk.com/7-things-that-make-me-laugh/)
 

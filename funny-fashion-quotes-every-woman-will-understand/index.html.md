@@ -58,16 +58,16 @@ Do you relate to any or all of these quotes?
 
 ## Related Posts
 
-- [create the highest grandest vision possible](https://inspiration.allwomenstalk.com/empowering-quotes-from-oprah-herself/)
 - [not feeling beautiful](https://beauty.allwomenstalk.com/this-short-story-will-make-you-feel-beautiful/)
-- [thankful thursday quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-thatll-help-you-stay-thankful/)
 - [quarter life crisis instagram captions](https://inspiration.allwomenstalk.com/quotes-to-help-you-survive-your-quarter-life-crisis/)
-- [small steps in right direction](https://inspiration.allwomenstalk.com/quotes-about-small-steps-that-will-inspire-your-personal-journey/)
-- [julia roberts personality type](https://inspiration.allwomenstalk.com/empowering-quotes-from-julia-roberts/)
-- [mirror lies quotes](https://beauty.allwomenstalk.com/kick-ass-quotes-about-body-image/)
+- [thankful thursday quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-thatll-help-you-stay-thankful/)
 - [quotes about overwork](https://parenting.allwomenstalk.com/encouraging-quotes-for-overworked-parents/)
-- [roald dahl famous quote](https://inspiration.allwomenstalk.com/quotes-from-roald-dahl-to-inspire-you-today/)
+- [julia roberts personality type](https://inspiration.allwomenstalk.com/empowering-quotes-from-julia-roberts/)
+- [create the highest grandest vision possible](https://inspiration.allwomenstalk.com/empowering-quotes-from-oprah-herself/)
+- [small steps in right direction](https://inspiration.allwomenstalk.com/quotes-about-small-steps-that-will-inspire-your-personal-journey/)
 - [being busy doesnt mean being productive quotes](https://inspiration.allwomenstalk.com/quotes-that-will-push-you-to-be-productive-today/)
+- [roald dahl famous quote](https://inspiration.allwomenstalk.com/quotes-from-roald-dahl-to-inspire-you-today/)
+- [mirror lies quotes](https://beauty.allwomenstalk.com/kick-ass-quotes-about-body-image/)
 - [9 Fashion Trends That Only Women Get ...](https://fashion.allwomenstalk.com/fashion-trends-that-only-women-get/)
 - [10 Best Fashion Blogs for Women ...](https://allwomenstalk.com/10-best-fashion-blogs-for-women/)
 

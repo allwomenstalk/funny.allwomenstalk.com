@@ -56,16 +56,16 @@ Being a woman is hard work, but it's worth it. I mean, we get to wear sparkling 
 
 ## Related Posts
 
-- [bro code](https://love.allwomenstalk.com/rules-of-girl-code/)
-- [how to be an attitude girl](https://inspiration.allwomenstalk.com/empowering-attitudes-every-girl-should-have/)
-- [proud tall girl quotes](https://inspiration.allwomenstalk.com/struggles-of-being-a-tall-girl/)
-- [things that are bold](https://inspiration.allwomenstalk.com/bold-things-every-woman-should-do-at-least-once/)
-- [girl gamer names generator](https://lifestyle.allwomenstalk.com/benefits-of-being-a-gamer-girl/)
-- [why friendsgiving](https://lifestyle.allwomenstalk.com/why-friendsgiving-is-way-better-than-thanksgiving/)
 - [but for girls](https://funny.allwomenstalk.com/sensational-research-all-girls-with-big-derriers-must-read-now/)
-- [new thanksgiving traditions](https://lifestyle.allwomenstalk.com/new-thanksgiving-family-traditions-to-start/)
+- [things that are bold](https://inspiration.allwomenstalk.com/bold-things-every-woman-should-do-at-least-once/)
+- [how to be an attitude girl](https://inspiration.allwomenstalk.com/empowering-attitudes-every-girl-should-have/)
+- [bro code](https://love.allwomenstalk.com/rules-of-girl-code/)
+- [why friendsgiving](https://lifestyle.allwomenstalk.com/why-friendsgiving-is-way-better-than-thanksgiving/)
 - [things people love about fall](https://lifestyle.allwomenstalk.com/things-us-girls-love-about-autumn/)
+- [proud tall girl quotes](https://inspiration.allwomenstalk.com/struggles-of-being-a-tall-girl/)
+- [new thanksgiving traditions](https://lifestyle.allwomenstalk.com/new-thanksgiving-family-traditions-to-start/)
 - [things we do once a week](https://inspiration.allwomenstalk.com/things-every-woman-should-do-at-least-once-a-week/)
+- [girl gamer names generator](https://lifestyle.allwomenstalk.com/benefits-of-being-a-gamer-girl/)
 - [7 Tips on How to Be a Lady ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-be-a-lady/)
 - [8 Things Men Dont Get about Women ...](https://allwomenstalk.com/8-things-men-dont-get-about-women/)
 

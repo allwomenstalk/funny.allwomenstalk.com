@@ -68,16 +68,16 @@ Now that you're pumped for a perfect summer, it's time to go out and party! What
 
 ## Related Posts
 
-- [sumsmash gif](https://funny.allwomenstalk.com/gifs-that-sum-up-summer/)
+- [best dip for chips](https://food.allwomenstalk.com/dip-and-chip-snacks-that-are-perfect-for-your-summer-party/)
+- [sunny pocket sandwich](https://food.allwomenstalk.com/lunches-to-bring-outside-on-a-sunny-day/)
+- [hyperhydrodis](https://beauty.allwomenstalk.com/tips-to-avoid-embarrassing-sweat-stains-this-summer/)
 - [backyard party foods](https://food.allwomenstalk.com/head-to-the-races-with-these-kentucky-derby-recipes/)
 - [krnen](https://travel.allwomenstalk.com/your-summer-is-riding-on-this-best-new-theme-park-rides-to-try-in/)
-- [hyperhydrodis](https://beauty.allwomenstalk.com/tips-to-avoid-embarrassing-sweat-stains-this-summer/)
-- [sunny pocket sandwich](https://food.allwomenstalk.com/lunches-to-bring-outside-on-a-sunny-day/)
-- [how to get rid of cheesy smell in shoes](https://shoes.allwomenstalk.com/how-do-you-keep-your-feet-smelling-sweet-in-summer/)
-- [best dip for chips](https://food.allwomenstalk.com/dip-and-chip-snacks-that-are-perfect-for-your-summer-party/)
-- [kiss on ferris wheel](https://love.allwomenstalk.com/summer-loving-the-most-seductive-kissing-spots-for-the-season/)
 - [apple salad lush](https://food.allwomenstalk.com/youll-probably-swoon-over-these-lush-summer-salads/)
+- [how to get rid of cheesy smell in shoes](https://shoes.allwomenstalk.com/how-do-you-keep-your-feet-smelling-sweet-in-summer/)
+- [kiss on ferris wheel](https://love.allwomenstalk.com/summer-loving-the-most-seductive-kissing-spots-for-the-season/)
 - [summer vacay](https://travel.allwomenstalk.com/taking-a-summer-vacay-how-to-start-prepping-now-so-you-arent-stressed-later/)
+- [sumsmash gif](https://funny.allwomenstalk.com/gifs-that-sum-up-summer/)
 - [8 Sexy Summer Perfumes Youll Love ...](https://allwomenstalk.com/8-sexy-summer-perfumes-youll-love/)
 - [9 Great Things about Summer ...](https://allwomenstalk.com/9-great-things-about-summer/)
 

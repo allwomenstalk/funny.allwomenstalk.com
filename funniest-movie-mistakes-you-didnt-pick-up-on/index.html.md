@@ -50,16 +50,16 @@ Finding out these movie bloopers was great fun, and it’s such a good excuse to
 
 ## Related Posts
 
-- [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
-- [challenging movies](https://movies.allwomenstalk.com/most-mentally-challenging-tv-shows-and-movies/)
+- [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
+- [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
+- [movies about d-day](https://movies.allwomenstalk.com/movies-about-d-day-6th-june/)
+- [international movies to watch](https://movies.allwomenstalk.com/reasons-to-watch-foreign-films/)
+- [movie the dragon](https://movies.allwomenstalk.com/best-talking-dragons-in-the-movies/)
 - [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
 - [best dads in movies](https://movies.allwomenstalk.com/greatest-movie-dads-that-you-cant-help-but-love/)
-- [international movies to watch](https://movies.allwomenstalk.com/reasons-to-watch-foreign-films/)
+- [challenging movies](https://movies.allwomenstalk.com/most-mentally-challenging-tv-shows-and-movies/)
 - [terrible movies that are fun to watch](https://funny.allwomenstalk.com/terrible-movies-that-you-have-to-watch/)
-- [movies about d-day](https://movies.allwomenstalk.com/movies-about-d-day-6th-june/)
-- [movie the dragon](https://movies.allwomenstalk.com/best-talking-dragons-in-the-movies/)
-- [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
-- [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
+- [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
 - [19 Common Misconceptions from Movies ...](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
 - [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
 

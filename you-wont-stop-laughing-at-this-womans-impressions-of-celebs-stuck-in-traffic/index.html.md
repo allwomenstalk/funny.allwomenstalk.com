@@ -14,16 +14,16 @@ What'd you think? Don't forget to follow her on Instagram to see her new ones!
 
 ## Related Posts
 
-- [Madonna Stuns in Interview Spread ...](https://celebs.allwomenstalk.com/madonna-stuns-in-interview-spread/)
-- [This Dad Was Challenged to a Hip-hop Dance Battle ...](https://funny.allwomenstalk.com/this-dad-was-challenged-to-a-hip-hop-dance-battle-by-his-daughter-who-won/)
-- [Pregnant Kourtney Kardashian Bares It All for Dujo...](https://celebs.allwomenstalk.com/pregnant-kourtney-kardashian-bares-it-all-for-dujour/)
-- [Lifetimes Whitney Houston Biopic Gets an Emotional...](https://movies.allwomenstalk.com/lifetimes-whitney-houston-biopic-gets-an-emotional-first-trailer/)
 - [Beyonc Reflects on Fame  Feminism in yours and Min...](https://celebs.allwomenstalk.com/beyonce-reflects-on-fame-feminism-in-yours-and-mine-short-film/)
-- [This Woman Perfectly Impersonates 25 Celebs While ...](https://funny.allwomenstalk.com/this-woman-perfectly-impersonates-celebs-while-spreading-christmas-cheer/)
 - [carrie underwood clothing](https://fashion.allwomenstalk.com/carrie-underwoods-launching-a-fitness-clothing-line-heres-your-first-look/)
-- [orange is the new black christmas song](https://music.allwomenstalk.com/orange-is-the-new-blacks-cast-gets-in-the-holiday-spirit-with-new-christmas-song/)
 - [Lets Have Some Love for Rene Zellweger ...](https://celebs.allwomenstalk.com/reasons-to-love-renee-zellweger/)
+- [Pregnant Kourtney Kardashian Bares It All for Dujo...](https://celebs.allwomenstalk.com/pregnant-kourtney-kardashian-bares-it-all-for-dujour/)
 - [victoria secret private jet](https://celebs.allwomenstalk.com/yup-this-is-how-the-victorias-secret-angels-fly-international/)
+- [Madonna Stuns in Interview Spread ...](https://celebs.allwomenstalk.com/madonna-stuns-in-interview-spread/)
+- [Lifetimes Whitney Houston Biopic Gets an Emotional...](https://movies.allwomenstalk.com/lifetimes-whitney-houston-biopic-gets-an-emotional-first-trailer/)
+- [This Woman Perfectly Impersonates 25 Celebs While ...](https://funny.allwomenstalk.com/this-woman-perfectly-impersonates-celebs-while-spreading-christmas-cheer/)
+- [This Dad Was Challenged to a Hip-hop Dance Battle ...](https://funny.allwomenstalk.com/this-dad-was-challenged-to-a-hip-hop-dance-battle-by-his-daughter-who-won/)
+- [orange is the new black christmas song](https://music.allwomenstalk.com/orange-is-the-new-blacks-cast-gets-in-the-holiday-spirit-with-new-christmas-song/)
 - [Celebrity Stalking at the Bob Hope Chrysler Classi...](https://allwomenstalk.com/celebrity-stalking-at-the-bob-hope-chrysler-classic/)
 - [Amy Winehouse Takes NYC by Storm](https://allwomenstalk.com/amy-winehouse-takes-nyc-by-storm/)
 

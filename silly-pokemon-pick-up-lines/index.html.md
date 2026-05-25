@@ -58,16 +58,16 @@ Pokemon will always hold a special place in our hearts, no matter how old we are
 
 ## Related Posts
 
+- [how to reply to a compliment on instagram](https://funny.allwomenstalk.com/funny-responses-for-when-you-need-to-accept-a-compliment/)
 - [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
+- [how to turn down a date](https://funny.allwomenstalk.com/funny-responses-to-use-when-turning-down-a-date/)
+- [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
+- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
 - [invented words by shakespeare](https://lifestyle.allwomenstalk.com/words-invented-by-shakespeare-we-still-use-today/)
 - [glamorous words](https://lifestyle.allwomenstalk.com/classy-words-to-use-to-sound-like-a-lady/)
-- [how to turn down a date](https://funny.allwomenstalk.com/funny-responses-to-use-when-turning-down-a-date/)
 - [is conversate a real word](https://lifestyle.allwomenstalk.com/words-you-use-that-dont-actually-exist-in-dictionaries/)
 - [kissing humor](https://funny.allwomenstalk.com/cute-jokes-about-kissing/)
-- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
-- [how to reply to a compliment on instagram](https://funny.allwomenstalk.com/funny-responses-for-when-you-need-to-accept-a-compliment/)
 - [oscar wilde insults](https://books.allwomenstalk.com/best-literary-insults-to-steal/)
-- [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
 - [11 Quirky Things Men Love about Women ...](https://lifestyle.allwomenstalk.com/quirky-things-men-love-about-women/)
 - [12 Best Tinder Openers to Use ...](https://allwomenstalk.com/12-best-pickup-lines/)
 

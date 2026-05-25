@@ -42,16 +42,16 @@ As Americans, we are amazing, unique people. With that, we also can be a little 
 
 ## Related Posts
 
-- [snl cajun man](https://movies.allwomenstalk.com/saturday-night-live-characters-we-miss/)
-- [underdogs girlfriend](https://movies.allwomenstalk.com/most-charming-underdogs-on-tv/)
-- [best sitcom finales](https://movies.allwomenstalk.com/series-finales-ranked-from-worst-to-best/)
-- [bloopers pitch perfect](https://funny.allwomenstalk.com/blooper-reels-to-watch-right-here-and-now/)
-- [what days is emmerdale on](https://movies.allwomenstalk.com/long-running-british-soap-operas/)
-- [neil patrick harris videos](https://funny.allwomenstalk.com/hysterical-neil-patrick-harris-videos-youll-love/)
 - [daniel howell shirtless](https://funny.allwomenstalk.com/funniest-dan-and-phil-videos-on-youtube/)
-- [michael che sister](https://movies.allwomenstalk.com/hilarious-sketch-comedy-shows-besides-snl/)
 - [dj roomba parks and rec](https://movies.allwomenstalk.com/parks-and-rec-characters-weve-all-identified-with/)
+- [neil patrick harris videos](https://funny.allwomenstalk.com/hysterical-neil-patrick-harris-videos-youll-love/)
+- [what days is emmerdale on](https://movies.allwomenstalk.com/long-running-british-soap-operas/)
 - [riche stylo sky](https://lifestyle.allwomenstalk.com/types-of-clouds-to-watch-when-gazing-at-the-sky/)
+- [underdogs girlfriend](https://movies.allwomenstalk.com/most-charming-underdogs-on-tv/)
+- [bloopers pitch perfect](https://funny.allwomenstalk.com/blooper-reels-to-watch-right-here-and-now/)
+- [best sitcom finales](https://movies.allwomenstalk.com/series-finales-ranked-from-worst-to-best/)
+- [michael che sister](https://movies.allwomenstalk.com/hilarious-sketch-comedy-shows-besides-snl/)
+- [snl cajun man](https://movies.allwomenstalk.com/saturday-night-live-characters-we-miss/)
 - [7 Weirdest Urban Legends ...](https://allwomenstalk.com/7-urban-legends/)
 - [8 Bizarre Outdated Laws ...](https://allwomenstalk.com/8-bizarre-outdated-laws/)
 

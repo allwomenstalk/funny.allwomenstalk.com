@@ -44,16 +44,16 @@ If I were a mermaid, I think my mermaid name would be Coral or something. Life w
 
 ## Related Posts
 
-- [alexz](https://celebs.allwomenstalk.com/cool-reasons-to-love-alexz-johnson/)
-- [jake johnson workout](https://celebs.allwomenstalk.com/awesome-reasons-to-love-jake-johnson/)
-- [phoebe tonkin skincare](https://celebs.allwomenstalk.com/awesome-reasons-to-love-phoebe-tonkin/)
-- [where to watch riot](https://movies.allwomenstalk.com/awesome-reasons-to-watch-riot-on-fox/)
-- [is twd a good show](https://movies.allwomenstalk.com/reasons-to-watch-the-walking-dead/)
-- [is dolly parton a nice person](https://celebs.allwomenstalk.com/surprising-reasons-to-admire-dolly-parton/)
-- [agents of shield first episode](https://movies.allwomenstalk.com/reasons-why-marvel-agents-of-shield-is-the-greatest-show/)
-- [why are vampires popular](https://movies.allwomenstalk.com/reasons-why-we-love-vampires/)
 - [chloe moretz smoking](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-chloe-moretz/)
+- [jake johnson workout](https://celebs.allwomenstalk.com/awesome-reasons-to-love-jake-johnson/)
+- [is dolly parton a nice person](https://celebs.allwomenstalk.com/surprising-reasons-to-admire-dolly-parton/)
 - [two kinds amy tan story](https://books.allwomenstalk.com/reasons-to-read-amy-tan/)
+- [phoebe tonkin skincare](https://celebs.allwomenstalk.com/awesome-reasons-to-love-phoebe-tonkin/)
+- [alexz](https://celebs.allwomenstalk.com/cool-reasons-to-love-alexz-johnson/)
+- [where to watch riot](https://movies.allwomenstalk.com/awesome-reasons-to-watch-riot-on-fox/)
+- [agents of shield first episode](https://movies.allwomenstalk.com/reasons-why-marvel-agents-of-shield-is-the-greatest-show/)
+- [is twd a good show](https://movies.allwomenstalk.com/reasons-to-watch-the-walking-dead/)
+- [why are vampires popular](https://movies.allwomenstalk.com/reasons-why-we-love-vampires/)
 - [5 Reasons to like Vampires ...](https://twilight.allwomenstalk.com/5-reasons-to-like-vampires/)
 - [5 Reasons Vampires Are Cool ...](https://twilight.allwomenstalk.com/5-reasons-vampires-are-cool/)
 

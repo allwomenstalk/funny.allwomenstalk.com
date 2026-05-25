@@ -116,15 +116,15 @@ Now you'll be able to put your friends in their place when they act ignorant. Wh
 
 ## Related Posts
 
+- [funny words for period](https://funny.allwomenstalk.com/silly-period-puns-to-make-that-time-of-the-month-feel-better/)
+- [plain black tattoo](https://funny.allwomenstalk.com/silly-tattoos-you-wont-believe-someone-actually-stuck-with/)
 - [like white on rice similar sayings](https://lifestyle.allwomenstalk.com/replacement-phrases-to-omg-that-sound-more-mature/)
 - [words to sound intelligent](https://lifestyle.allwomenstalk.com/avoid-these-words-that-can-make-you-sound-uneducated/)
-- [plain black tattoo](https://funny.allwomenstalk.com/silly-tattoos-you-wont-believe-someone-actually-stuck-with/)
 - [cute names to save your boyfriends number](https://love.allwomenstalk.com/cute-names-to-list-your-boyfriend-as-on-your-phone/)
-- [idiom let sleeping dogs lie](https://lifestyle.allwomenstalk.com/idioms-you-should-start-using-more-often/)
-- [funny words for period](https://funny.allwomenstalk.com/silly-period-puns-to-make-that-time-of-the-month-feel-better/)
-- [naughty jokes for boyfriend](https://love.allwomenstalk.com/dirty-jokes-you-should-tell-your-crush/)
-- [inoffensive jokes](https://funny.allwomenstalk.com/inoffensive-dad-jokes-you-can-tell-anyone-and-everyone/)
 - [flintstones pick up lines](https://love.allwomenstalk.com/classic-pick-up-lines-that-never-grow-old/)
+- [inoffensive jokes](https://funny.allwomenstalk.com/inoffensive-dad-jokes-you-can-tell-anyone-and-everyone/)
+- [naughty jokes for boyfriend](https://love.allwomenstalk.com/dirty-jokes-you-should-tell-your-crush/)
+- [idiom let sleeping dogs lie](https://lifestyle.allwomenstalk.com/idioms-you-should-start-using-more-often/)
 - [when you dont know what to say](https://funny.allwomenstalk.com/funny-lines-for-when-you-cant-think-of-anything-else-to-say/)
 - [7 Things You Should Never Say in a Conversation .....](https://allwomenstalk.com/things-you-should-never-say-in-a-conversation/)
 - [15 Stupidest Quotes Celebrities Have Blurted out ....](https://celebs.allwomenstalk.com/stupidest-quotes-celebrities-have-blurted-out/)

@@ -34,16 +34,16 @@ Just be careful who you divulge your feelings and life story to. I was told that
 
 ## Related Posts
 
-- [mrs maisel stand up](https://funny.allwomenstalk.com/meet-the-real-marvelous-mrs-maisel-standup-comic-sasha-cho/)
+- [naomi campbell ponytail](https://hair.allwomenstalk.com/naomi-campbells-hair-loss-problem/)
 - [madonna pop icon](https://music.allwomenstalk.com/in-celebration-of-a-pop-icon-madonna-at/)
+- [hadid sisters](https://fashion.allwomenstalk.com/killer-looks-rocked-by-the-hadid-sisters/)
+- [From a US Weekly ...](https://allwomenstalk.com/from-a-hrefhttpwwwusweeklycomus-weekly/)
+- [mean girl 2 trailer](https://music.allwomenstalk.com/mean-girls-musical-trailer/)
 - [world most highest paid model](https://fashion.allwomenstalk.com/who-is-the-worlds-highest-paid-model/)
 - [ariana grande famous looks](https://fashion.allwomenstalk.com/iconic-ariana-grande-looks-that-we-adore/)
-- [From a US Weekly ...](https://allwomenstalk.com/from-a-hrefhttpwwwusweeklycomus-weekly/)
 - [After the Oscars - Ellen Tidbits](https://allwomenstalk.com/after-the-oscars-ellen-tidbits/)
-- [naomi campbell ponytail](https://hair.allwomenstalk.com/naomi-campbells-hair-loss-problem/)
-- [hadid sisters](https://fashion.allwomenstalk.com/killer-looks-rocked-by-the-hadid-sisters/)
+- [mrs maisel stand up](https://funny.allwomenstalk.com/meet-the-real-marvelous-mrs-maisel-standup-comic-sasha-cho/)
 - [Lepaparazzi News Update: Olivier with Two New Brun...](https://allwomenstalk.com/lepaparazzi-news-update-olivier-with-two-new-brunettes/)
-- [mean girl 2 trailer](https://music.allwomenstalk.com/mean-girls-musical-trailer/)
 - [If I Could Pick the Cast for the Twilight Movie  T...](https://twilight.allwomenstalk.com/if-i-could-pick-the-cast-for-the-twilight-movie-this-is-who-i-would-pick/)
 - [The Exes ...](https://allwomenstalk.com/the-exes/)
 

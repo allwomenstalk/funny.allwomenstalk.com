@@ -42,16 +42,16 @@ Your period is painful, stressful, and frustrating. It can cause you to switch b
 
 ## Related Posts
 
-- [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
-- [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
+- [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
+- [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
 - [best songs summer](https://music.allwomenstalk.com/perfect-songs-for-those-lazy-summer-evenings/)
-- [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
 - [marina and the diamonds quiz](https://music.allwomenstalk.com/musicians-who-have-stood-the-test-of-time/)
 - [colbie caillat little things](https://music.allwomenstalk.com/songs-by-colbie-caillat-that-makes-you-feel-beautiful/)
-- [rick astley optical illusion](https://music.allwomenstalk.com/one-hit-wonders-we-love/)
-- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
 - [from the top radio](https://music.allwomenstalk.com/top-radio-stations-in-new-york-city/)
-- [soundtracks from the 90s](https://music.allwomenstalk.com/amazing-movie-soundtracks-from-the-90s/)
+- [fun video song](https://funny.allwomenstalk.com/hilarious-music-videos-to-fun-catchy-songs/)
+- [korean pop groups](https://music.allwomenstalk.com/k-pop-groups-you-should-be-listening-to/)
+- [limp bizkit bad day](https://music.allwomenstalk.com/refreshing-songs-to-blast-in-the-car-on-a-bad-day/)
+- [switchfoot songs](https://music.allwomenstalk.com/switchfoot-songs-that-are-sure-to-inspire/)
 - [5 Silly Things to Make You Laugh...](https://allwomenstalk.com/5-silly-things-to-make-you-laugh/)
 - [7 Funny Jokes to Help You Smile ...](https://allwomenstalk.com/7-funny-jokes-to-help-you-smile/)
 

@@ -50,15 +50,15 @@ Aren't these just so cute? Now I'm off to IKEA to find the love (or loveseat) of
 
 ## Related Posts
 
-- [The Best Places to Say I Love You ...](https://travel.allwomenstalk.com/the-best-places-to-say-i-love-you/)
-- [Memorable Ways to Make the First I Love You Perfec...](https://love.allwomenstalk.com/ways-to-get-the-first-i-love-you-right/)
-- [YA Short Story : Love Alert Part 1 ...](https://love.allwomenstalk.com/ya-short-story-love-alert-part-1/)
 - [make out sessions](https://love.allwomenstalk.com/kisses-that-will-fire-up-your-makeout-session/)
-- [17 Words Romantic Girls Should Use in Texts with T...](https://love.allwomenstalk.com/words-that-romantic-girls-should-use-in-text-messages/)
 - [deserve love quotes](https://love.allwomenstalk.com/yes-you-deserve-love/)
 - [Short Story: Love Alert Part 3 ...](https://love.allwomenstalk.com/short-story-love-alert-part-3/)
-- [Tiny Things You Can do to Bring Joy to Someone New...](https://inspiration.allwomenstalk.com/these-tiny-things-will-brighten-up-anyones-day/)
 - [Short Story: Love Alert Part 4 ...](https://love.allwomenstalk.com/short-story-love-alert-part-4/)
+- [Memorable Ways to Make the First I Love You Perfec...](https://love.allwomenstalk.com/ways-to-get-the-first-i-love-you-right/)
+- [The Best Places to Say I Love You ...](https://travel.allwomenstalk.com/the-best-places-to-say-i-love-you/)
+- [YA Short Story : Love Alert Part 1 ...](https://love.allwomenstalk.com/ya-short-story-love-alert-part-1/)
+- [Tiny Things You Can do to Bring Joy to Someone New...](https://inspiration.allwomenstalk.com/these-tiny-things-will-brighten-up-anyones-day/)
+- [17 Words Romantic Girls Should Use in Texts with T...](https://love.allwomenstalk.com/words-that-romantic-girls-should-use-in-text-messages/)
 - [stylo smoky bottomless](https://love.allwomenstalk.com/ways-romantics-should-show-love-for-their-partner/)
 - [Real Wedding: Handmade with Love ...](https://wedding.allwomenstalk.com/real-wedding-handmade-with-love/)
 - [The Scent of Love ...](https://allwomenstalk.com/the-scent-of-love/)

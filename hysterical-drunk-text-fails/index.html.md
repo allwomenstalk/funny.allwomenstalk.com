@@ -108,16 +108,16 @@ Now that you've had a good laugh, what are some of your drunk texts that you've 
 
 ## Related Posts
 
-- [apocalypse jokes](https://funny.allwomenstalk.com/dad-jokes-that-will-actually-make-you-laugh/)
-- [brown food names](https://food.allwomenstalk.com/food-names-youve-been-saying-wrong/)
+- [crazy things parents text](https://funny.allwomenstalk.com/embarrassing-things-our-parents-say-over-text/)
+- [funny things to say in class](https://funny.allwomenstalk.com/funny-excuses-for-skipping-class/)
 - [aussie pick up lines](https://lifestyle.allwomenstalk.com/australian-slang-terms-you-havent-heard/)
-- [how to professionally say someone is lazy](https://funny.allwomenstalk.com/the-best-comebacks-for-being-called-lazy/)
+- [hate doesnt know own name](https://lifestyle.allwomenstalk.com/things-you-can-do-if-you-hate-your-name/)
+- [brown food names](https://food.allwomenstalk.com/food-names-youve-been-saying-wrong/)
 - [united kingdom accent](https://lifestyle.allwomenstalk.com/how-to-fake-a-british-accent/)
 - [use that word lightly](https://lifestyle.allwomenstalk.com/words-you-should-never-use-lightly/)
-- [funny things to say in class](https://funny.allwomenstalk.com/funny-excuses-for-skipping-class/)
-- [hate doesnt know own name](https://lifestyle.allwomenstalk.com/things-you-can-do-if-you-hate-your-name/)
-- [crazy things parents text](https://funny.allwomenstalk.com/embarrassing-things-our-parents-say-over-text/)
+- [apocalypse jokes](https://funny.allwomenstalk.com/dad-jokes-that-will-actually-make-you-laugh/)
 - [sherlock holmes catch phrases](https://books.allwomenstalk.com/words-to-steal-from-sherlock-holmes/)
+- [how to professionally say someone is lazy](https://funny.allwomenstalk.com/the-best-comebacks-for-being-called-lazy/)
 - [Flirty Texts for Him to Make His Day ...](https://love.allwomenstalk.com/text-flirting-ideas-to-try-today/)
 - [Drunk Dialer ...](https://allwomenstalk.com/drunk-dialer/)
 

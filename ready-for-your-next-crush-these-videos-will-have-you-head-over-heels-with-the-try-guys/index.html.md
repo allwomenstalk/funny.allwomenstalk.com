@@ -68,16 +68,16 @@ Me? I got Zach Kornfeld. Who's your Try Guys crush?
 
 ## Related Posts
 
+- [how do i find a new boyfriend](https://travel.allwomenstalk.com/how-to-make-your-first-trip-with-a-new-boyfriend-a-success/)
+- [he shy](https://love.allwomenstalk.com/decoding-shy-guys-signs-he-wants-you-to-make-the-first-move/)
 - [how to be more attractive for your boyfriend](https://love.allwomenstalk.com/heres-how-to-make-your-man-feel-more-confident-and-attractive/)
-- [my boyfriend doesnt tell me his whereabouts](https://love.allwomenstalk.com/men-are-more-sensitive-than-you-think-things-you-didnt-realize-hurt-his-feelings/)
-- [dating with dignity](https://love.allwomenstalk.com/how-to-chase-after-your-crush-without-losing-your-dignity/)
-- [is going to the movies with a guy a date](https://love.allwomenstalk.com/a-girls-guide-to-making-a-move-during-a-movie-date/)
 - [flirting 101 for guys](https://love.allwomenstalk.com/flirting-101-showing-off-these-skills-is-sure-to-get-any-guys-attention/)
-- [how do i call my crush](https://love.allwomenstalk.com/what-to-do-when-your-crush-doesnt-even-know-your-name/)
+- [my boyfriend doesnt tell me his whereabouts](https://love.allwomenstalk.com/men-are-more-sensitive-than-you-think-things-you-didnt-realize-hurt-his-feelings/)
 - [how to spice up a kiss](https://love.allwomenstalk.com/impress-your-boyfriend-with-these-new-kissing-techniques/)
 - [questions to get closer](https://love.allwomenstalk.com/ask-your-bf-these-questions-to-feel-closer/)
-- [he shy](https://love.allwomenstalk.com/decoding-shy-guys-signs-he-wants-you-to-make-the-first-move/)
-- [how do i find a new boyfriend](https://travel.allwomenstalk.com/how-to-make-your-first-trip-with-a-new-boyfriend-a-success/)
+- [how do i call my crush](https://love.allwomenstalk.com/what-to-do-when-your-crush-doesnt-even-know-your-name/)
+- [is going to the movies with a guy a date](https://love.allwomenstalk.com/a-girls-guide-to-making-a-move-during-a-movie-date/)
+- [dating with dignity](https://love.allwomenstalk.com/how-to-chase-after-your-crush-without-losing-your-dignity/)
 - [Are You Ready for Your Close-up](https://allwomenstalk.com/are-you-ready-for-your-close-up/)
 - [Are You Ready for Your Close-up](https://allwomenstalk.com/are-you-ready-for-your-close-up-2/)
 

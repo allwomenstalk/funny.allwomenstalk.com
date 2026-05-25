@@ -42,16 +42,16 @@ Being in a relationship is awesome, for more reasons than you'd think. Are you c
 
 ## Related Posts
 
+- [7 Things Every Single Person Should Know about Onl...](https://love.allwomenstalk.com/things-every-single-person-should-know-about-online-dating/)
 - [7 Ways the Dating Game Changes as You Get Older .....](https://love.allwomenstalk.com/ways-the-dating-game-changes-as-you-get-older/)
 - [9 Simple Ways to Have the Best Relationship of You...](https://love.allwomenstalk.com/simple-ways-to-have-the-best-relationship-of-your-life/)
-- [7 Interesting Ways a Marriage Changes You ...](https://love.allwomenstalk.com/interesting-ways-a-marriage-changes-you/)
-- [7 Dangerous Habits People in Love Have That Hurt T...](https://love.allwomenstalk.com/dangerous-habits-people-in-love-have-that-hurt-them/)
-- [7 Dating Habits to Let Go of ...](https://love.allwomenstalk.com/dating-habits-to-let-go-of-this-year/)
-- [7 Things Every Couple Needs to Know about Relation...](https://love.allwomenstalk.com/things-every-couple-needs-to-know-about-relationships/)
 - [7 Things a Therapist Says You Must Know before Tyi...](https://love.allwomenstalk.com/things-a-therapist-says-you-must-know-before-tying-the-knot/)
-- [7 Things Every Single Person Should Know about Onl...](https://love.allwomenstalk.com/things-every-single-person-should-know-about-online-dating/)
+- [7 Interesting Ways a Marriage Changes You ...](https://love.allwomenstalk.com/interesting-ways-a-marriage-changes-you/)
+- [7 Dating Habits to Let Go of ...](https://love.allwomenstalk.com/dating-habits-to-let-go-of-this-year/)
 - [7 Very Popular Myths about Relationships That Aren...](https://love.allwomenstalk.com/very-popular-myths-about-relationships-that-arent-true/)
 - [7 Ways to Actually Enjoy the Single Life ...](https://love.allwomenstalk.com/ways-to-actually-enjoy-the-single-life/)
+- [7 Things Every Couple Needs to Know about Relation...](https://love.allwomenstalk.com/things-every-couple-needs-to-know-about-relationships/)
+- [7 Dangerous Habits People in Love Have That Hurt T...](https://love.allwomenstalk.com/dangerous-habits-people-in-love-have-that-hurt-them/)
 - [7 Critical Moments: from Dating to Relationship .....](https://love.allwomenstalk.com/critical-moments-from-dating-to-relationship/)
 - [7 Basic Stages of a Relationship ...](https://love.allwomenstalk.com/basic-stages-of-a-relationship/)
 

@@ -66,16 +66,16 @@ Since time travel isn't invented yet, the only way to feel like you're back in t
 
 ## Related Posts
 
-- [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
 - [learn new language online free](https://lifestyle.allwomenstalk.com/best-ways-to-learn-languages-for-free-online/)
 - [hilarious period jokes](https://funny.allwomenstalk.com/comebacks-for-when-youre-asked-if-youre-on-your-period/)
-- [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
-- [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
 - [oxford dictionary word of the year 2014](https://lifestyle.allwomenstalk.com/oxford-dictionaries-has-spoken-2014s-word-of-the-year-is/)
-- [crazy grandma memes](https://funny.allwomenstalk.com/hilarious-grandmas-has-yours-ever-given-you-advice-as-crazy-as-this/)
-- [how do you answer whats up](https://funny.allwomenstalk.com/funny-replies-for-when-youre-asked-whats-up/)
 - [funny i love you more](https://funny.allwomenstalk.com/funny-clever-responses-to-i-love-you/)
+- [how do you answer whats up](https://funny.allwomenstalk.com/funny-replies-for-when-youre-asked-whats-up/)
+- [crazy grandma memes](https://funny.allwomenstalk.com/hilarious-grandmas-has-yours-ever-given-you-advice-as-crazy-as-this/)
+- [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
 - [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
+- [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
+- [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
 - [7 Words That Are Funny to Say ...](https://allwomenstalk.com/7-words-that-are-funny-to-say/)
 - [9 Cool-Sounding Words to Add to Your Vocabulary .....](https://allwomenstalk.com/9-cool-sounding-words-to-add-to-your-vocabulary/)
 

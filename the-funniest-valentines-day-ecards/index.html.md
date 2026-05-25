@@ -56,15 +56,15 @@ Try to enjoy the holiday as much as you can! Are you planning on doing anything 
 
 ## Related Posts
 
-- [different between like and love](https://love.allwomenstalk.com/the-difference-between-like-and-love/)
-- [cheesy things to say](https://love.allwomenstalk.com/cheesy-things-we-do-when-our-boyfriends-arent-around/)
 - [valentines seafood dinner](https://food.allwomenstalk.com/valentines-day-dinners-to-make-for-your-man/)
 - [cute texts messages](https://love.allwomenstalk.com/cute-texts-to-send-him-after-a-date/)
-- [music themed valentines cards](https://diy.allwomenstalk.com/download-these-valentines-day-printables-for-your-partner/)
+- [cheesy things to say](https://love.allwomenstalk.com/cheesy-things-we-do-when-our-boyfriends-arent-around/)
+- [couples kissing](https://love.allwomenstalk.com/try-these-kissing-challenges-with-your-boyfriend/)
 - [romantic fairytale](https://love.allwomenstalk.com/how-to-make-falling-in-love-feel-like-a-fairy-tale/)
 - [first valentines together](https://love.allwomenstalk.com/fun-ideas-for-your-first-valentines-day-together/)
-- [couples kissing](https://love.allwomenstalk.com/try-these-kissing-challenges-with-your-boyfriend/)
+- [different between like and love](https://love.allwomenstalk.com/the-difference-between-like-and-love/)
 - [couples easter ideas](https://love.allwomenstalk.com/adorable-easter-themed-date-ideas/)
+- [music themed valentines cards](https://diy.allwomenstalk.com/download-these-valentines-day-printables-for-your-partner/)
 - [total romance into](https://love.allwomenstalk.com/ways-to-be-romantic/)
 - [19 Creative Ways to Celebrate Valentines Day ...](https://love.allwomenstalk.com/creative-ways-to-celebrate-valentines-day/)
 - [Valentines Day Gift Ideas for Her ...](https://allwomenstalk.com/valentines-day-gift-ideas-for-her/)

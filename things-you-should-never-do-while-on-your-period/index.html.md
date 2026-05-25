@@ -94,16 +94,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
-- [shmerms_](https://health.allwomenstalk.com/personal-items-you-shouldnt-share-to-avoid-germ-transference/)
 - [questions you should never ask a girl](https://lifestyle.allwomenstalk.com/questions-you-should-never-ask/)
 - [relationship no nos](https://love.allwomenstalk.com/online-dating-no-nos-to-stop-doing-right-now/)
-- [why do i feel like im losing everyone](https://teen.allwomenstalk.com/worst-types-of-friends-you-shouldnt-keep-in-your-life/)
-- [things to talk about with a new friend](https://lifestyle.allwomenstalk.com/things-to-avoid-saying-to-a-new-friend/)
-- [things never to say to someone who just came out](https://lifestyle.allwomenstalk.com/things-you-should-never-say-about-yourself/)
-- [job description cliches](https://lifestyle.allwomenstalk.com/worst-cliches-to-avoid-during-a-job-interview/)
 - [loreal riche le stylo silver couture](https://inspiration.allwomenstalk.com/things-that-block-your-creativity-that-you-should-stop-doing/)
+- [things to talk about with a new friend](https://lifestyle.allwomenstalk.com/things-to-avoid-saying-to-a-new-friend/)
 - [why do people bark at emos](https://movies.allwomenstalk.com/things-people-do-wrong-in-horror-movies-when-trying-to-survive/)
 - [10 things a man can only do](https://love.allwomenstalk.com/things-a-woman-should-never-do-for-a-man/)
+- [job description cliches](https://lifestyle.allwomenstalk.com/worst-cliches-to-avoid-during-a-job-interview/)
+- [things never to say to someone who just came out](https://lifestyle.allwomenstalk.com/things-you-should-never-say-about-yourself/)
+- [why do i feel like im losing everyone](https://teen.allwomenstalk.com/worst-types-of-friends-you-shouldnt-keep-in-your-life/)
+- [shmerms_](https://health.allwomenstalk.com/personal-items-you-shouldnt-share-to-avoid-germ-transference/)
 - [11 Things to Never Tell Your Man ...](https://allwomenstalk.com/11-things-to-never-tell-your-man/)
 - [10 Things to Not do in Bed ...](https://allwomenstalk.com/10-things-to-not-do-in-bed/)
 

@@ -42,16 +42,16 @@ I cannot tell you the amount of other amazing, wacky old saying origins my frien
 
 ## Related Posts
 
-- [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
+- [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
 - [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
+- [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
+- [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
+- [all intensive purposes other misused phrases](https://funny.allwomenstalk.com/commonly-misused-words-and-expressions-in-my-neck-of-the-woods/)
+- [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
 - [if youre here whos running heaven](https://funny.allwomenstalk.com/funny-replies-to-overused-pesky-pick-up-lines/)
 - [paris riche stylo smoky eye spark](https://inspiration.allwomenstalk.com/limiting-phrases-you-say-that-age-you/)
 - [50s slang for cool](https://funny.allwomenstalk.com/silly-slang-terms-from-the-50s-to-bring-back/)
-- [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
-- [all intensive purposes other misused phrases](https://funny.allwomenstalk.com/commonly-misused-words-and-expressions-in-my-neck-of-the-woods/)
 - [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
-- [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
-- [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
 - [7 Weirdest Urban Legends ...](https://allwomenstalk.com/7-urban-legends/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 

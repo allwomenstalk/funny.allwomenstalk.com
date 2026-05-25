@@ -80,16 +80,16 @@ Do you relate to these quotes?
 
 ## Related Posts
 
-- [site:allwomenstalk.com](https://funny.allwomenstalk.com/funny-comebacks-to-catcalls/)
-- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
-- [if you were a holiday youd be pick up line](https://love.allwomenstalk.com/pickup-lines-to-use-underneath-the-mistletoe/)
-- [words that should exist but dont](https://lifestyle.allwomenstalk.com/words-that-dont-exist-but-should/)
-- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
 - [sign language russian](https://lifestyle.allwomenstalk.com/sign-language-infographics-thatll-make-you-smarter/)
+- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
+- [words that should exist but dont](https://lifestyle.allwomenstalk.com/words-that-dont-exist-but-should/)
 - [11 rules of grammar](https://lifestyle.allwomenstalk.com/grammar-rules-that-most-people-have-never-learned/)
-- [how to talk in different languages](https://love.allwomenstalk.com/how-to-talk-dirty-in-different-languages/)
-- [canadian vocabulary](https://lifestyle.allwomenstalk.com/common-canadian-words-you-should-steal/)
 - [psychology of a nosy person](https://funny.allwomenstalk.com/comebacks-for-all-of-the-nosy-people-in-your-life/)
+- [how to talk in different languages](https://love.allwomenstalk.com/how-to-talk-dirty-in-different-languages/)
+- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
+- [site:allwomenstalk.com](https://funny.allwomenstalk.com/funny-comebacks-to-catcalls/)
+- [canadian vocabulary](https://lifestyle.allwomenstalk.com/common-canadian-words-you-should-steal/)
+- [if you were a holiday youd be pick up line](https://love.allwomenstalk.com/pickup-lines-to-use-underneath-the-mistletoe/)
 - [11 Things Guys Hate about Girls ...](https://love.allwomenstalk.com/things-guys-hate-about-girls/)
 - [8 Lies Us Women Always Tell ...](https://allwomenstalk.com/8-lies-us-women-always-tell/)
 

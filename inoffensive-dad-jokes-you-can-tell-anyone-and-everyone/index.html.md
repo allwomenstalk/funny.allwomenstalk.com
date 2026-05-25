@@ -56,16 +56,16 @@ What other Dad jokes can you come up with?
 
 ## Related Posts
 
-- [your so funny gif](https://lifestyle.allwomenstalk.com/insanely-nice-comments-to-make-someones-day/)
-- [flintstones pick up lines](https://love.allwomenstalk.com/classic-pick-up-lines-that-never-grow-old/)
-- [model](https://lifestyle.allwomenstalk.com/use-these-easy-conversation-prompts-to-break-the-ice/)
-- [lovedignity.com dirty talk](https://love.allwomenstalk.com/words-thatll-amp-up-the-dirty-talk/)
 - [people arguing gif](https://lifestyle.allwomenstalk.com/use-these-gifs-when-you-dont-feel-like-arguing-with-your-words/)
-- [avoid sign language](https://lifestyle.allwomenstalk.com/body-language-infographics-to-help-you-read-people/)
-- [funny relationship hashtags](https://funny.allwomenstalk.com/hashtags-we-all-wouldve-used-back-in-the-90s/)
-- [aggresive pick up lines](https://love.allwomenstalk.com/sexual-pick-up-lines-thatll-turn-you-on-or-make-you-laugh/)
+- [flintstones pick up lines](https://love.allwomenstalk.com/classic-pick-up-lines-that-never-grow-old/)
 - [vocab websites](https://lifestyle.allwomenstalk.com/useful-websites-thatll-increase-your-vocabulary/)
 - [harry potter pick up line](https://love.allwomenstalk.com/spellbinding-pickup-lines-for-potterheads/)
+- [avoid sign language](https://lifestyle.allwomenstalk.com/body-language-infographics-to-help-you-read-people/)
+- [lovedignity.com dirty talk](https://love.allwomenstalk.com/words-thatll-amp-up-the-dirty-talk/)
+- [funny relationship hashtags](https://funny.allwomenstalk.com/hashtags-we-all-wouldve-used-back-in-the-90s/)
+- [model](https://lifestyle.allwomenstalk.com/use-these-easy-conversation-prompts-to-break-the-ice/)
+- [aggresive pick up lines](https://love.allwomenstalk.com/sexual-pick-up-lines-thatll-turn-you-on-or-make-you-laugh/)
+- [your so funny gif](https://lifestyle.allwomenstalk.com/insanely-nice-comments-to-make-someones-day/)
 - [Pop Nosh: Lindsay Talks to Her Dad ...](https://allwomenstalk.com/pop-nosh-lindsay-talks-to-her-dad/)
 - [20 Funny Jokes about Men ...](https://allwomenstalk.com/20-funny-jokes-about-men/)
 

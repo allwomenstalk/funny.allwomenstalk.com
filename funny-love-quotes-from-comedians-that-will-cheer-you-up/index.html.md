@@ -61,16 +61,16 @@ I love funny quotes about love since they always manage to cheer me up. Do you k
 
 ## Related Posts
 
-- [book motivational quotes](https://books.allwomenstalk.com/motivational-quotes-from-books-that-celebrate-being-happy/)
+- [inspirational quotes about loving yourself](https://inspiration.allwomenstalk.com/inspiring-quotes-about-loving-yourself/)
 - [think deeply quotes](https://inspiration.allwomenstalk.com/thought-provoking-quotes-about-life-to-ponder/)
-- [kubler ross quotes](https://inspiration.allwomenstalk.com/best-quotes-from-elizabeth-kubler-ross/)
-- [when you have exhausted all possibilities](https://inspiration.allwomenstalk.com/quotes-from-thomas-edison-for-when-you-need-encouragement/)
 - [famous quotes from comedians](https://funny.allwomenstalk.com/quotes-from-comedians-that-will-give-you-strength-to-be-happy/)
-- [disney kindness quotes](https://inspiration.allwomenstalk.com/quotes-from-walt-disney-to-inspire-and-motivate-you/)
+- [kubler ross quotes](https://inspiration.allwomenstalk.com/best-quotes-from-elizabeth-kubler-ross/)
 - [love quotes for long distance lovers](https://love.allwomenstalk.com/inspirational-long-distance-relationship-quotes-to-live-by/)
 - [quotes from eckhart tolle](https://inspiration.allwomenstalk.com/eckhart-tolle-quotes-to-help-you-put-things-into-perspective/)
-- [inspirational quotes about loving yourself](https://inspiration.allwomenstalk.com/inspiring-quotes-about-loving-yourself/)
 - [inspirational quotes from robin williams](https://celebs.allwomenstalk.com/memorable-quotes-from-robin-williams-to-celebrate-his-genius/)
+- [disney kindness quotes](https://inspiration.allwomenstalk.com/quotes-from-walt-disney-to-inspire-and-motivate-you/)
+- [when you have exhausted all possibilities](https://inspiration.allwomenstalk.com/quotes-from-thomas-edison-for-when-you-need-encouragement/)
+- [book motivational quotes](https://books.allwomenstalk.com/motivational-quotes-from-books-that-celebrate-being-happy/)
 - [7 Dirty Pick up Lines That Will Make You Laugh and...](https://allwomenstalk.com/7-really-terrible-pick-up-lines-from-movies/)
 - [10 of My Favorite Love Quotes ...](https://allwomenstalk.com/10-of-my-favorite-love-quotes/)
 

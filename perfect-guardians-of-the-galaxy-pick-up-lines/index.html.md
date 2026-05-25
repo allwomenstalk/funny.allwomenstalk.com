@@ -66,16 +66,16 @@ Guardians of the Galaxy is a movie that you could easily watch again and again. 
 
 ## Related Posts
 
-- [pickup in french](https://funny.allwomenstalk.com/french-pick-up-lines-that-are-as-corny-as-they-are-romantic/)
-- [t shirts saying](https://fashion.allwomenstalk.com/hilarious-t-shirt-sayings-you-will-laugh-out-loud-at/)
+- [importance of grammar quotes](https://funny.allwomenstalk.com/hysterical-quotes-for-grammar-nazis/)
 - [good break up lines](https://funny.allwomenstalk.com/funny-break-up-lines-to-use-on-someone-you-cant-stand/)
 - [medieval words and phrases](https://funny.allwomenstalk.com/fancy-medieval-words-that-should-be-brought-back/)
-- [importance of grammar quotes](https://funny.allwomenstalk.com/hysterical-quotes-for-grammar-nazis/)
+- [t shirts saying](https://fashion.allwomenstalk.com/hilarious-t-shirt-sayings-you-will-laugh-out-loud-at/)
 - [what to do if you didnt do your homework](https://funny.allwomenstalk.com/excuses-for-when-you-forget-your-homework/)
+- [funny jokes on education](https://funny.allwomenstalk.com/jokes-about-school-for-those-who-arent-excited-about-returning/)
 - [is funner a word oxford dictionary](https://funny.allwomenstalk.com/new-words-that-shouldnt-be-in-the-dictionary/)
 - [scandalous meaning](https://love.allwomenstalk.com/complimentary-words-to-call-your-mate-instead-of-hot/)
-- [funny jokes on education](https://funny.allwomenstalk.com/jokes-about-school-for-those-who-arent-excited-about-returning/)
 - [good mean girl comebacks](https://funny.allwomenstalk.com/insults-you-should-steal-from-the-movie-mean-girls/)
+- [pickup in french](https://funny.allwomenstalk.com/french-pick-up-lines-that-are-as-corny-as-they-are-romantic/)
 - [Top 10 Lines from the Movies ...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 - [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
 

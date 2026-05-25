@@ -14,16 +14,16 @@ So, now that you saw the list of celebrity Ryans, what would YOUR ranking be?
 
 ## Related Posts
 
-- [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
-- [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
-- [celebrities who hid their pregnancies while filmin...](https://celebs.allwomenstalk.com/celebrities-who-hid-their-baby-bumps-while-filming/)
-- [actor that sings](https://celebs.allwomenstalk.com/celebs-who-went-from-singing-to-acting/)
-- [milo ventimiglia girlfriend](https://celebs.allwomenstalk.com/of-your-favorite-fictional-couples-who-dated-off-screen-too/)
-- [celebrity favorite holiday](https://celebs.allwomenstalk.com/see-how-your-favorite-celebs-spent-the-holidays-in-our-christmas-re-cap/)
-- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
 - [paleo celebrities](https://celebs.allwomenstalk.com/celebs-that-follow-the-paleo-diet/)
-- [kate upton movie with adam sandler](https://celebs.allwomenstalk.com/celebrities-who-went-from-modeling-to-acting/)
+- [actor that sings](https://celebs.allwomenstalk.com/celebs-who-went-from-singing-to-acting/)
+- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
 - [corey fogelmanis twitter](https://celebs.allwomenstalk.com/girl-meets-world-celebs-to-follow-on-twitter/)
+- [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
+- [kate upton movie with adam sandler](https://celebs.allwomenstalk.com/celebrities-who-went-from-modeling-to-acting/)
+- [celebrities who hid their pregnancies while filmin...](https://celebs.allwomenstalk.com/celebrities-who-hid-their-baby-bumps-while-filming/)
+- [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
+- [celebrity favorite holiday](https://celebs.allwomenstalk.com/see-how-your-favorite-celebs-spent-the-holidays-in-our-christmas-re-cap/)
+- [milo ventimiglia girlfriend](https://celebs.allwomenstalk.com/of-your-favorite-fictional-couples-who-dated-off-screen-too/)
 - [A-Rod  Camerons Romantic Weekend ...](https://celebs.allwomenstalk.com/a-rod-camerons-romantic-weekend/)
 - [Seth Rogen Bares His Soul to Stern...](https://celebs.allwomenstalk.com/seth-rogen-bares-his-soul-to-stern/)
 

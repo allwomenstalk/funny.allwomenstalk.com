@@ -60,16 +60,16 @@ I can guarantee you will get their attention and they will either retaliate or c
 
 ## Related Posts
 
+- [classy girlfriend](https://inspiration.allwomenstalk.com/how-to-deal-with-mean-girls-in-a-classy-way/)
+- [how to get out of speeding tickets](https://lifestyle.allwomenstalk.com/how-to-talk-your-way-out-of-a-speeding-ticket/)
+- [getting rid of toxic friends](https://inspiration.allwomenstalk.com/steps-to-removing-a-toxic-friend-from-your-life/)
+- [what does it mean when someone calls you fat](https://weightloss.allwomenstalk.com/ways-to-respond-when-someone-calls-you-fat/)
 - [someone in a bubble](https://inspiration.allwomenstalk.com/how-to-recover-when-someone-bursts-your-bubble/)
 - [how to make him stop cheating](https://love.allwomenstalk.com/ways-to-get-a-cheater-to-stop-cheating/)
+- [can god remove a person from your life to give the...](https://lifestyle.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life-2/)
 - [stopmom](https://parenting.allwomenstalk.com/ways-to-stop-mom-shaming/)
 - [how to deal with an argumentative child](https://parenting.allwomenstalk.com/helpful-ways-to-manage-an-argumentative-teen/)
 - [arguments at christmas](https://inspiration.allwomenstalk.com/how-to-avoid-causing-family-arguments-at-christmas/)
-- [classy girlfriend](https://inspiration.allwomenstalk.com/how-to-deal-with-mean-girls-in-a-classy-way/)
-- [what does it mean when someone calls you fat](https://weightloss.allwomenstalk.com/ways-to-respond-when-someone-calls-you-fat/)
-- [getting rid of toxic friends](https://inspiration.allwomenstalk.com/steps-to-removing-a-toxic-friend-from-your-life/)
-- [how to get out of speeding tickets](https://lifestyle.allwomenstalk.com/how-to-talk-your-way-out-of-a-speeding-ticket/)
-- [can god remove a person from your life to give the...](https://lifestyle.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life-2/)
 - [Help for Soccer Moms ...](https://allwomenstalk.com/help-for-soccer-moms/)
 - [7 Tips on Dealing with Controlling Parents ...](https://allwomenstalk.com/7-tips-on-dealing-with-controlling-parents/)
 

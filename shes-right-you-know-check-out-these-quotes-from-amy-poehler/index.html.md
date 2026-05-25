@@ -217,16 +217,16 @@ Source: [Community Post: 22 Amy Poehler](https://www.buzzfeed.com/fivezaj/22-amy
 
 ## Related Posts
 
-- [nail quotes sayings](https://travel.allwomenstalk.com/these-beachy-quotes-will-make-you-feel-like-youre-on-vacay-even-when-youre-not/)
-- [a bad day doesnt mean a bad life](https://inspiration.allwomenstalk.com/quotes-for-when-youre-sad/)
-- [uplifting posters](https://inspiration.allwomenstalk.com/the-most-uplifting-quotes-from-motivational-posters/)
-- [amy schumer quotes](https://funny.allwomenstalk.com/quotes-from-amy-schumer-that-will-make-you-think/)
-- [inspirational calm quotes](https://inspiration.allwomenstalk.com/keep-calm-and-carry-on-with-these-quotes/)
-- [site:allwomenstalk.com](https://lifestyle.allwomenstalk.com/quotes-for-your-bff-and-you/)
-- [inspire never stop learning quotes](https://inspiration.allwomenstalk.com/stimulating-quotes-thatll-inspire-you-to-learn/)
-- [one day is good one day is bad](https://inspiration.allwomenstalk.com/read-these-quotes-after-a-really-rough-day/)
 - [quotes from frida kahlo](https://inspiration.allwomenstalk.com/have-a-peek-at-these-frida-kahlo-quotes-to-inspire-your-inner-artist/)
+- [amy schumer quotes](https://funny.allwomenstalk.com/quotes-from-amy-schumer-that-will-make-you-think/)
+- [inspire never stop learning quotes](https://inspiration.allwomenstalk.com/stimulating-quotes-thatll-inspire-you-to-learn/)
+- [a bad day doesnt mean a bad life](https://inspiration.allwomenstalk.com/quotes-for-when-youre-sad/)
 - [girl fashion quotes](https://funny.allwomenstalk.com/funny-fashion-quotes-every-woman-will-understand/)
+- [inspirational calm quotes](https://inspiration.allwomenstalk.com/keep-calm-and-carry-on-with-these-quotes/)
+- [one day is good one day is bad](https://inspiration.allwomenstalk.com/read-these-quotes-after-a-really-rough-day/)
+- [site:allwomenstalk.com](https://lifestyle.allwomenstalk.com/quotes-for-your-bff-and-you/)
+- [uplifting posters](https://inspiration.allwomenstalk.com/the-most-uplifting-quotes-from-motivational-posters/)
+- [nail quotes sayings](https://travel.allwomenstalk.com/these-beachy-quotes-will-make-you-feel-like-youre-on-vacay-even-when-youre-not/)
 - [7 Quotes You Would Never Expect out of the Mouth o...](https://celebs.allwomenstalk.com/quotes-you-would-never-expect-out-of-the-mouth-of-betty-white/)
 - [9 Interesting Quotes from Celebrities Who Support ...](https://celebs.allwomenstalk.com/quotes-from-celebrities-who-support-feminism/)
 

@@ -56,16 +56,16 @@ Disney movies might not always get it right, but a lot of their quotes are relat
 
 ## Related Posts
 
-- [house hanging off cliff minecraft](https://travel.allwomenstalk.com/cliffside-towns-clinging-on-to-life/)
+- [new video games coming out 2015](https://apps.allwomenstalk.com/hotly-anticipated-video-games-to-be-released-in/)
 - [mineral memes](https://lifestyle.allwomenstalk.com/of-the-most-viral-memes-of/)
+- [coincidences in history](https://lifestyle.allwomenstalk.com/inexplicable-coincidences-throughout-history/)
 - [mysteries that have been solved](https://lifestyle.allwomenstalk.com/strange-mysteries-that-have-been-recently-solved/)
-- [makeup world records](https://lifestyle.allwomenstalk.com/bizarre-world-records-set-by-ordinary-people/)
 - [civilization disappeared without trace](https://lifestyle.allwomenstalk.com/mysterious-civilizations-that-disappeared-under-strange-circumstances/)
 - [different storms](https://lifestyle.allwomenstalk.com/rare-weather-phenomena-that-will-leave-you-speechless/)
-- [new video games coming out 2015](https://apps.allwomenstalk.com/hotly-anticipated-video-games-to-be-released-in/)
-- [coincidences in history](https://lifestyle.allwomenstalk.com/inexplicable-coincidences-throughout-history/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/weird-news-stories-from/)
 - [disasters that never happened](https://lifestyle.allwomenstalk.com/predicted-catastrophes-that-never-happened/)
+- [makeup world records](https://lifestyle.allwomenstalk.com/bizarre-world-records-set-by-ordinary-people/)
+- [house hanging off cliff minecraft](https://travel.allwomenstalk.com/cliffside-towns-clinging-on-to-life/)
 - [9 Amazing Quotes from Movies That I Can Relate to ...](https://movies.allwomenstalk.com/amazing-quotes-from-movies-that-i-can-relate-to/)
 - [9 Great Disney  Pixar Movies ...](https://allwomenstalk.com/9-great-disney-pixar-movies/)
 

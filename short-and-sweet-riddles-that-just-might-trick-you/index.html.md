@@ -66,16 +66,16 @@ Riddles are a fun and simple way to make your brain think. They don't require to
 
 ## Related Posts
 
-- [introvert or extrovert which one is better](https://lifestyle.allwomenstalk.com/introverts-vs-extroverts-which-one-are-you/)
-- [symbolic colours](https://lifestyle.allwomenstalk.com/colors-and-their-symbolic-meanings/)
-- [calories in lemon meringue pie without crust](https://food.allwomenstalk.com/pies-that-are-highest-in-calories/)
-- [accessories pronounce](https://streetstyle.allwomenstalk.com/what-do-your-favorite-accessories-say-about-you/)
-- [small talk at parties](https://lifestyle.allwomenstalk.com/ways-to-feel-less-awkward-at-parties/)
-- [signs you are better off as friends](https://love.allwomenstalk.com/signs-youre-better-as-friends-than-as-a-couple/)
-- [anna nicole exposed](https://lifestyle.allwomenstalk.com/signs-you-could-be-an-accidental-bully/)
-- [people take me for granted](https://lifestyle.allwomenstalk.com/reasons-why-youre-always-being-taken-for-granted/)
 - [whats your face](https://beauty.allwomenstalk.com/the-face-shapes-whats-yours/)
+- [signs you are better off as friends](https://love.allwomenstalk.com/signs-youre-better-as-friends-than-as-a-couple/)
 - [social media destroy real life communication essay](https://lifestyle.allwomenstalk.com/is-social-media-destroying-real-world-communication/)
+- [introvert or extrovert which one is better](https://lifestyle.allwomenstalk.com/introverts-vs-extroverts-which-one-are-you/)
+- [accessories pronounce](https://streetstyle.allwomenstalk.com/what-do-your-favorite-accessories-say-about-you/)
+- [people take me for granted](https://lifestyle.allwomenstalk.com/reasons-why-youre-always-being-taken-for-granted/)
+- [calories in lemon meringue pie without crust](https://food.allwomenstalk.com/pies-that-are-highest-in-calories/)
+- [anna nicole exposed](https://lifestyle.allwomenstalk.com/signs-you-could-be-an-accidental-bully/)
+- [small talk at parties](https://lifestyle.allwomenstalk.com/ways-to-feel-less-awkward-at-parties/)
+- [symbolic colours](https://lifestyle.allwomenstalk.com/colors-and-their-symbolic-meanings/)
 - [Deciphering Subtext ...](https://allwomenstalk.com/deciphering-subtext/)
 - [Can You Solve These Blind Items](https://allwomenstalk.com/can-you-solve-these-blind-items/)
 

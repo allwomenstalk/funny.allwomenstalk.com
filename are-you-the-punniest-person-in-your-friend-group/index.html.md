@@ -144,16 +144,16 @@ If you are, you should get out. Just gtfo right now.
 
 ## Related Posts
 
-- [paris color smoky avant azure](https://love.allwomenstalk.com/do-you-do-these-soppy-things-when-youre-in-love/)
-- [the knot newlywed](https://love.allwomenstalk.com/what-do-newlyweds-really-think-after-they-tie-the-knot/)
-- [Do You Work in One of the Unhealthiest Jobs in Ame...](https://vityle.com/do-you-work-in-one-of-the-unhealthiest-jobs-in-america/)
+- [Should You Spring Clean Your Relationship Too](https://love.allwomenstalk.com/should-you-spring-clean-your-relationship-too/)
+- [purse lips gif](https://love.allwomenstalk.com/are-you-actually-ready-to-lose-your-virginity/)
 - [Whats Your Twitter User Type](https://apps.allwomenstalk.com/whats-your-twitter-user-type/)
 - [If Your Political Views Are Polarized Should You B...](https://love.allwomenstalk.com/if-your-political-views-are-polarized-should-you-be-with-him/)
-- [purse lips gif](https://love.allwomenstalk.com/are-you-actually-ready-to-lose-your-virginity/)
-- [The Latest Thing Would You Consider Getting a Non-...](https://beauty.allwomenstalk.com/the-latest-thing-would-you-consider-getting-a-non-surgical-nose-job/)
-- [Should You Swap out Your Tampons for a Menstrual C...](https://health.allwomenstalk.com/should-you-swap-out-your-tampons-for-a-menstrual-cup/)
+- [Do You Work in One of the Unhealthiest Jobs in Ame...](https://vityle.com/do-you-work-in-one-of-the-unhealthiest-jobs-in-america/)
 - [Can These 36 Questions Actually Make Strangers Fal...](https://love.allwomenstalk.com/can-these-questions-actually-make-strangers-fall-in-love/)
-- [Should You Spring Clean Your Relationship Too](https://love.allwomenstalk.com/should-you-spring-clean-your-relationship-too/)
+- [The Latest Thing Would You Consider Getting a Non-...](https://beauty.allwomenstalk.com/the-latest-thing-would-you-consider-getting-a-non-surgical-nose-job/)
+- [paris color smoky avant azure](https://love.allwomenstalk.com/do-you-do-these-soppy-things-when-youre-in-love/)
+- [the knot newlywed](https://love.allwomenstalk.com/what-do-newlyweds-really-think-after-they-tie-the-knot/)
+- [Should You Swap out Your Tampons for a Menstrual C...](https://health.allwomenstalk.com/should-you-swap-out-your-tampons-for-a-menstrual-cup/)
 - [Do You Bite Your Nails](https://allwomenstalk.com/do-you-bite-your-nails/)
 - [Are You the King or Queen of First Dates](https://allwomenstalk.com/are-you-the-king-or-queen-of-first-dates/)
 

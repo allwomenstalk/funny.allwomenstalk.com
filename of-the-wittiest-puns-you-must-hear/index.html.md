@@ -51,15 +51,15 @@ I hope these puns made you smile and brightened up your day. The one-liner is wi
 ## Related Posts
 
 - [funny signs to make](https://funny.allwomenstalk.com/funny-signs-to-make-you-chuckle-and-scratch-your-head/)
-- [funny words like shenanigans](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
-- [jokes about piercings](https://funny.allwomenstalk.com/clever-jokes-only-literature-lovers-will-appreciate/)
-- [some e card](https://funny.allwomenstalk.com/hilariously-sassy-e-cards-that-we-cant-get-enough-of/)
-- [pickup line espaol](https://funny.allwomenstalk.com/silly-pick-up-lines-in-latin/)
 - [latin motos](https://funny.allwomenstalk.com/funny-latin-phrases-youll-benefit-from-learning/)
 - [words teenagers use](https://teen.allwomenstalk.com/words-teenagers-love-to-use/)
+- [pickup line espaol](https://funny.allwomenstalk.com/silly-pick-up-lines-in-latin/)
 - [old timer sayings funny](https://funny.allwomenstalk.com/silly-old-time-phrases-that-youll-love-using/)
 - [hermit the frog drawing](https://inspiration.allwomenstalk.com/quotes-from-kermit-the-frog-the-puppet-with-a-lot-to-say/)
 - [anti jokes list](https://funny.allwomenstalk.com/anti-jokes-that-will-make-you-burst-out-in-laughter/)
+- [funny words like shenanigans](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
+- [some e card](https://funny.allwomenstalk.com/hilariously-sassy-e-cards-that-we-cant-get-enough-of/)
+- [jokes about piercings](https://funny.allwomenstalk.com/clever-jokes-only-literature-lovers-will-appreciate/)
 - [9 Best Cartoons of All Time ...](https://movies.allwomenstalk.com/9-best-cartoons-of-all-time/)
 - [10 Funniest Songs Ever ...](https://allwomenstalk.com/10-funniest-songs-ever/)
 

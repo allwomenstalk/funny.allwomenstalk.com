@@ -218,16 +218,16 @@ Source: [TheOatmeal.com](https://goo.gl/97pcv6)
 
 ## Related Posts
 
+- [trick for test](https://funny.allwomenstalk.com/trick-questions-most-people-will-get-wrong/)
+- [facy words](https://lifestyle.allwomenstalk.com/fancy-words-to-replace-the-common-ones-you-always-use/)
+- [swear words in hebrew](https://lifestyle.allwomenstalk.com/foreign-words-to-use-instead-of-cursing/)
 - [grommet australian slang](https://lifestyle.allwomenstalk.com/australian-words-and-phrases-you-should-steal/)
 - [strange language](https://lifestyle.allwomenstalk.com/strange-languages-youve-never-heard-of-until-now/)
-- [names like serafina](https://parenting.allwomenstalk.com/unique-alternatives-to-common-baby-names/)
-- [funny ways to reject someone asking you out](https://funny.allwomenstalk.com/funny-responses-for-when-a-guy-rejects-you/)
-- [back handed compliment examples](https://funny.allwomenstalk.com/backhanded-compliments-to-give-your-enemies/)
-- [texting etiquette friends](https://lifestyle.allwomenstalk.com/texting-etiquette-you-should-never-fail-to-follow/)
-- [swear words in hebrew](https://lifestyle.allwomenstalk.com/foreign-words-to-use-instead-of-cursing/)
-- [trick for test](https://funny.allwomenstalk.com/trick-questions-most-people-will-get-wrong/)
 - [how to end conversation](https://lifestyle.allwomenstalk.com/sneaky-ways-to-get-out-of-a-conversation-you-dont-want-to-have/)
-- [facy words](https://lifestyle.allwomenstalk.com/fancy-words-to-replace-the-common-ones-you-always-use/)
+- [funny ways to reject someone asking you out](https://funny.allwomenstalk.com/funny-responses-for-when-a-guy-rejects-you/)
+- [names like serafina](https://parenting.allwomenstalk.com/unique-alternatives-to-common-baby-names/)
+- [texting etiquette friends](https://lifestyle.allwomenstalk.com/texting-etiquette-you-should-never-fail-to-follow/)
+- [back handed compliment examples](https://funny.allwomenstalk.com/backhanded-compliments-to-give-your-enemies/)
 - [8 Easy Ways to Bring Laughter to Your Life ...](https://allwomenstalk.com/8-easy-ways-to-bring-laughter-to-your-life/)
 - [7 Reasons to Laugh More ...](https://allwomenstalk.com/7-reasons-to-laugh-more/)
 

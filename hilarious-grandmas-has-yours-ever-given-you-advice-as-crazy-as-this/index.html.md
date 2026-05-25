@@ -55,16 +55,16 @@ So, how about your grandmas - any weird advice? I'm sure there must be some! Pas
 
 ## Related Posts
 
-- [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
-- [crush funny flirty flirty quotes](https://funny.allwomenstalk.com/funny-quotes-about-the-difficulty-of-flirting/)
 - [words that sound smart](https://lifestyle.allwomenstalk.com/words-thatll-make-you-sound-smart-when-you-use-them/)
-- [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
-- [holiday pickup line](https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/)
-- [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
-- [new year pickup line](https://funny.allwomenstalk.com/pick-up-lines-to-use-around-new-years/)
-- [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
 - [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
 - [funny i love you more](https://funny.allwomenstalk.com/funny-clever-responses-to-i-love-you/)
+- [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
+- [crush funny flirty flirty quotes](https://funny.allwomenstalk.com/funny-quotes-about-the-difficulty-of-flirting/)
+- [holiday pickup line](https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/)
+- [new year pickup line](https://funny.allwomenstalk.com/pick-up-lines-to-use-around-new-years/)
+- [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
+- [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
+- [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
 - [8 Things Mothers like to Say ...](https://parenting.allwomenstalk.com/8-things-mothers-like-to-say/)
 - [The Grandparents Book: Teaching Grandmothers to Su...](https://allwomenstalk.com/the-grandparents-book-teaching-grandmothers-to-suck-eggs/)
 

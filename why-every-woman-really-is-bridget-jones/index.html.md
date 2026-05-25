@@ -42,16 +42,16 @@ And finally, just like Bridget, all women have a wonderful group of besties that
 
 ## Related Posts
 
-- [womens investment club](https://money.allwomenstalk.com/how-women-led-investment-clubs-are-making-a-difference-in-the-investing-world/)
-- [mia name meaning](https://lifestyle.allwomenstalk.com/african-girl-names/)
-- [cute unique anime girl names](https://lifestyle.allwomenstalk.com/anime-girl-names/)
-- [fastest growing jobs by 2020](https://money.allwomenstalk.com/these-are-the-fastest-growing-jobs-for-women-by-2021/)
 - [lol girl champion](https://allwomenstalk.com/best-female-champions-league-of-legends/)
 - [brielle name](https://parenting.allwomenstalk.com/unique-and-meaningful-baby-girl-names/)
-- [beautiful edgy girl names](https://lifestyle.allwomenstalk.com/badass-girl-names/)
 - [baby girl names korean](https://lifestyle.allwomenstalk.com/korean-girl-names/)
-- [trading floor 1980s](https://money.allwomenstalk.com/where-are-the-women-on-the-trading-floor/)
+- [womens investment club](https://money.allwomenstalk.com/how-women-led-investment-clubs-are-making-a-difference-in-the-investing-world/)
 - [middle names for girl](https://parenting.allwomenstalk.com/best-middle-names-for-girls/)
+- [beautiful edgy girl names](https://lifestyle.allwomenstalk.com/badass-girl-names/)
+- [cute unique anime girl names](https://lifestyle.allwomenstalk.com/anime-girl-names/)
+- [trading floor 1980s](https://money.allwomenstalk.com/where-are-the-women-on-the-trading-floor/)
+- [fastest growing jobs by 2020](https://money.allwomenstalk.com/these-are-the-fastest-growing-jobs-for-women-by-2021/)
+- [mia name meaning](https://lifestyle.allwomenstalk.com/african-girl-names/)
 - [Maria ShriverWhy I do What I do.  
 
 Every Now and ...](https://allwomenstalk.com/maria-shriverwhy-i-do-what-i-do-every-now-and/)

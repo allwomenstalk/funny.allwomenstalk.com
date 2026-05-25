@@ -14,16 +14,16 @@ Which tweet made you laugh the most?
 
 ## Related Posts
 
-- [taylor swift favorite candle](https://music.allwomenstalk.com/celebrities-who-have-praised-taylor-swifts-new-album/)
+- [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
 - [jim parson and rihanna](https://celebs.allwomenstalk.com/random-pair-of-celebrities-you-didnt-know-were-friends/)
-- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
+- [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
 - [paleo celebrities](https://celebs.allwomenstalk.com/celebs-that-follow-the-paleo-diet/)
+- [corey fogelmanis twitter](https://celebs.allwomenstalk.com/girl-meets-world-celebs-to-follow-on-twitter/)
+- [tahlia hoskins](https://celebs.allwomenstalk.com/celebrities-we-said-a-sad-goodbye-to-in/)
+- [taylor swift favorite candle](https://music.allwomenstalk.com/celebrities-who-have-praised-taylor-swifts-new-album/)
 - [sara ramirez on law and order svu](https://celebs.allwomenstalk.com/celebrities-who-guest-starred-on-law-order/)
 - [actor that sings](https://celebs.allwomenstalk.com/celebs-who-went-from-singing-to-acting/)
 - [kate upton movie with adam sandler](https://celebs.allwomenstalk.com/celebrities-who-went-from-modeling-to-acting/)
-- [corey fogelmanis twitter](https://celebs.allwomenstalk.com/girl-meets-world-celebs-to-follow-on-twitter/)
-- [famous ryans in hollywood](https://funny.allwomenstalk.com/watch-ryan-cabrera-rank-other-famous-ryans-including-gosling-and-reynolds/)
-- [celebrities who love animals](https://celebs.allwomenstalk.com/celebrities-who-love-and-advocate-for-animals/)
 - [OMG Its Celebrity Gossip Overload - Sound the Alar...](https://allwomenstalk.com/omg-its-celebrity-gossip-overload-sound-the-alarm/)
 - [13 Sexiest Funny Stars ...](https://allwomenstalk.com/13-sexiest-funny-stars/)
 

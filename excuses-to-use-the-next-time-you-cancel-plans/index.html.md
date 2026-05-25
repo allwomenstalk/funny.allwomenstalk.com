@@ -61,16 +61,16 @@ Source
 
 ## Related Posts
 
-- [things that are meant to be broken](https://inspiration.allwomenstalk.com/reasons-why-its-okay-to-be-broken/)
-- [dont fight with your friends](https://lifestyle.allwomenstalk.com/important-reasons-not-to-fight-with-your-best-friend/)
 - [ic social media](https://lifestyle.allwomenstalk.com/reasons-to-spend-less-time-on-social-media/)
+- [never try to be like someone else](https://inspiration.allwomenstalk.com/reasons-to-avoid-trying-to-be-someone-else/)
 - [i swear too much](https://lifestyle.allwomenstalk.com/reasons-to-stop-swearing/)
 - [i aint even mad gif](https://funny.allwomenstalk.com/reasons-im-not-a-bitch-just-sarcastic/)
-- [how to move back in with your parents](https://lifestyle.allwomenstalk.com/reasons-you-shouldnt-move-back-in-with-your-parents/)
-- [reduced partying by in](https://lifestyle.allwomenstalk.com/reasons-to-party-less/)
-- [how to get rid of pessimism](https://inspiration.allwomenstalk.com/reasons-to-get-rid-of-pessimistic-friends-stat/)
+- [things that are meant to be broken](https://inspiration.allwomenstalk.com/reasons-why-its-okay-to-be-broken/)
 - [funny answer to why are you single](https://funny.allwomenstalk.com/funny-comebacks-to-the-why-are-you-still-single-question/)
-- [never try to be like someone else](https://inspiration.allwomenstalk.com/reasons-to-avoid-trying-to-be-someone-else/)
+- [how to get rid of pessimism](https://inspiration.allwomenstalk.com/reasons-to-get-rid-of-pessimistic-friends-stat/)
+- [reduced partying by in](https://lifestyle.allwomenstalk.com/reasons-to-party-less/)
+- [dont fight with your friends](https://lifestyle.allwomenstalk.com/important-reasons-not-to-fight-with-your-best-friend/)
+- [how to move back in with your parents](https://lifestyle.allwomenstalk.com/reasons-you-shouldnt-move-back-in-with-your-parents/)
 - [7 Signs You Should Call off the Wedding... ...](https://wedding.allwomenstalk.com/7-signs-you-should-call-off-the-wedding/)
 - [10 Times You Dont Need to Apologize ...](https://lifestyle.allwomenstalk.com/times-you-dont-need-to-apologize/)
 

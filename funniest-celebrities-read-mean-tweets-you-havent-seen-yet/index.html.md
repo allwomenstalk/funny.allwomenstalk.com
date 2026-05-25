@@ -42,16 +42,16 @@ What is your favorite Celebrities Read Mean Tweets video? Tell me why it’s you
 
 ## Related Posts
 
+- [celebrities who can sing](https://celebs.allwomenstalk.com/they-can-do-it-all-celebs-you-never-knew-could-sing/)
 - [loved and hated](https://celebs.allwomenstalk.com/celebrities-we-have-loved-and-hated-at-one-time/)
-- [overrated celebs](https://celebs.allwomenstalk.com/fame-is-overrated-heres-why-you-dont-want-to-be-a-celebrity/)
 - [why does seal have facial scars](https://celebs.allwomenstalk.com/these-lesser-known-stories-behind-male-celebrities-scars-will-blow-your-mind/)
-- [famous 80s actors](https://celebs.allwomenstalk.com/and-hes-still-hot-80s-actors-who-look-even-better-now/)
 - [drew barrymore and jeremy thomas](https://celebs.allwomenstalk.com/the-downside-to-stardom-9-shockingly-short-celebrity-marriages-you-never-knew-about/)
-- [are britney spears teeth different](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-gap-teeth-who-inspire-you-to-embrace-your-smile/)
-- [celebrities with red lipstick](https://celebs.allwomenstalk.com/these-celebs-prove-you-too-can-rock-a-red-lip/)
 - [funny celebrity outfits](https://celebs.allwomenstalk.com/bizarre-celebrity-outfits-that-shouldve-never-seen-the-light-of-day/)
 - [celebrities giving back](https://celebs.allwomenstalk.com/celebrity-do-gooders-who-are-always-giving-back/)
-- [celebrities who can sing](https://celebs.allwomenstalk.com/they-can-do-it-all-celebs-you-never-knew-could-sing/)
+- [celebrities with red lipstick](https://celebs.allwomenstalk.com/these-celebs-prove-you-too-can-rock-a-red-lip/)
+- [are britney spears teeth different](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-gap-teeth-who-inspire-you-to-embrace-your-smile/)
+- [overrated celebs](https://celebs.allwomenstalk.com/fame-is-overrated-heres-why-you-dont-want-to-be-a-celebrity/)
+- [famous 80s actors](https://celebs.allwomenstalk.com/and-hes-still-hot-80s-actors-who-look-even-better-now/)
 - [7 Best Celebrity Blogs ...](https://allwomenstalk.com/7-best-celebrity-blogs/)
 - [7 Great Celebrity Blogs ...](https://allwomenstalk.com/7-great-celebrity-blogs/)
 

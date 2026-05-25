@@ -128,16 +128,16 @@ I just did this one for Heather. Because she still loves Hanson.
 
 ## Related Posts
 
-- [model](https://lifestyle.allwomenstalk.com/use-these-easy-conversation-prompts-to-break-the-ice/)
-- [epic clapbacks](https://inspiration.allwomenstalk.com/epic-clapbacks-for-anyone-who-says-you-cant-do-something/)
-- [cool sounding foreign words](https://travel.allwomenstalk.com/on-point-foreign-words-only-experienced-travelers-can-totally-relate-to/)
-- [funny questions to ask a couple](https://love.allwomenstalk.com/hilariously-funny-questions-to-ask-your-partner-for-a-good-laugh/)
-- [what should i say to a girl](https://lifestyle.allwomenstalk.com/things-to-say-to-a-girl-if-you-really-want-to-piss-her-off/)
-- [pick up lines cringe](https://love.allwomenstalk.com/cringe-worthy-pick-up-lines-that-should-be-banned/)
-- [the smartest woman in the room](https://lifestyle.allwomenstalk.com/words-your-vocab-needs-to-have-you-being-the-smartest-person-in-the-room/)
 - [fancy ways to write words](https://lifestyle.allwomenstalk.com/wordsmiths-will-love-these-brilliant-infographics-of-alternative-words/)
 - [assessable vs accessible](https://lifestyle.allwomenstalk.com/correct-grammar-staples-to-use-for-people-who-want-to-sound-smarter/)
+- [epic clapbacks](https://inspiration.allwomenstalk.com/epic-clapbacks-for-anyone-who-says-you-cant-do-something/)
+- [the smartest woman in the room](https://lifestyle.allwomenstalk.com/words-your-vocab-needs-to-have-you-being-the-smartest-person-in-the-room/)
 - [words in song](https://music.allwomenstalk.com/words-from-pop-songs-that-actually-made-it-into-the-dictionary/)
+- [model](https://lifestyle.allwomenstalk.com/use-these-easy-conversation-prompts-to-break-the-ice/)
+- [pick up lines cringe](https://love.allwomenstalk.com/cringe-worthy-pick-up-lines-that-should-be-banned/)
+- [what should i say to a girl](https://lifestyle.allwomenstalk.com/things-to-say-to-a-girl-if-you-really-want-to-piss-her-off/)
+- [funny questions to ask a couple](https://love.allwomenstalk.com/hilariously-funny-questions-to-ask-your-partner-for-a-good-laugh/)
+- [cool sounding foreign words](https://travel.allwomenstalk.com/on-point-foreign-words-only-experienced-travelers-can-totally-relate-to/)
 - [9 Celebs to Follow on Twitter ...](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
 - [7 Amazing Television Heroines from the 90s ...](https://lifestyle.allwomenstalk.com/amazing-television-heroines-from-the-90s/)
 

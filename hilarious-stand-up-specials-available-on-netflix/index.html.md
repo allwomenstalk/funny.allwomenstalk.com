@@ -56,16 +56,16 @@ Stop staring blankly at a screen and put on a stand-up special that'll make you 
 
 ## Related Posts
 
-- [goldie hawn 90s](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
-- [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
-- [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
-- [movie related to psychology](https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/)
 - [2014 summer movies](https://movies.allwomenstalk.com/summer-movies-of-we-cant-wait-to-watch/)
+- [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
+- [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
 - [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
+- [movie related to psychology](https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/)
+- [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
 - [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
+- [goldie hawn 90s](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
 - [film with nicole kidman](https://movies.allwomenstalk.com/great-movies-featuring-nicole-kidman-that-youre-gonna-love/)
 - [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
-- [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
 - [9 Comedies to Watch before You Die ...](https://7fun.net/comedies-to-watch-before-you-die/)
 - [7 Hilarious Comedies to Rent ...](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
 

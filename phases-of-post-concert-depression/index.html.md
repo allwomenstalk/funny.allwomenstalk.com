@@ -42,16 +42,16 @@ Well, there you have it! If you're a concert junkie like me, these seven stages 
 
 ## Related Posts
 
-- [when your ex dates your friend](https://love.allwomenstalk.com/ways-to-deal-with-your-friend-dating-your-ex/)
-- [what to do when you think your boyfriend is cheati...](https://love.allwomenstalk.com/things-to-do-if-you-think-your-boyfriend-is-cheating/)
 - [i quit relationship quotes](https://love.allwomenstalk.com/reassuring-quotes-to-help-you-finally-end-a-bad-relationship/)
+- [what to do when you think your boyfriend is cheati...](https://love.allwomenstalk.com/things-to-do-if-you-think-your-boyfriend-is-cheating/)
 - [how to not let your life revolve around your boyfr...](https://love.allwomenstalk.com/tips-on-how-to-not-let-your-life-revolve-around-him/)
-- [how to not message your ex](https://love.allwomenstalk.com/tips-to-avoid-texting-your-ex/)
-- [how to deal with failing](https://teen.allwomenstalk.com/ways-to-recover-emotionally-after-failing-a-class/)
-- [how to keep busy after a breakup](https://love.allwomenstalk.com/ways-to-keep-busy-during-a-break-up/)
-- [why do i feel sad when my friend is sad](https://lifestyle.allwomenstalk.com/things-to-do-when-your-best-friend-is-sad/)
 - [how to fix a bad relationship](https://love.allwomenstalk.com/ways-to-fix-a-bad-relationship/)
 - [why heartbreak is good for you](https://love.allwomenstalk.com/surprising-benefits-of-a-broken-heart/)
+- [how to keep busy after a breakup](https://love.allwomenstalk.com/ways-to-keep-busy-during-a-break-up/)
+- [why do i feel sad when my friend is sad](https://lifestyle.allwomenstalk.com/things-to-do-when-your-best-friend-is-sad/)
+- [how to deal with failing](https://teen.allwomenstalk.com/ways-to-recover-emotionally-after-failing-a-class/)
+- [how to not message your ex](https://love.allwomenstalk.com/tips-to-avoid-texting-your-ex/)
+- [when your ex dates your friend](https://love.allwomenstalk.com/ways-to-deal-with-your-friend-dating-your-ex/)
 - [7 Ways to Beat Post-Vacation Blues ...](https://travel.allwomenstalk.com/ways-to-beat-post-vacation-blues/)
 - [7 Things about Postpartum Depression You Must Know...](https://allwomenstalk.com/7-things-about-postpartum-depression-you-must-know/)
 

@@ -42,16 +42,16 @@ Hundreds of slang terms have died out, but we're capable of bringing them back. 
 
 ## Related Posts
 
-- [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
-- [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
-- [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
 - [who invented tv shows](https://movies.allwomenstalk.com/words-invented-by-tv-shows/)
+- [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
+- [7 Popular Sayings That Are Just Plain Dumb ...](https://lifestyle.allwomenstalk.com/popular-sayings-that-are-just-plain-dumb/)
+- [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
+- [all intensive purposes other misused phrases](https://funny.allwomenstalk.com/commonly-misused-words-and-expressions-in-my-neck-of-the-woods/)
+- [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
+- [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
 - [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
 - [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
-- [all intensive purposes other misused phrases](https://funny.allwomenstalk.com/commonly-misused-words-and-expressions-in-my-neck-of-the-woods/)
-- [7 Popular Sayings That Are Just Plain Dumb ...](https://lifestyle.allwomenstalk.com/popular-sayings-that-are-just-plain-dumb/)
 - [when something means something else](https://lifestyle.allwomenstalk.com/colloquial-words-that-used-to-mean-something-else/)
-- [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
 - [7 Words That Are Funny to Say ...](https://allwomenstalk.com/7-words-that-are-funny-to-say/)
 - [7 Commonly Misused Words and Expressions ...](https://lifestyle.allwomenstalk.com/commonly-misused-words-and-expressions/)
 

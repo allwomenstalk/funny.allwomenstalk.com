@@ -42,16 +42,16 @@ I'm going to make a case for new words only being permitted if they are useful o
 
 ## Related Posts
 
-- [funny jokes on education](https://funny.allwomenstalk.com/jokes-about-school-for-those-who-arent-excited-about-returning/)
-- [harry pick up lines](https://funny.allwomenstalk.com/harry-potter-pick-up-lines-thatll-work-on-any-potterhead/)
 - [what to do if you didnt do your homework](https://funny.allwomenstalk.com/excuses-for-when-you-forget-your-homework/)
-- [color roses and their meaning](https://gardening.allwomenstalk.com/rose-colors-and-their-meanings-the-language-of-flowers/)
 - [scandalous meaning](https://love.allwomenstalk.com/complimentary-words-to-call-your-mate-instead-of-hot/)
-- [phrases people get wrong](https://funny.allwomenstalk.com/phrases-people-need-to-stop-using-incorrectly/)
-- [importance of grammar quotes](https://funny.allwomenstalk.com/hysterical-quotes-for-grammar-nazis/)
-- [inappropriate spelling](https://funny.allwomenstalk.com/try-not-to-laugh-at-these-childrens-inappropriate-spelling-errors/)
-- [only just saw this](https://funny.allwomenstalk.com/different-text-messages-and-what-they-really-mean/)
 - [pickup in french](https://funny.allwomenstalk.com/french-pick-up-lines-that-are-as-corny-as-they-are-romantic/)
+- [phrases people get wrong](https://funny.allwomenstalk.com/phrases-people-need-to-stop-using-incorrectly/)
+- [inappropriate spelling](https://funny.allwomenstalk.com/try-not-to-laugh-at-these-childrens-inappropriate-spelling-errors/)
+- [importance of grammar quotes](https://funny.allwomenstalk.com/hysterical-quotes-for-grammar-nazis/)
+- [funny jokes on education](https://funny.allwomenstalk.com/jokes-about-school-for-those-who-arent-excited-about-returning/)
+- [only just saw this](https://funny.allwomenstalk.com/different-text-messages-and-what-they-really-mean/)
+- [harry pick up lines](https://funny.allwomenstalk.com/harry-potter-pick-up-lines-thatll-work-on-any-potterhead/)
+- [color roses and their meaning](https://gardening.allwomenstalk.com/rose-colors-and-their-meanings-the-language-of-flowers/)
 - [10 Most Annoying Words ...](https://allwomenstalk.com/10-most-annoying-words/)
 - [7 Phrases I Cordially Detest ...](https://allwomenstalk.com/7-phrases-i-cordially-detest/)
 

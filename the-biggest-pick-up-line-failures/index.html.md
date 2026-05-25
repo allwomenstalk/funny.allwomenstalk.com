@@ -140,16 +140,16 @@ If you've never heard any of these crummy pickup lines before, be thankful for i
 
 ## Related Posts
 
-- [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
-- [recent additions to the dictionary](https://lifestyle.allwomenstalk.com/a-few-new-words-being-added-to-the-dictionary/)
-- [sign language russian](https://lifestyle.allwomenstalk.com/sign-language-infographics-thatll-make-you-smarter/)
-- [11 rules of grammar](https://lifestyle.allwomenstalk.com/grammar-rules-that-most-people-have-never-learned/)
+- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
 - [site:allwomenstalk.com](https://funny.allwomenstalk.com/funny-comebacks-to-catcalls/)
-- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
 - [if you were a holiday youd be pick up line](https://love.allwomenstalk.com/pickup-lines-to-use-underneath-the-mistletoe/)
 - [words that should exist but dont](https://lifestyle.allwomenstalk.com/words-that-dont-exist-but-should/)
-- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
+- [sign language russian](https://lifestyle.allwomenstalk.com/sign-language-infographics-thatll-make-you-smarter/)
+- [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
 - [psychology of a nosy person](https://funny.allwomenstalk.com/comebacks-for-all-of-the-nosy-people-in-your-life/)
+- [recent additions to the dictionary](https://lifestyle.allwomenstalk.com/a-few-new-words-being-added-to-the-dictionary/)
+- [11 rules of grammar](https://lifestyle.allwomenstalk.com/grammar-rules-that-most-people-have-never-learned/)
+- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
 - [20 Funny Jokes about Men ...](https://allwomenstalk.com/20-funny-jokes-about-men/)
 - [10 Worst Pick up Lines ...](https://allwomenstalk.com/10-worst-pick-up-lines/)
 

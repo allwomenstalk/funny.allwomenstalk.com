@@ -42,16 +42,16 @@ Misused expressions and words are often funny. They make some of us go into gram
 
 ## Related Posts
 
-- [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
-- [7 Popular Sayings That Are Just Plain Dumb ...](https://lifestyle.allwomenstalk.com/popular-sayings-that-are-just-plain-dumb/)
-- [words teenagers use](https://teen.allwomenstalk.com/words-teenagers-love-to-use/)
-- [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
-- [funny signs to make](https://funny.allwomenstalk.com/funny-signs-to-make-you-chuckle-and-scratch-your-head/)
 - [when something means something else](https://lifestyle.allwomenstalk.com/colloquial-words-that-used-to-mean-something-else/)
-- [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
-- [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
-- [who invented tv shows](https://movies.allwomenstalk.com/words-invented-by-tv-shows/)
+- [7 Popular Sayings That Are Just Plain Dumb ...](https://lifestyle.allwomenstalk.com/popular-sayings-that-are-just-plain-dumb/)
 - [latin motos](https://funny.allwomenstalk.com/funny-latin-phrases-youll-benefit-from-learning/)
+- [funny signs to make](https://funny.allwomenstalk.com/funny-signs-to-make-you-chuckle-and-scratch-your-head/)
+- [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
+- [words teenagers use](https://teen.allwomenstalk.com/words-teenagers-love-to-use/)
+- [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
+- [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
+- [who invented tv shows](https://movies.allwomenstalk.com/words-invented-by-tv-shows/)
+- [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
 - [7 Verbal Mistakes You Make ...](https://lifestyle.allwomenstalk.com/verbal-mistakes-you-make/)
 - [7 Phrases I Cordially Detest ...](https://allwomenstalk.com/7-phrases-i-cordially-detest/)
 

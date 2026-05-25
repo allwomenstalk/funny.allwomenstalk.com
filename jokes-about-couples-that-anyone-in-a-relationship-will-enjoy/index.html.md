@@ -42,16 +42,16 @@ As much fun as it is to laugh about how horrible marriage and relationships can 
 
 ## Related Posts
 
-- [how to start a serious relationship](https://love.allwomenstalk.com/things-you-should-know-before-starting-a-serious-relationship/)
-- [what is the role of gf](https://love.allwomenstalk.com/important-responsibilities-you-have-as-a-girlfriend/)
-- [i love my girlfriend but something feels off](https://love.allwomenstalk.com/healthy-changes-to-make-in-your-relationship-when-it-feels-off/)
-- [how can you find love](https://love.allwomenstalk.com/ways-to-find-love/)
 - [when to talk about religion in a relationship](https://love.allwomenstalk.com/ways-to-handle-a-relationship-when-you-have-different-religious-views/)
-- [things happen when they are supposed to](https://love.allwomenstalk.com/things-that-are-supposed-to-happen-on-a-date/)
-- [starting a new relationship](https://love.allwomenstalk.com/things-to-keep-in-mind-at-the-start-of-a-new-relationship/)
 - [best things about marriage](https://love.allwomenstalk.com/best-things-about-being-married/)
-- [high school dating advice](https://teen.allwomenstalk.com/fond-memories-of-dating-in-high-school-youll-carry-with-you/)
 - [how to make a relationship work when youre both bu...](https://love.allwomenstalk.com/tips-for-keeping-your-relationship-strong-when-youre-both-crazy-busy/)
+- [things happen when they are supposed to](https://love.allwomenstalk.com/things-that-are-supposed-to-happen-on-a-date/)
+- [how to start a serious relationship](https://love.allwomenstalk.com/things-you-should-know-before-starting-a-serious-relationship/)
+- [i love my girlfriend but something feels off](https://love.allwomenstalk.com/healthy-changes-to-make-in-your-relationship-when-it-feels-off/)
+- [starting a new relationship](https://love.allwomenstalk.com/things-to-keep-in-mind-at-the-start-of-a-new-relationship/)
+- [what is the role of gf](https://love.allwomenstalk.com/important-responsibilities-you-have-as-a-girlfriend/)
+- [high school dating advice](https://teen.allwomenstalk.com/fond-memories-of-dating-in-high-school-youll-carry-with-you/)
+- [how can you find love](https://love.allwomenstalk.com/ways-to-find-love/)
 - [8 Comedies to Watch with Your Boyfriend ...](https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/)
 - [7 Dirty Pick up Lines That Will Make You Laugh and...](https://allwomenstalk.com/7-really-terrible-pick-up-lines-from-movies/)
 

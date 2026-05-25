@@ -42,16 +42,16 @@ There's no reason to stress out about life when you could let things roll off of
 
 ## Related Posts
 
-- [how to follow your dreams](https://inspiration.allwomenstalk.com/ways-to-follow-your-dreams-while-remaining-realistic/)
 - [can bring order](https://lifestyle.allwomenstalk.com/ways-a-planner-can-bring-order-to-your-life/)
-- [pride and prejudice 2005 drinking game](https://books.allwomenstalk.com/ways-to-live-like-a-jane-austen-character/)
-- [tips on how to succeed in life](https://inspiration.allwomenstalk.com/daily-tips-to-help-you-succeed-in-all-avenues-of-life/)
-- [how to respond positively](https://inspiration.allwomenstalk.com/positive-responses-that-will-turn-your-life-around/)
 - [how to give back to your community](https://lifestyle.allwomenstalk.com/ways-to-give-back-to-your-community/)
+- [living in the slow lane](https://inspiration.allwomenstalk.com/ways-to-live-life-in-the-slow-lane/)
+- [free confidence apps](https://inspiration.allwomenstalk.com/websites-to-build-your-confidence-and-boost-your-self-love/)
+- [how to respond positively](https://inspiration.allwomenstalk.com/positive-responses-that-will-turn-your-life-around/)
+- [how to follow your dreams](https://inspiration.allwomenstalk.com/ways-to-follow-your-dreams-while-remaining-realistic/)
+- [tips on how to succeed in life](https://inspiration.allwomenstalk.com/daily-tips-to-help-you-succeed-in-all-avenues-of-life/)
 - [short motivational mantras](https://inspiration.allwomenstalk.com/motivational-mantras-to-repeat-daily/)
 - [things you have to wait for](https://inspiration.allwomenstalk.com/things-you-should-stop-waiting-for-and-just-do-already/)
-- [free confidence apps](https://inspiration.allwomenstalk.com/websites-to-build-your-confidence-and-boost-your-self-love/)
-- [living in the slow lane](https://inspiration.allwomenstalk.com/ways-to-live-life-in-the-slow-lane/)
+- [pride and prejudice 2005 drinking game](https://books.allwomenstalk.com/ways-to-live-like-a-jane-austen-character/)
 - [7 Foods That Make You Happy ...](https://allwomenstalk.com/7-foods-that-make-you-happy/)
 - [7 Tips in Life That Lead to Happiness ...](https://allwomenstalk.com/7-tips-in-life-that-lead-to-happiness/)
 

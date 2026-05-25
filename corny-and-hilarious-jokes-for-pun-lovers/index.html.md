@@ -117,16 +117,16 @@ Sources: _punoftheday.com_ and _yourdictionary.com_
 
 ## Related Posts
 
-- [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
-- [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
-- [all intensive purposes other misused phrases](https://funny.allwomenstalk.com/commonly-misused-words-and-expressions-in-my-neck-of-the-woods/)
-- [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
 - [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
+- [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
 - [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
 - [if youre here whos running heaven](https://funny.allwomenstalk.com/funny-replies-to-overused-pesky-pick-up-lines/)
-- [paris riche stylo smoky eye spark](https://inspiration.allwomenstalk.com/limiting-phrases-you-say-that-age-you/)
 - [50s slang for cool](https://funny.allwomenstalk.com/silly-slang-terms-from-the-50s-to-bring-back/)
+- [paris riche stylo smoky eye spark](https://inspiration.allwomenstalk.com/limiting-phrases-you-say-that-age-you/)
+- [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
+- [all intensive purposes other misused phrases](https://funny.allwomenstalk.com/commonly-misused-words-and-expressions-in-my-neck-of-the-woods/)
 - [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
+- [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
 - [7 Amazing Satirists ...](https://allwomenstalk.com/7-amazing-satirists/)
 - [9 Movies That Make Me Laugh ...](https://7fun.net/9-movies-that-make-me-laugh/)
 

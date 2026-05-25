@@ -116,16 +116,16 @@ To see more of Gavin's work, visit his website at [zenpencils.com](http://www.ze
 
 ## Related Posts
 
-- [best stores for phone cases](https://lifestyle.allwomenstalk.com/the-best-websites-for-buying-cute-phone-cases/)
 - [food trucks in nyc](https://food.allwomenstalk.com/food-trucks-in-nyc-everyone-is-talking-about/)
+- [best stores for phone cases](https://lifestyle.allwomenstalk.com/the-best-websites-for-buying-cute-phone-cases/)
+- [buy tickets to concerts](https://music.allwomenstalk.com/the-best-websites-for-buying-concert-tickets/)
+- [games you can play with paper and pen](https://lifestyle.allwomenstalk.com/paper-and-pen-games-that-are-a-blast-from-the-past/)
+- [things that make life easier](https://lifestyle.allwomenstalk.com/gadgets-thatll-make-a-girls-life-easier/)
+- [cyborg technologies](https://lifestyle.allwomenstalk.com/cyborg-technologies-that-will-turn-you-into-robocop/)
+- [girl gadgets](https://food.allwomenstalk.com/unique-kitchen-gadgets-every-girl-has-got-to-have/)
 - [websites like etsy](https://lifestyle.allwomenstalk.com/if-you-love-etsy-then-youll-love-these-sites/)
 - [how to get faster hotel wifi](https://lifestyle.allwomenstalk.com/laptop-hacks-how-to-get-faster-wifi/)
 - [21 pineapples](https://lifestyle.allwomenstalk.com/pineapple-themed-things-you-need-in-your-life/)
-- [buy tickets to concerts](https://music.allwomenstalk.com/the-best-websites-for-buying-concert-tickets/)
-- [things that make life easier](https://lifestyle.allwomenstalk.com/gadgets-thatll-make-a-girls-life-easier/)
-- [girl gadgets](https://food.allwomenstalk.com/unique-kitchen-gadgets-every-girl-has-got-to-have/)
-- [cyborg technologies](https://lifestyle.allwomenstalk.com/cyborg-technologies-that-will-turn-you-into-robocop/)
-- [games you can play with paper and pen](https://lifestyle.allwomenstalk.com/paper-and-pen-games-that-are-a-blast-from-the-past/)
 - [PRODUCT REVIEW: Tarte the Eraser ...](https://allwomenstalk.com/product-review-tarte-the-eraser/)
 - [The Pen-It Does It for Mac](https://allwomenstalk.com/the-pen-it-does-it-for-mac/)
 

@@ -55,15 +55,15 @@ Do you ever have these inappropriate thoughts pop into your mind?
 
 ## Related Posts
 
-- [questions to ask before hooking up](https://love.allwomenstalk.com/questions-to-ask-before-having-sex-with-him/)
-- [sexy bedroom clothing](https://love.allwomenstalk.com/be-confident-and-sexy-in-the-bedroom/)
-- [k1 yoga pose](https://fitness.allwomenstalk.com/yoga-poses-for-a-better-sex-life/)
-- [Masturbation is Good for You ...](https://health.allwomenstalk.com/masturbation-is-good-for-you/)
-- [7 Pieces of Love Advice from Sex in the City ...](https://love.allwomenstalk.com/pieces-of-love-advice-from-sex-in-the-city/)
+- [funny ways to decline an invitation](https://funny.allwomenstalk.com/funny-ways-to-turn-down-sex-when-youre-not-in-the-mood/)
 - [bondage tips](https://love.allwomenstalk.com/bondage-tips-to-get-your-50-shades-on/)
 - [casual stories](https://love.allwomenstalk.com/short-story-casual-sex/)
+- [7 Pieces of Love Advice from Sex in the City ...](https://love.allwomenstalk.com/pieces-of-love-advice-from-sex-in-the-city/)
+- [questions to ask before hooking up](https://love.allwomenstalk.com/questions-to-ask-before-having-sex-with-him/)
+- [sexy bedroom clothing](https://love.allwomenstalk.com/be-confident-and-sexy-in-the-bedroom/)
+- [Masturbation is Good for You ...](https://health.allwomenstalk.com/masturbation-is-good-for-you/)
 - [sexy questions and answers](https://love.allwomenstalk.com/sexy-questions-to-ask-your-man/)
-- [funny ways to decline an invitation](https://funny.allwomenstalk.com/funny-ways-to-turn-down-sex-when-youre-not-in-the-mood/)
+- [k1 yoga pose](https://fitness.allwomenstalk.com/yoga-poses-for-a-better-sex-life/)
 - [virgin girl story](https://love.allwomenstalk.com/short-story-no-longer-a-virgin/)
 - [8 Tips for Sexually Active Teenage Girls ...](https://allwomenstalk.com/8-tips-to-teenage-girls-that-are-having-sex/)
 - [7 Blissful Feelings Only a Woman Can Experience .....](https://allwomenstalk.com/7-blissful-feelings-only-a-woman-can-experience/)

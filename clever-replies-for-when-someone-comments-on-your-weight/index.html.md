@@ -44,14 +44,14 @@ No matter what you weigh, others will criticize you for it. That's why you shoul
 
 - [weight loss infographics](https://weightloss.allwomenstalk.com/weight-loss-infographics-to-keep-you-in-the-know/)
 - [is suya good for weight loss](https://food.allwomenstalk.com/foods-perfect-for-weight-loss/)
-- [creative ways to lose weight](https://weightloss.allwomenstalk.com/easy-and-creative-weight-loss-tips-to-transform-your-lifestyle/)
-- [healthy condiments for weight loss](https://food.allwomenstalk.com/condiment-swaps-that-can-help-you-lose-weight/)
 - [fridge quotes](https://weightloss.allwomenstalk.com/want-to-lose-weight-inspiring-quotes-to-hang-on-your-fridge/)
-- [80 20 rule losing weight](https://weightloss.allwomenstalk.com/wonderful-weight-loss-infographics-to-help-you-achieve-your-goals/)
 - [how to help a friend lose weight](https://weightloss.allwomenstalk.com/ways-to-support-a-friend-whos-trying-to-lose-weight/)
-- [dita von teese exercise](https://fitness.allwomenstalk.com/exercises-to-drop-a-dresssize/)
 - [how to stop eating to lose weight](https://weightloss.allwomenstalk.com/the-key-to-losing-weight-how-to-stop-eating-when-youre-full/)
+- [dita von teese exercise](https://fitness.allwomenstalk.com/exercises-to-drop-a-dresssize/)
+- [80 20 rule losing weight](https://weightloss.allwomenstalk.com/wonderful-weight-loss-infographics-to-help-you-achieve-your-goals/)
+- [healthy condiments for weight loss](https://food.allwomenstalk.com/condiment-swaps-that-can-help-you-lose-weight/)
 - [workouts to lose 10 pounds in a month](https://fitness.allwomenstalk.com/workouts-to-help-you-lose-10-pounds-in-30-days/)
+- [creative ways to lose weight](https://weightloss.allwomenstalk.com/easy-and-creative-weight-loss-tips-to-transform-your-lifestyle/)
 - [10 Beautiful and Highly Motivational Weight Loss Q...](https://weightloss.allwomenstalk.com/beautiful-and-highly-motivational-weight-loss-quotes/)
 - [Weight Your Life ...](https://allwomenstalk.com/weight-your-life/)
 

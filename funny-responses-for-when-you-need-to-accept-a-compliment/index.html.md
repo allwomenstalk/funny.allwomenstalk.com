@@ -50,16 +50,16 @@ If you're afraid to use any of these comments, then simply say, "Thank you!" It'
 
 ## Related Posts
 
-- [glamorous words](https://lifestyle.allwomenstalk.com/classy-words-to-use-to-sound-like-a-lady/)
-- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
-- [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
-- [invented words by shakespeare](https://lifestyle.allwomenstalk.com/words-invented-by-shakespeare-we-still-use-today/)
-- [is conversate a real word](https://lifestyle.allwomenstalk.com/words-you-use-that-dont-actually-exist-in-dictionaries/)
-- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
 - [how to turn down a date](https://funny.allwomenstalk.com/funny-responses-to-use-when-turning-down-a-date/)
+- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
+- [glamorous words](https://lifestyle.allwomenstalk.com/classy-words-to-use-to-sound-like-a-lady/)
+- [frases de falta de respeto](https://lifestyle.allwomenstalk.com/disrespectful-phrases-to-stop-using-to-be-more-likable/)
 - [oscar wilde insults](https://books.allwomenstalk.com/best-literary-insults-to-steal/)
 - [kissing humor](https://funny.allwomenstalk.com/cute-jokes-about-kissing/)
-- [frases de falta de respeto](https://lifestyle.allwomenstalk.com/disrespectful-phrases-to-stop-using-to-be-more-likable/)
+- [is conversate a real word](https://lifestyle.allwomenstalk.com/words-you-use-that-dont-actually-exist-in-dictionaries/)
+- [invented words by shakespeare](https://lifestyle.allwomenstalk.com/words-invented-by-shakespeare-we-still-use-today/)
+- [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
+- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
 - [5 Things to Make You Smile ...](https://allwomenstalk.com/5-things-to-make-you-smile-2/)
 - [15 Easy Compliments to Give Someone You Meet for t...](https://inspiration.allwomenstalk.com/easy-compliments-to-give-someone-you-meet-for-the-first-time/)
 

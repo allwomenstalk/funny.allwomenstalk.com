@@ -120,16 +120,16 @@ I actually have never tried this and think it's genius.
 
 ## Related Posts
 
-- [big but](https://beauty.allwomenstalk.com/struggles-that-women-with-big-butts-deal-with/)
-- [good things about monday](https://inspiration.allwomenstalk.com/things-successful-women-do-on-monday-mornings/)
-- [high heels broken](https://shoes.allwomenstalk.com/how-to-survive-when-your-heels-break/)
-- [when he calls you a strong woman](https://inspiration.allwomenstalk.com/bitchy-qualities-that-actually-make-you-a-strong-woman/)
-- [yoga positions for anxiety](https://fitness.allwomenstalk.com/yoga-poses-for-women-with-social-anxiety/)
-- [act of deliciousness](https://funny.allwomenstalk.com/every-woman-will-understand-these-delicious-acts/)
-- [women style tips](https://fashion.allwomenstalk.com/every-woman-in-her-20s-should-follow-these-style-rules/)
 - [college girl do](https://lifestyle.allwomenstalk.com/every-college-girl-should-do-these-things-at-least-once/)
-- [learn how to twerk for beginners](https://lifestyle.allwomenstalk.com/ladies-its-time-to-learn-how-to-twerk/)
+- [yoga positions for anxiety](https://fitness.allwomenstalk.com/yoga-poses-for-women-with-social-anxiety/)
+- [when he calls you a strong woman](https://inspiration.allwomenstalk.com/bitchy-qualities-that-actually-make-you-a-strong-woman/)
+- [good things about monday](https://inspiration.allwomenstalk.com/things-successful-women-do-on-monday-mornings/)
+- [big but](https://beauty.allwomenstalk.com/struggles-that-women-with-big-butts-deal-with/)
 - [lesson note on concept of moderation](https://lifestyle.allwomenstalk.com/things-women-should-only-do-in-moderation/)
+- [act of deliciousness](https://funny.allwomenstalk.com/every-woman-will-understand-these-delicious-acts/)
+- [learn how to twerk for beginners](https://lifestyle.allwomenstalk.com/ladies-its-time-to-learn-how-to-twerk/)
+- [high heels broken](https://shoes.allwomenstalk.com/how-to-survive-when-your-heels-break/)
+- [women style tips](https://fashion.allwomenstalk.com/every-woman-in-her-20s-should-follow-these-style-rules/)
 - [9 Embarrassing Things Women do for Beauty ...](https://beauty.allwomenstalk.com/embarrassing-things-women-do-for-beauty/)
 - [10 Things Girls do but Are Too Embarrassed to Admi...](https://allwomenstalk.com/10-things-girls-do-but-are-too-embarrassed-to-admit/)
 

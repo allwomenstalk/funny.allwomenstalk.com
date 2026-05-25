@@ -56,16 +56,16 @@ No matter the heroine, each of these girls kicks butt and has an amazing story t
 
 ## Related Posts
 
-- [famous fictional women](https://inspiration.allwomenstalk.com/of-the-best-fictional-heroines/)
-- [current blues guitarists](https://music.allwomenstalk.com/amazing-female-blues-guitarists-you-have-to-hear/)
-- [movie character names female](https://movies.allwomenstalk.com/most-amazing-female-movie-characters/)
 - [protective animal mothers](https://parenting.allwomenstalk.com/truly-admirable-mothers-in-the-animal-kingdom/)
-- [female serial killers in the 1800s](https://lifestyle.allwomenstalk.com/freakiest-female-serial-killers/)
+- [current blues guitarists](https://music.allwomenstalk.com/amazing-female-blues-guitarists-you-have-to-hear/)
 - [oporah winfrey](https://inspiration.allwomenstalk.com/successful-women-to-inspire-you-in-your-career/)
-- [best anime for teen girls](https://movies.allwomenstalk.com/amazing-anime-shows-teenage-girls-will-love/)
+- [female serial killers in the 1800s](https://lifestyle.allwomenstalk.com/freakiest-female-serial-killers/)
+- [famous fictional women](https://inspiration.allwomenstalk.com/of-the-best-fictional-heroines/)
 - [saturday night live armpits](https://celebs.allwomenstalk.com/hilarious-ladies-from-saturday-night-live/)
-- [female 80s rock stars](https://music.allwomenstalk.com/amazing-rocker-chicks-from-the-80s/)
+- [best anime for teen girls](https://movies.allwomenstalk.com/amazing-anime-shows-teenage-girls-will-love/)
+- [movie character names female](https://movies.allwomenstalk.com/most-amazing-female-movie-characters/)
 - [female mom remember](https://lifestyle.allwomenstalk.com/wonderful-women-to-remember-on-mothers-day/)
+- [female 80s rock stars](https://music.allwomenstalk.com/amazing-rocker-chicks-from-the-80s/)
 - [7 Top Action Heros ...](https://movies.allwomenstalk.com/7-top-action-heros/)
 - [9 Most Iconic Super Heroes ...](https://movies.allwomenstalk.com/9-most-iconic-super-heroes/)
 

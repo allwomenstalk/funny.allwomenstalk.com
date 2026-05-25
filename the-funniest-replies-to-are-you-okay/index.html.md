@@ -43,15 +43,15 @@ You don't have to tell anyone about your problems, hopes, and dreams, just becau
 ## Related Posts
 
 - [5 love languages infographic](https://lifestyle.allwomenstalk.com/love-languages-check-out-these-infographics-on-words-and-language/)
-- [ways to tell your boyfriend you got your period](https://funny.allwomenstalk.com/classy-ways-to-say-youre-on-your-period/)
-- [straight forward text](https://love.allwomenstalk.com/texts-messages-you-should-stop-overanalyzing/)
-- [another word for flirting](https://love.allwomenstalk.com/seductive-words-to-use-when-flirting/)
-- [why you so quiet](https://funny.allwomenstalk.com/clever-responses-for-when-others-call-you-quiet/)
-- [funny ways of answering the phone](https://funny.allwomenstalk.com/funny-replies-for-when-the-teacher-calls-on-you/)
 - [stuff to tell your boyfriend](https://love.allwomenstalk.com/corny-phrases-hell-actually-love-to-hear/)
-- [7 Silly Internet Mistakes Most People Are Making E...](https://lifestyle.allwomenstalk.com/silly-internet-mistakes-you-need-to-stop-making-today/)
 - [ways of introducing yourself](https://lifestyle.allwomenstalk.com/different-ways-to-introduce-yourself/)
+- [straight forward text](https://love.allwomenstalk.com/texts-messages-you-should-stop-overanalyzing/)
+- [funny ways of answering the phone](https://funny.allwomenstalk.com/funny-replies-for-when-the-teacher-calls-on-you/)
+- [7 Silly Internet Mistakes Most People Are Making E...](https://lifestyle.allwomenstalk.com/silly-internet-mistakes-you-need-to-stop-making-today/)
+- [another word for flirting](https://love.allwomenstalk.com/seductive-words-to-use-when-flirting/)
 - [describing words about yourself](https://inspiration.allwomenstalk.com/confidence-boosting-words-to-use-to-describe-yourself/)
+- [ways to tell your boyfriend you got your period](https://funny.allwomenstalk.com/classy-ways-to-say-youre-on-your-period/)
+- [why you so quiet](https://funny.allwomenstalk.com/clever-responses-for-when-others-call-you-quiet/)
 - [Got Question We Have Answers](https://allwomenstalk.com/got-question-we-have-answers/)
 - [Clever Ways to Survive an Awkward Situation ...](https://funny.allwomenstalk.com/clever-ways-to-survive-an-awkward-situation/)
 

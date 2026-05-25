@@ -116,16 +116,16 @@ Not all men tell you to smile in order to be rude. Sometimes, it's a friendly re
 
 ## Related Posts
 
-- [cute names to save your boyfriends number](https://love.allwomenstalk.com/cute-names-to-list-your-boyfriend-as-on-your-phone/)
-- [funny ways to leave a group chat](https://funny.allwomenstalk.com/silly-lines-you-can-use-to-end-a-conversation/)
-- [when you dont know what to say](https://funny.allwomenstalk.com/funny-lines-for-when-you-cant-think-of-anything-else-to-say/)
-- [like white on rice similar sayings](https://lifestyle.allwomenstalk.com/replacement-phrases-to-omg-that-sound-more-mature/)
-- [funny comebacks and insults](https://funny.allwomenstalk.com/comebacks-to-use-when-speaking-to-someone-stupid/)
-- [idiom let sleeping dogs lie](https://lifestyle.allwomenstalk.com/idioms-you-should-start-using-more-often/)
-- [naughty jokes for boyfriend](https://love.allwomenstalk.com/dirty-jokes-you-should-tell-your-crush/)
-- [plain black tattoo](https://funny.allwomenstalk.com/silly-tattoos-you-wont-believe-someone-actually-stuck-with/)
-- [words to sound intelligent](https://lifestyle.allwomenstalk.com/avoid-these-words-that-can-make-you-sound-uneducated/)
 - [funny words for period](https://funny.allwomenstalk.com/silly-period-puns-to-make-that-time-of-the-month-feel-better/)
+- [when you dont know what to say](https://funny.allwomenstalk.com/funny-lines-for-when-you-cant-think-of-anything-else-to-say/)
+- [plain black tattoo](https://funny.allwomenstalk.com/silly-tattoos-you-wont-believe-someone-actually-stuck-with/)
+- [cute names to save your boyfriends number](https://love.allwomenstalk.com/cute-names-to-list-your-boyfriend-as-on-your-phone/)
+- [idiom let sleeping dogs lie](https://lifestyle.allwomenstalk.com/idioms-you-should-start-using-more-often/)
+- [funny ways to leave a group chat](https://funny.allwomenstalk.com/silly-lines-you-can-use-to-end-a-conversation/)
+- [naughty jokes for boyfriend](https://love.allwomenstalk.com/dirty-jokes-you-should-tell-your-crush/)
+- [funny comebacks and insults](https://funny.allwomenstalk.com/comebacks-to-use-when-speaking-to-someone-stupid/)
+- [words to sound intelligent](https://lifestyle.allwomenstalk.com/avoid-these-words-that-can-make-you-sound-uneducated/)
+- [like white on rice similar sayings](https://lifestyle.allwomenstalk.com/replacement-phrases-to-omg-that-sound-more-mature/)
 - [7 Funny Jokes to Help You Smile ...](https://allwomenstalk.com/7-funny-jokes-to-help-you-smile/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 

@@ -58,16 +58,16 @@ Anything men can do, we can do better. That's why we should show them how clever
 
 ## Related Posts
 
+- [flirting 101 for guys](https://love.allwomenstalk.com/flirting-101-showing-off-these-skills-is-sure-to-get-any-guys-attention/)
+- [how to make the first move with a guy](https://love.allwomenstalk.com/how-to-make-the-first-move-on-a-guy-when-youre-shy/)
+- [an adventurous person](https://love.allwomenstalk.com/the-survival-manual-for-dating-a-guy-who-lives-for-adventure/)
 - [eugene buzzfeed](https://funny.allwomenstalk.com/ready-for-your-next-crush-these-videos-will-have-you-head-over-heels-with-the-try-guys/)
 - [how to not be nervous around your crush](https://love.allwomenstalk.com/avoid-embarrassment-how-to-control-yourself-around-your-crush/)
 - [how do i call my crush](https://love.allwomenstalk.com/what-to-do-when-your-crush-doesnt-even-know-your-name/)
-- [he shy](https://love.allwomenstalk.com/decoding-shy-guys-signs-he-wants-you-to-make-the-first-move/)
-- [my boyfriend doesnt tell me his whereabouts](https://love.allwomenstalk.com/men-are-more-sensitive-than-you-think-things-you-didnt-realize-hurt-his-feelings/)
-- [an adventurous person](https://love.allwomenstalk.com/the-survival-manual-for-dating-a-guy-who-lives-for-adventure/)
-- [flirting 101 for guys](https://love.allwomenstalk.com/flirting-101-showing-off-these-skills-is-sure-to-get-any-guys-attention/)
-- [how to spice up a kiss](https://love.allwomenstalk.com/impress-your-boyfriend-with-these-new-kissing-techniques/)
 - [how to be more attractive for your boyfriend](https://love.allwomenstalk.com/heres-how-to-make-your-man-feel-more-confident-and-attractive/)
-- [how to make the first move with a guy](https://love.allwomenstalk.com/how-to-make-the-first-move-on-a-guy-when-youre-shy/)
+- [my boyfriend doesnt tell me his whereabouts](https://love.allwomenstalk.com/men-are-more-sensitive-than-you-think-things-you-didnt-realize-hurt-his-feelings/)
+- [he shy](https://love.allwomenstalk.com/decoding-shy-guys-signs-he-wants-you-to-make-the-first-move/)
+- [how to spice up a kiss](https://love.allwomenstalk.com/impress-your-boyfriend-with-these-new-kissing-techniques/)
 - [Flirty Texts for Him to Make His Day ...](https://love.allwomenstalk.com/text-flirting-ideas-to-try-today/)
 - [Flirt with Your Classroom Crush Using These Hyster...](https://funny.allwomenstalk.com/hysterical-pick-up-lines-that-will-work-in-the-classroom/)
 

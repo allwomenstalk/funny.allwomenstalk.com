@@ -42,16 +42,16 @@ You're gorgeous, but you deserve to hear about your beauty in a respectful way, 
 
 ## Related Posts
 
-- [feel like royalty](https://lifestyle.allwomenstalk.com/fancy-words-to-use-thatll-make-you-feel-like-royalty/)
-- [british slang for goodbye](https://lifestyle.allwomenstalk.com/british-slang-words-that-should-be-used-all-around-the-world/)
 - [el emoji nervioso](https://lifestyle.allwomenstalk.com/emojis-you-didnt-know-you-were-using-wrong/)
 - [back handed compliment examples](https://funny.allwomenstalk.com/backhanded-compliments-to-give-your-enemies/)
-- [words aesthetic](https://lifestyle.allwomenstalk.com/aesthetically-pleasing-words-youll-love-to-say/)
-- [strange language](https://lifestyle.allwomenstalk.com/strange-languages-youve-never-heard-of-until-now/)
+- [feel like royalty](https://lifestyle.allwomenstalk.com/fancy-words-to-use-thatll-make-you-feel-like-royalty/)
 - [hawaii saying](https://lifestyle.allwomenstalk.com/hawaiian-words-to-learn-besides-aloha/)
 - [substitute cuss words](https://lifestyle.allwomenstalk.com/stop-cursing-by-using-these-alternative-insult-words-instead/)
 - [flow chart quizzes](https://funny.allwomenstalk.com/need-a-laugh-these-funny-flow-charts-can-help/)
+- [british slang for goodbye](https://lifestyle.allwomenstalk.com/british-slang-words-that-should-be-used-all-around-the-world/)
+- [strange language](https://lifestyle.allwomenstalk.com/strange-languages-youve-never-heard-of-until-now/)
 - [funny ways to reject someone asking you out](https://funny.allwomenstalk.com/funny-responses-for-when-a-guy-rejects-you/)
+- [words aesthetic](https://lifestyle.allwomenstalk.com/aesthetically-pleasing-words-youll-love-to-say/)
 - [Fighting Words: Names We Call Ourselves and Each O...](https://allwomenstalk.com/fighting-words-names-we-call-ourselves-and-each-other/)
 - [8 Ways to Stand up for Yourself ...](https://allwomenstalk.com/8-ways-to-stand-up-for-yourself/)
 

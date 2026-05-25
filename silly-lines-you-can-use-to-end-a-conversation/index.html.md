@@ -116,16 +116,16 @@ The next time you're stuck talking to someone, use one of these lines. What othe
 
 ## Related Posts
 
-- [when you dont know what to say](https://funny.allwomenstalk.com/funny-lines-for-when-you-cant-think-of-anything-else-to-say/)
-- [idiom let sleeping dogs lie](https://lifestyle.allwomenstalk.com/idioms-you-should-start-using-more-often/)
-- [plain black tattoo](https://funny.allwomenstalk.com/silly-tattoos-you-wont-believe-someone-actually-stuck-with/)
-- [like white on rice similar sayings](https://lifestyle.allwomenstalk.com/replacement-phrases-to-omg-that-sound-more-mature/)
-- [naughty jokes for boyfriend](https://love.allwomenstalk.com/dirty-jokes-you-should-tell-your-crush/)
 - [cute names to save your boyfriends number](https://love.allwomenstalk.com/cute-names-to-list-your-boyfriend-as-on-your-phone/)
+- [naughty jokes for boyfriend](https://love.allwomenstalk.com/dirty-jokes-you-should-tell-your-crush/)
+- [like white on rice similar sayings](https://lifestyle.allwomenstalk.com/replacement-phrases-to-omg-that-sound-more-mature/)
 - [words to sound intelligent](https://lifestyle.allwomenstalk.com/avoid-these-words-that-can-make-you-sound-uneducated/)
-- [funny comebacks and insults](https://funny.allwomenstalk.com/comebacks-to-use-when-speaking-to-someone-stupid/)
-- [funny words for period](https://funny.allwomenstalk.com/silly-period-puns-to-make-that-time-of-the-month-feel-better/)
 - [inoffensive jokes](https://funny.allwomenstalk.com/inoffensive-dad-jokes-you-can-tell-anyone-and-everyone/)
+- [funny comebacks and insults](https://funny.allwomenstalk.com/comebacks-to-use-when-speaking-to-someone-stupid/)
+- [plain black tattoo](https://funny.allwomenstalk.com/silly-tattoos-you-wont-believe-someone-actually-stuck-with/)
+- [funny words for period](https://funny.allwomenstalk.com/silly-period-puns-to-make-that-time-of-the-month-feel-better/)
+- [idiom let sleeping dogs lie](https://lifestyle.allwomenstalk.com/idioms-you-should-start-using-more-often/)
+- [when you dont know what to say](https://funny.allwomenstalk.com/funny-lines-for-when-you-cant-think-of-anything-else-to-say/)
 - [7 Dirty Pick up Lines That Will Make You Laugh and...](https://allwomenstalk.com/7-really-terrible-pick-up-lines-from-movies/)
 - [7 Ways to Break That Awkward Silence ...](https://allwomenstalk.com/7-ways-to-break-that-awkward-silence/)
 

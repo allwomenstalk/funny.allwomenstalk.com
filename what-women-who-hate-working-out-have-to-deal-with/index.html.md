@@ -56,16 +56,16 @@ When was the last time you went to the gym?
 
 ## Related Posts
 
-- [college girl do](https://lifestyle.allwomenstalk.com/every-college-girl-should-do-these-things-at-least-once/)
-- [lazy girl gif](https://health.allwomenstalk.com/how-lazy-girls-can-keep-themselves-healthy/)
-- [women style tips](https://fashion.allwomenstalk.com/every-woman-in-her-20s-should-follow-these-style-rules/)
-- [when he calls you a strong woman](https://inspiration.allwomenstalk.com/bitchy-qualities-that-actually-make-you-a-strong-woman/)
-- [high heels broken](https://shoes.allwomenstalk.com/how-to-survive-when-your-heels-break/)
-- [act of deliciousness](https://funny.allwomenstalk.com/every-woman-will-understand-these-delicious-acts/)
-- [short girl problems meme](https://funny.allwomenstalk.com/embarrassing-situations-every-short-woman-has-lived-through/)
 - [learn how to twerk for beginners](https://lifestyle.allwomenstalk.com/ladies-its-time-to-learn-how-to-twerk/)
+- [when he calls you a strong woman](https://inspiration.allwomenstalk.com/bitchy-qualities-that-actually-make-you-a-strong-woman/)
+- [act of deliciousness](https://funny.allwomenstalk.com/every-woman-will-understand-these-delicious-acts/)
 - [big but](https://beauty.allwomenstalk.com/struggles-that-women-with-big-butts-deal-with/)
+- [college girl do](https://lifestyle.allwomenstalk.com/every-college-girl-should-do-these-things-at-least-once/)
+- [women style tips](https://fashion.allwomenstalk.com/every-woman-in-her-20s-should-follow-these-style-rules/)
+- [lazy girl gif](https://health.allwomenstalk.com/how-lazy-girls-can-keep-themselves-healthy/)
 - [lesson note on concept of moderation](https://lifestyle.allwomenstalk.com/things-women-should-only-do-in-moderation/)
+- [short girl problems meme](https://funny.allwomenstalk.com/embarrassing-situations-every-short-woman-has-lived-through/)
+- [high heels broken](https://shoes.allwomenstalk.com/how-to-survive-when-your-heels-break/)
 - [7 Secrets of Fit Women That You Should Know ...](https://weightloss.allwomenstalk.com/secrets-of-fit-women-that-you-should-know/)
 - [See How Fit You Are: 20 Tough Workouts Only Super ...](https://fitness.allwomenstalk.com/see-how-fit-you-are-tough-workouts-only-super-fit-ladies-can-handle/)
 

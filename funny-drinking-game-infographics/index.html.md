@@ -116,16 +116,16 @@ As long as you never drink and drive, or drink before you hit the legal age, the
 
 ## Related Posts
 
-- [sipping drinks](https://food.allwomenstalk.com/festive-alcoholic-drinks-to-sip-by-the-fire/)
 - [flavor syrups for coffee](https://food.allwomenstalk.com/flavored-syrups-to-stick-in-your-coffee/)
-- [is horchata hot or cold](https://food.allwomenstalk.com/delicious-summer-drinks-you-can-heat-for-the-fall/)
-- [warming alcoholic drinks](https://food.allwomenstalk.com/hot-drinks-to-sip-on-during-the-holidays/)
-- [healthy christmas cocktails](https://food.allwomenstalk.com/guilt-free-holiday-cocktails-that-are-healthier-than-they-look/)
-- [places like teavana](https://food.allwomenstalk.com/where-should-you-shop-for-tasty-tea/)
-- [deans egg nog](https://food.allwomenstalk.com/its-not-a-holiday-until-you-try-these-egg-nog-recipes/)
 - [sandpaper beer](https://food.allwomenstalk.com/beer-hacks-thatll-make-partying-that-much-easier/)
+- [deans egg nog](https://food.allwomenstalk.com/its-not-a-holiday-until-you-try-these-egg-nog-recipes/)
 - [hot cocoa by the fireplace](https://food.allwomenstalk.com/here-are-the-best-hot-cocoa-recipes-to-sip-by-the-fire/)
+- [places like teavana](https://food.allwomenstalk.com/where-should-you-shop-for-tasty-tea/)
 - [hangover cure oyster](https://health.allwomenstalk.com/you-might-need-one-of-these-hangover-cures-this-holiday-season/)
+- [healthy christmas cocktails](https://food.allwomenstalk.com/guilt-free-holiday-cocktails-that-are-healthier-than-they-look/)
+- [is horchata hot or cold](https://food.allwomenstalk.com/delicious-summer-drinks-you-can-heat-for-the-fall/)
+- [sipping drinks](https://food.allwomenstalk.com/festive-alcoholic-drinks-to-sip-by-the-fire/)
+- [warming alcoholic drinks](https://food.allwomenstalk.com/hot-drinks-to-sip-on-during-the-holidays/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 - [7 Fun Drinking Games for Any Party ...](https://allwomenstalk.com/7-fun-drinking-games-for-any-party/)
 

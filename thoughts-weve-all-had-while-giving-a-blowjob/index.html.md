@@ -3,7 +3,7 @@ title: "Thoughts Weve All Had While Giving a Blowjob!"
 description: "\" I Wonder How Blow Jobs Came into Existence\"; \"Am I Doing This Right? I Hope He's Enjoying It\"; \"Should I Make Eye Contact?\"; \"and We've Got Moans, People!\"; \"Did I Send That Urgent E-mail I Was Supposed to Send?\"; More ..."
 url: "https://funny.allwomenstalk.com/thoughts-weve-all-had-while-giving-a-blowjob/"
 category: "funny"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Thoughts Weve All Had While Giving a Blowjob!
@@ -114,16 +114,16 @@ Tell me, what do you usually think about when you're going down on someone?
 
 ## Related Posts
 
+- [kandom ka english name](https://love.allwomenstalk.com/how-to-ask-for-a-condom-in-different-languages/)
 - [dem crazy shirts](https://love.allwomenstalk.com/the-o-factor-ways-to-boost-your-orgasm/)
+- [how does it feel to lose virginity](https://love.allwomenstalk.com/what-youll-really-feel-when-you-lose-your-virginity/)
+- [10 Blowjob Myths Women Need to Stop Believing ...](https://love.allwomenstalk.com/blowjob-myths-women-need-to-stop-believing/)
+- [sexy fact](https://love.allwomenstalk.com/sex-infographics-thatll-teach-you-a-thing-or-two/)
 - [asking for what you want in bed](https://love.allwomenstalk.com/ask-him-these-questions-to-be-the-best-sex-hes-ever-had/)
 - [seductive things](https://love.allwomenstalk.com/sexy-things-to-do-with-your-boyfriend-on-spring-break/)
-- [kandom ka english name](https://love.allwomenstalk.com/how-to-ask-for-a-condom-in-different-languages/)
-- [how does it feel to lose virginity](https://love.allwomenstalk.com/what-youll-really-feel-when-you-lose-your-virginity/)
-- [sexy fact](https://love.allwomenstalk.com/sex-infographics-thatll-teach-you-a-thing-or-two/)
-- [how to feel more confident in bed](https://love.allwomenstalk.com/tips-for-feeling-more-confident-during-sex/)
-- [10 Blowjob Myths Women Need to Stop Believing ...](https://love.allwomenstalk.com/blowjob-myths-women-need-to-stop-believing/)
-- [tlc hair show](https://health.allwomenstalk.com/how-to-show-your-vagina-some-tlc/)
 - [french dirry talk](https://love.allwomenstalk.com/french-phrases-thatll-help-you-have-better-sex/)
+- [tlc hair show](https://health.allwomenstalk.com/how-to-show-your-vagina-some-tlc/)
+- [how to feel more confident in bed](https://love.allwomenstalk.com/tips-for-feeling-more-confident-during-sex/)
 - [My First Kiss Sucked - I Wish I Read This then](https://love.allwomenstalk.com/things-you-didnt-know-about-kissing/)
 - [Be on the Verge of Orgasm with the Slightest Touch...](https://allwomenstalk.com/be-on-the-verge-of-orgasm/)
 

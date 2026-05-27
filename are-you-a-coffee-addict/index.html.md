@@ -3,7 +3,7 @@ title: "Are You a Coffee Addict? ..."
 description: "You Own More Coffee Mugs than Shoes; Everyone KNOWS; The Barista; The Smell Makes Your Mouth Water; The Prep; More ..."
 url: "https://funny.allwomenstalk.com/are-you-a-coffee-addict/"
 category: "funny"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Are You a Coffee Addict? ...
@@ -44,14 +44,14 @@ So... now that you've read through this list, cup of coffee in hand, how addicte
 
 - [Does Your Boyfriend Secretly Want You to Dump Him](https://love.allwomenstalk.com/signs-your-boyfriend-wants-you-to-dump-him/)
 - [Are You Making Any Massive Mistakes in the Shower ...](https://beauty.allwomenstalk.com/mistakes-youre-making-in-the-shower/)
-- [What do These Inkblots Say about You](https://lifestyle.allwomenstalk.com/what-do-these-inkblots-say-about-you/)
-- [loreal color riche stylo smoky glistening](https://love.allwomenstalk.com/whats-your-dating-personality/)
-- [MASH: Whats Your Dream Home](https://lifestyle.allwomenstalk.com/mash-whats-your-dream-home/)
-- [Are You Wearing the Right Foundation](https://makeup.allwomenstalk.com/are-you-wearing-the-right-foundation/)
-- [whats my real age](https://lifestyle.allwomenstalk.com/quiz-whats-your-real-age/)
-- [dancing in the 90s](https://music.allwomenstalk.com/which-90s-dance-are-you/)
 - [Are You in a Dating Rut](https://love.allwomenstalk.com/are-you-in-a-dating-rut/)
 - [why is valentines day overrated](https://love.allwomenstalk.com/ways-valentines-day-is-overrated/)
+- [whats my real age](https://lifestyle.allwomenstalk.com/quiz-whats-your-real-age/)
+- [loreal color riche stylo smoky glistening](https://love.allwomenstalk.com/whats-your-dating-personality/)
+- [dancing in the 90s](https://music.allwomenstalk.com/which-90s-dance-are-you/)
+- [Are You Wearing the Right Foundation](https://makeup.allwomenstalk.com/are-you-wearing-the-right-foundation/)
+- [MASH: Whats Your Dream Home](https://lifestyle.allwomenstalk.com/mash-whats-your-dream-home/)
+- [What do These Inkblots Say about You](https://lifestyle.allwomenstalk.com/what-do-these-inkblots-say-about-you/)
 - [Drinking Coffee Elsewhere  Folgers Gourmet Blends ...](https://allwomenstalk.com/drinking-coffee-elsewhere-folgers-gourmet-blends-so-what/)
 - [These Facts May Make You Rethink Your Junk Food Cr...](https://food.allwomenstalk.com/trivia-and-facts-about-junk-food-that-will-cause-a-rethink/)
 

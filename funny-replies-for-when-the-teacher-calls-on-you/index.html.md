@@ -3,7 +3,7 @@ title: "9 Funny Replies for when the Teacher Calls on You ..."
 description: "Don't You Already Know?; I Have Bigger Problems to Worry about; I'm More Concerned with Why You Wore That Outfit; That's Not My Name; Hold on. Let Me Ask Siri; More ..."
 url: "https://funny.allwomenstalk.com/funny-replies-for-when-the-teacher-calls-on-you/"
 category: "funny"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 9 Funny Replies for when the Teacher Calls on You ...
@@ -51,15 +51,15 @@ Obviously, these things will get you in trouble, which is why you should probabl
 ## Related Posts
 
 - [six word stories funny](https://books.allwomenstalk.com/the-best-6-word-stories-ever-written/)
+- [funny things to say in class](https://funny.allwomenstalk.com/funny-excuses-for-skipping-class/)
 - [stuff to tell your boyfriend](https://love.allwomenstalk.com/corny-phrases-hell-actually-love-to-hear/)
 - [what do drunk texts look like](https://funny.allwomenstalk.com/hysterical-drunk-text-fails/)
-- [funny things to say in class](https://funny.allwomenstalk.com/funny-excuses-for-skipping-class/)
 - [crazy things parents text](https://funny.allwomenstalk.com/embarrassing-things-our-parents-say-over-text/)
 - [hate doesnt know own name](https://lifestyle.allwomenstalk.com/things-you-can-do-if-you-hate-your-name/)
-- [sherlock holmes catch phrases](https://books.allwomenstalk.com/words-to-steal-from-sherlock-holmes/)
-- [brown food names](https://food.allwomenstalk.com/food-names-youve-been-saying-wrong/)
-- [united kingdom accent](https://lifestyle.allwomenstalk.com/how-to-fake-a-british-accent/)
 - [use that word lightly](https://lifestyle.allwomenstalk.com/words-you-should-never-use-lightly/)
+- [brown food names](https://food.allwomenstalk.com/food-names-youve-been-saying-wrong/)
+- [sherlock holmes catch phrases](https://books.allwomenstalk.com/words-to-steal-from-sherlock-holmes/)
+- [united kingdom accent](https://lifestyle.allwomenstalk.com/how-to-fake-a-british-accent/)
 - [8 Reasons Teachers Rule ...](https://parenting.allwomenstalk.com/reasons-teachers-rule/)
 - [7 Tips on Being a Substitute Teacher ...](https://allwomenstalk.com/7-tips-on-being-a-substitute-teacher/)
 

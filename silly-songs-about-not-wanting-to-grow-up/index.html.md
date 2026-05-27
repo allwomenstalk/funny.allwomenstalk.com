@@ -3,7 +3,7 @@ title: "7 Silly Songs about Not Wanting to Grow up ..."
 description: "Grow up by Simple Plan; What's My Age Again by Blink 182; Seventeen Forever by Metro Station; Parents Just Don't Understand by Will Smith; Photograph by NICKELBACK; More ..."
 url: "https://funny.allwomenstalk.com/silly-songs-about-not-wanting-to-grow-up/"
 category: "funny"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Silly Songs about Not Wanting to Grow up ...
@@ -42,15 +42,15 @@ You can't stop yourself from aging, so there's no need to worry about losing you
 
 ## Related Posts
 
-- [tpain without autotune](https://music.allwomenstalk.com/whoa-t-pain-singing-without-auto-tune-will-blow-your-mind/)
 - [no change of heart a change in me](https://music.allwomenstalk.com/broadway-songs-that-are-relatable/)
-- [would that i song](https://music.allwomenstalk.com/awesome-songs-thatll-turn-you-into-a-hozier-fan/)
-- [songs about positive body image](https://music.allwomenstalk.com/body-positive-songs-that-will-make-you-feel-gorgeous/)
-- [defcool](https://music.allwomenstalk.com/ok-go-will-not-let-you-down-with-their-new-music-video/)
-- [yiruma family](https://music.allwomenstalk.com/piano-ballads-from-yiruma-thatll-put-your-mind-at-ease/)
-- [the phoenix fob lyrics](https://music.allwomenstalk.com/fall-out-boy-lyrics-thatll-never-get-old/)
 - [singing impressionist](https://music.allwomenstalk.com/wow-vocal-impressionist-sings-popular-song-in-celeb-voices/)
+- [tpain without autotune](https://music.allwomenstalk.com/whoa-t-pain-singing-without-auto-tune-will-blow-your-mind/)
+- [yiruma family](https://music.allwomenstalk.com/piano-ballads-from-yiruma-thatll-put-your-mind-at-ease/)
+- [defcool](https://music.allwomenstalk.com/ok-go-will-not-let-you-down-with-their-new-music-video/)
+- [would that i song](https://music.allwomenstalk.com/awesome-songs-thatll-turn-you-into-a-hozier-fan/)
 - [indie arie boyfriend](https://music.allwomenstalk.com/empowering-songs-from-india-arie/)
+- [the phoenix fob lyrics](https://music.allwomenstalk.com/fall-out-boy-lyrics-thatll-never-get-old/)
+- [songs about positive body image](https://music.allwomenstalk.com/body-positive-songs-that-will-make-you-feel-gorgeous/)
 - [who dances with ed sheeran in thinking out loud](https://music.allwomenstalk.com/most-amazing-music-videos-so-far-this-year/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 - [7 Funny Jokes for Kids ...](https://allwomenstalk.com/7-funny-jokes-for-kids/)

@@ -3,7 +3,7 @@ title: "Yuk! 12 Stomach Churning Kisses We Cant Stand ..."
 description: "The \"I'm Looking for Lost Treasure in Your Mouth\" Kiss; The \"I'm a Puppy\" Kiss; The \"I'm Going to Eat You\" Kiss; The \"closed Mouth\" Kiss; The \"Eye Opener\"; More ..."
 url: "https://funny.allwomenstalk.com/yuk-stomach-churning-kisses-we-cant-stand/"
 category: "funny"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Yuk! 12 Stomach Churning Kisses We Cant Stand ...
@@ -86,15 +86,15 @@ I'd love to hear some of your horror kiss stories!
 ## Related Posts
 
 - [gamer meme gif](https://funny.allwomenstalk.com/the-most-frustrating-gifs-every-gamer-has-experienced/)
-- [where to watch pramface](https://movies.allwomenstalk.com/shows-you-should-watch-if-youre-obsessed-with-british-boys/)
-- [tattoo skin stories](https://beauty.allwomenstalk.com/a-short-story-for-anyone-who-wants-a-tattoo/)
-- [most addictive podcasts](https://lifestyle.allwomenstalk.com/extremely-addictive-podcasts-you-should-play-today/)
-- [amazon scary stories to tell in the dark](https://books.allwomenstalk.com/you-wont-be-able-to-sleep-after-hearing-these-ghost-stories/)
-- [downton abbey hair styles](https://movies.allwomenstalk.com/shows-that-downton-abbey-fans-will-flip-over/)
-- [what emojis does the google pixel have](https://funny.allwomenstalk.com/android-emoji-vs-iphone-emoji-epic-showdown/)
-- [examples of single stories in real life](https://lifestyle.allwomenstalk.com/one-line-stories-that-will-blow-you-away/)
 - [you stole my heart quotes](https://love.allwomenstalk.com/call-the-cops-the-guy-i-work-with-stole-my-heart/)
+- [most addictive podcasts](https://lifestyle.allwomenstalk.com/extremely-addictive-podcasts-you-should-play-today/)
+- [downton abbey hair styles](https://movies.allwomenstalk.com/shows-that-downton-abbey-fans-will-flip-over/)
+- [where to watch pramface](https://movies.allwomenstalk.com/shows-you-should-watch-if-youre-obsessed-with-british-boys/)
+- [what emojis does the google pixel have](https://funny.allwomenstalk.com/android-emoji-vs-iphone-emoji-epic-showdown/)
+- [tattoo skin stories](https://beauty.allwomenstalk.com/a-short-story-for-anyone-who-wants-a-tattoo/)
 - [tv shows for young adults](https://movies.allwomenstalk.com/young-adults-will-love-these-tv-shows/)
+- [amazon scary stories to tell in the dark](https://books.allwomenstalk.com/you-wont-be-able-to-sleep-after-hearing-these-ghost-stories/)
+- [examples of single stories in real life](https://lifestyle.allwomenstalk.com/one-line-stories-that-will-blow-you-away/)
 - [8 Delicious Must-Have Movie Snacks ...](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
 - [12 Iconic Foods ...](https://cooking.allwomenstalk.com/12-iconic-foods/)
 

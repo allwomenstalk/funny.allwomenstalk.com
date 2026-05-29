@@ -3,7 +3,7 @@ title: "Shockingly Sexist Vintage Ads Youve Got to See to Believe!"
 description: "Take Your Vitamins...so You Can Work Harder for Your Husband?!; It's STILL All about What Men Think of Us; Apparently Having \"middle-age\" Skin Was a Crime....; Talk about Being a \"douche\"bag; Because Men Apparently Smell like Roses All the Time?; More ..."
 url: "https://funny.allwomenstalk.com/shockingly-sexist-vintage-ads-youve-got-to-see-to-believe/"
 category: "funny"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Shockingly Sexist Vintage Ads Youve Got to See to Believe!
@@ -96,16 +96,16 @@ I don't know about you, but sometimes when I look at vintage pictures of well-dr
 
 ## Related Posts
 
-- [miss piggy in glasses](https://lifestyle.allwomenstalk.com/quotes-that-prove-miss-piggy-is-a-feminist-icon/)
+- [women directors in hollywood](https://movies.allwomenstalk.com/film-focus-women-directors-in-hollywood/)
+- [chick flick to watch](https://movies.allwomenstalk.com/every-woman-needs-to-watch-these-iconic-chick-flicks-from-the-80s/)
 - [business lady outfit](https://fashion.allwomenstalk.com/check-out-business-lady-vibes-from-these-gorge-celebrities/)
 - [big sister and little sister simpsons](https://movies.allwomenstalk.com/fictional-sisters-you-wish-were-your-sibling/)
-- [chick flick to watch](https://movies.allwomenstalk.com/every-woman-needs-to-watch-these-iconic-chick-flicks-from-the-80s/)
-- [becoming a femme fatale movie](https://movies.allwomenstalk.com/which-of-these-movie-femme-fatales-do-you-want-to-be/)
+- [miss piggy in glasses](https://lifestyle.allwomenstalk.com/quotes-that-prove-miss-piggy-is-a-feminist-icon/)
 - [disney movies with strong female leads](https://movies.allwomenstalk.com/strong-female-role-models-in-the-disney-movies/)
-- [what makes serena williams great](https://celebs.allwomenstalk.com/why-serena-williams-is-awesome/)
-- [women directors in hollywood](https://movies.allwomenstalk.com/film-focus-women-directors-in-hollywood/)
 - [list of role models](https://teen.allwomenstalk.com/these-are-the-women-who-should-be-your-role-models/)
 - [little girl movie characters](https://movies.allwomenstalk.com/which-of-these-girl-power-movie-characters-is-you/)
+- [what makes serena williams great](https://celebs.allwomenstalk.com/why-serena-williams-is-awesome/)
+- [becoming a femme fatale movie](https://movies.allwomenstalk.com/which-of-these-movie-femme-fatales-do-you-want-to-be/)
 - [The Sad Evolution of Sexy Halloween Costumes ...](https://allwomenstalk.com/the-sad-evolution-of-sexy-halloween-costumes/)
 - [Proof That Girl Power is Real and Seriously Awesom...](https://inspiration.allwomenstalk.com/proof-that-girl-power-is-real-and-seriously-awesome/)
 

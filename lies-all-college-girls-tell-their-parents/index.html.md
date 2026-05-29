@@ -3,7 +3,7 @@ title: "11 Lies All College Girls Tell Their Parents ..."
 description: "I Really Don’t Go out All That Often; I’m Actually Spending All Day in the Library; Yes, I Did My Laundry This Week; And I Cleaned My Room; Don’t Worry, I’m Eating Enough Fruits and Vegetables; More ..."
 url: "https://funny.allwomenstalk.com/lies-all-college-girls-tell-their-parents/"
 category: "funny"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 11 Lies All College Girls Tell Their Parents ...
@@ -82,14 +82,14 @@ Do you ever lie about any of these things?
 
 - [how to become a feminist](https://lifestyle.allwomenstalk.com/how-to-become-a-better-feminist-in/)
 - [usopp bandages](https://money.allwomenstalk.com/things-a-woman-should-always-have-at-work/)
-- [college girl do](https://lifestyle.allwomenstalk.com/every-college-girl-should-do-these-things-at-least-once/)
+- [What Women Who Hate Working out Have to Deal with ...](https://funny.allwomenstalk.com/what-women-who-hate-working-out-have-to-deal-with/)
 - [short girl problems meme](https://funny.allwomenstalk.com/embarrassing-situations-every-short-woman-has-lived-through/)
 - [learn how to twerk for beginners](https://lifestyle.allwomenstalk.com/ladies-its-time-to-learn-how-to-twerk/)
-- [What Women Who Hate Working out Have to Deal with ...](https://funny.allwomenstalk.com/what-women-who-hate-working-out-have-to-deal-with/)
-- [lazy girl gif](https://health.allwomenstalk.com/how-lazy-girls-can-keep-themselves-healthy/)
 - [act of deliciousness](https://funny.allwomenstalk.com/every-woman-will-understand-these-delicious-acts/)
-- [what every woman should know](https://lifestyle.allwomenstalk.com/things-every-woman-should-know-in-case-of-an-emergency/)
 - [when he calls you a strong woman](https://inspiration.allwomenstalk.com/bitchy-qualities-that-actually-make-you-a-strong-woman/)
+- [what every woman should know](https://lifestyle.allwomenstalk.com/things-every-woman-should-know-in-case-of-an-emergency/)
+- [college girl do](https://lifestyle.allwomenstalk.com/every-college-girl-should-do-these-things-at-least-once/)
+- [lazy girl gif](https://health.allwomenstalk.com/how-lazy-girls-can-keep-themselves-healthy/)
 - [8 Lies Us Women Always Tell ...](https://allwomenstalk.com/8-lies-us-women-always-tell/)
 - [10 Things Girls Keep Secret ...](https://allwomenstalk.com/10-things-girls-keep-secret/)
 

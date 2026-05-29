@@ -3,7 +3,7 @@ title: "17 Funny Drinking Game Infographics ..."
 description: "Hunger Games Drinking Game; Supernatural Drinking Game; Lord of the Rings Drinking Game; Grey's Anatomy; Pinterest Drinking Game; More ..."
 url: "https://funny.allwomenstalk.com/funny-drinking-game-infographics/"
 category: "funny"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 17 Funny Drinking Game Infographics ...
@@ -116,16 +116,16 @@ As long as you never drink and drive, or drink before you hit the legal age, the
 
 ## Related Posts
 
-- [sandpaper beer](https://food.allwomenstalk.com/beer-hacks-thatll-make-partying-that-much-easier/)
-- [hangover cure oyster](https://health.allwomenstalk.com/you-might-need-one-of-these-hangover-cures-this-holiday-season/)
-- [hot cocoa by the fireplace](https://food.allwomenstalk.com/here-are-the-best-hot-cocoa-recipes-to-sip-by-the-fire/)
-- [warming alcoholic drinks](https://food.allwomenstalk.com/hot-drinks-to-sip-on-during-the-holidays/)
-- [places like teavana](https://food.allwomenstalk.com/where-should-you-shop-for-tasty-tea/)
-- [healthy christmas cocktails](https://food.allwomenstalk.com/guilt-free-holiday-cocktails-that-are-healthier-than-they-look/)
-- [deans egg nog](https://food.allwomenstalk.com/its-not-a-holiday-until-you-try-these-egg-nog-recipes/)
-- [is horchata hot or cold](https://food.allwomenstalk.com/delicious-summer-drinks-you-can-heat-for-the-fall/)
 - [sipping drinks](https://food.allwomenstalk.com/festive-alcoholic-drinks-to-sip-by-the-fire/)
 - [flavor syrups for coffee](https://food.allwomenstalk.com/flavored-syrups-to-stick-in-your-coffee/)
+- [is horchata hot or cold](https://food.allwomenstalk.com/delicious-summer-drinks-you-can-heat-for-the-fall/)
+- [sandpaper beer](https://food.allwomenstalk.com/beer-hacks-thatll-make-partying-that-much-easier/)
+- [hangover cure oyster](https://health.allwomenstalk.com/you-might-need-one-of-these-hangover-cures-this-holiday-season/)
+- [warming alcoholic drinks](https://food.allwomenstalk.com/hot-drinks-to-sip-on-during-the-holidays/)
+- [deans egg nog](https://food.allwomenstalk.com/its-not-a-holiday-until-you-try-these-egg-nog-recipes/)
+- [hot cocoa by the fireplace](https://food.allwomenstalk.com/here-are-the-best-hot-cocoa-recipes-to-sip-by-the-fire/)
+- [healthy christmas cocktails](https://food.allwomenstalk.com/guilt-free-holiday-cocktails-that-are-healthier-than-they-look/)
+- [places like teavana](https://food.allwomenstalk.com/where-should-you-shop-for-tasty-tea/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 - [7 Fun Drinking Games for Any Party ...](https://allwomenstalk.com/7-fun-drinking-games-for-any-party/)
 

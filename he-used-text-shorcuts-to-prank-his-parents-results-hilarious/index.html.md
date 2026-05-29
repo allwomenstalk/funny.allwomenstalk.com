@@ -3,7 +3,7 @@ title: "He Used Text Shorcuts to Prank His Parents. Results? Hilarious!"
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://funny.allwomenstalk.com/he-used-text-shorcuts-to-prank-his-parents-results-hilarious/"
 category: "funny"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # He Used Text Shorcuts to Prank His Parents. Results? Hilarious!
@@ -26,16 +26,16 @@ That's how it's done! Thank you, imgur.com for the amazing idea!
 
 ## Related Posts
 
-- [13 Expressions No One Knows  How to Use ...](https://lifestyle.allwomenstalk.com/expressions-no-one-knows-how-to-use/)
+- [10 Shortcuts to Shed a Stone ...](https://weightloss.allwomenstalk.com/shortcuts-to-shed-a-stone/)
+- [The Meaning behind These Emojis Might Surprise You...](https://lifestyle.allwomenstalk.com/the-meaning-behind-these-emojis-might-surprise-you/)
+- [paris color riche stylo smoldering](https://lifestyle.allwomenstalk.com/regional-slang-words-that-you-should-really-know/)
 - [intelligent websites](https://lifestyle.allwomenstalk.com/websites-thatll-help-you-look-way-more-intelligent/)
 - [jokes to make you groan](https://funny.allwomenstalk.com/jokes-thatll-either-make-you-giggle-or-groan/)
-- [The Meaning behind These Emojis Might Surprise You...](https://lifestyle.allwomenstalk.com/the-meaning-behind-these-emojis-might-surprise-you/)
-- [Silly Questions to Ask Your Significant Other Just...](https://love.allwomenstalk.com/ask-your-significant-other-these-silly-questions/)
-- [10 Websites  Thatll Teach You a Language Youve Alw...](https://lifestyle.allwomenstalk.com/websites-thatll-teach-you-a-language-youve-always-wanted-to-learn/)
-- [10 Shortcuts to Shed a Stone ...](https://weightloss.allwomenstalk.com/shortcuts-to-shed-a-stone/)
+- [13 Expressions No One Knows  How to Use ...](https://lifestyle.allwomenstalk.com/expressions-no-one-knows-how-to-use/)
 - [10 Silly E-Cards to Send Your Special Someone to M...](https://love.allwomenstalk.com/silly-messages-for-that-special-someone/)
-- [paris color riche stylo smoldering](https://lifestyle.allwomenstalk.com/regional-slang-words-that-you-should-really-know/)
+- [10 Websites  Thatll Teach You a Language Youve Alw...](https://lifestyle.allwomenstalk.com/websites-thatll-teach-you-a-language-youve-always-wanted-to-learn/)
 - [old fashioned manners](https://lifestyle.allwomenstalk.com/its-time-to-bring-back-these-old-school-manners/)
+- [Silly Questions to Ask Your Significant Other Just...](https://love.allwomenstalk.com/ask-your-significant-other-these-silly-questions/)
 - [7 Ways to Deal with His Overprotective Mum ...](https://7fun.net/7-ways-to-deal-with-his-overprotective-mum/)
 - [8 Ways to Have a Laugh at Your Cats Expense ...](https://allwomenstalk.com/8-ways-to-have-a-laugh-at-your-cats-expense/)
 

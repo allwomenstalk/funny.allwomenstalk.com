@@ -3,7 +3,7 @@ title: "7 Things We Did before the Internet ..."
 description: "We Went outside; We Had Polite Disagreements; We Used the Phone Book; We Waited Forever for Things; We Bought Magazines; More ..."
 url: "https://funny.allwomenstalk.com/things-we-did-before-the-internet/"
 category: "funny"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Things We Did before the Internet ...
@@ -42,16 +42,16 @@ This is a humorous slant (I hope!), but it really is hard to remember how we ent
 
 ## Related Posts
 
-- [7 Friends Episodes That Will Always Make You Roar ...](https://funny.allwomenstalk.com/friends-episodes-that-will-always-make-you-roar/)
-- [29 New Things We Learned from the News in 2013 ...](https://lifestyle.allwomenstalk.com/new-things-we-learned-from-the-news-in/)
 - [7 Television Shows on Right Now That Are Already C...](https://movies.allwomenstalk.com/television-shows-on-right-now-that-are-already-classics/)
-- [socute 7tv](https://movies.allwomenstalk.com/tv-cliques-i-wish-i-couldve-been-a-part-of/)
-- [7 Shocking TV Moments That Made Us Say What ...](https://movies.allwomenstalk.com/shocking-tv-moments-that-made-us-say-what/)
-- [victorious wedgie](https://movies.allwomenstalk.com/upcoming-tv-series-starring-familiar-faces-from-past-shows/)
-- [9 Creature Features to Make You Scream ...](https://bilbr.com/creature-features-to-make-you-scream/)
-- [loreal paris color riche stylo timeless blue](https://movies.allwomenstalk.com/fun-shows-to-watch-on-hulu-when-youre-feeling-low/)
-- [ricky gervais comedies](https://movies.allwomenstalk.com/ricky-gervais-comedy-classics-everyone-should-check-out/)
 - [what is the most infuriating case of double standa...](https://lifestyle.allwomenstalk.com/infuriating-double-standards-that-should-no-longer-exist/)
+- [29 New Things We Learned from the News in 2013 ...](https://lifestyle.allwomenstalk.com/new-things-we-learned-from-the-news-in/)
+- [7 Friends Episodes That Will Always Make You Roar ...](https://funny.allwomenstalk.com/friends-episodes-that-will-always-make-you-roar/)
+- [7 Shocking TV Moments That Made Us Say What ...](https://movies.allwomenstalk.com/shocking-tv-moments-that-made-us-say-what/)
+- [9 Creature Features to Make You Scream ...](https://bilbr.com/creature-features-to-make-you-scream/)
+- [socute 7tv](https://movies.allwomenstalk.com/tv-cliques-i-wish-i-couldve-been-a-part-of/)
+- [loreal paris color riche stylo timeless blue](https://movies.allwomenstalk.com/fun-shows-to-watch-on-hulu-when-youre-feeling-low/)
+- [victorious wedgie](https://movies.allwomenstalk.com/upcoming-tv-series-starring-familiar-faces-from-past-shows/)
+- [ricky gervais comedies](https://movies.allwomenstalk.com/ricky-gervais-comedy-classics-everyone-should-check-out/)
 - [7 Everyday Fun Hobbies ...](https://allwomenstalk.com/7-everyday-fun-hobbies/)
 - [7 Things to Teach Your Children ...](https://allwomenstalk.com/7-things-to-teach-your-children/)
 

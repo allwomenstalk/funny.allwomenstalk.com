@@ -3,7 +3,7 @@ title: "23 Hysterically Funny Office Notes ..."
 description: "Get My Name Right, Dammit!; Leave My Stuff Alone #1; Brutally Honest Sign#1; Karma's a Bitch...; Clean up after Yourself #1; More ..."
 url: "https://funny.allwomenstalk.com/hysterically-funny-office-notes/"
 category: "funny"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 23 Hysterically Funny Office Notes ...
@@ -152,16 +152,16 @@ I had a really hard time deciding which funny office notes to post. I suppose a 
 
 ## Related Posts
 
-- [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
-- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
-- [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
-- [dating customs around the world](https://love.allwomenstalk.com/funny-dating-customs-around-the-world/)
 - [comedy ted talks](https://funny.allwomenstalk.com/funny-ted-talks-thatll-make-you-laugh-in-no-time/)
-- [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
-- [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
+- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
+- [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
 - [gmaes to play when bored](https://funny.allwomenstalk.com/texting-games-to-play-when-youre-bored/)
-- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
+- [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
 - [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
+- [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
+- [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
+- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
+- [dating customs around the world](https://love.allwomenstalk.com/funny-dating-customs-around-the-world/)
 - [25 Funny Exam Answers ...](https://lifestyle.allwomenstalk.com/funny-exam-answers/)
 - [10 Wittiest One-Liners ...](https://allwomenstalk.com/10-wittiest-one-liners/)
 

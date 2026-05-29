@@ -3,7 +3,7 @@ title: "11 Excuses to Use the Next Time You Cancel Plans ..."
 description: "I Would, but It Would Be a Complete Waste of Make-up; I Changed the Lock on My Door and Now I Can't Get out; I Don't like People; I Have to Go to the Post Office to See if I'm Still Wanted; I Never Go out on Days That End in \"Y\"; More ..."
 url: "https://funny.allwomenstalk.com/excuses-to-use-the-next-time-you-cancel-plans/"
 category: "funny"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 11 Excuses to Use the Next Time You Cancel Plans ...
@@ -61,16 +61,16 @@ Source
 
 ## Related Posts
 
-- [how to move back in with your parents](https://lifestyle.allwomenstalk.com/reasons-you-shouldnt-move-back-in-with-your-parents/)
-- [dont fight with your friends](https://lifestyle.allwomenstalk.com/important-reasons-not-to-fight-with-your-best-friend/)
-- [ic social media](https://lifestyle.allwomenstalk.com/reasons-to-spend-less-time-on-social-media/)
-- [never try to be like someone else](https://inspiration.allwomenstalk.com/reasons-to-avoid-trying-to-be-someone-else/)
-- [i aint even mad gif](https://funny.allwomenstalk.com/reasons-im-not-a-bitch-just-sarcastic/)
+- [how to get rid of pessimism](https://inspiration.allwomenstalk.com/reasons-to-get-rid-of-pessimistic-friends-stat/)
 - [funny answer to why are you single](https://funny.allwomenstalk.com/funny-comebacks-to-the-why-are-you-still-single-question/)
+- [how to move back in with your parents](https://lifestyle.allwomenstalk.com/reasons-you-shouldnt-move-back-in-with-your-parents/)
+- [ic social media](https://lifestyle.allwomenstalk.com/reasons-to-spend-less-time-on-social-media/)
+- [i aint even mad gif](https://funny.allwomenstalk.com/reasons-im-not-a-bitch-just-sarcastic/)
+- [i swear too much](https://lifestyle.allwomenstalk.com/reasons-to-stop-swearing/)
+- [dont fight with your friends](https://lifestyle.allwomenstalk.com/important-reasons-not-to-fight-with-your-best-friend/)
 - [things that are meant to be broken](https://inspiration.allwomenstalk.com/reasons-why-its-okay-to-be-broken/)
 - [reduced partying by in](https://lifestyle.allwomenstalk.com/reasons-to-party-less/)
-- [i swear too much](https://lifestyle.allwomenstalk.com/reasons-to-stop-swearing/)
-- [how to get rid of pessimism](https://inspiration.allwomenstalk.com/reasons-to-get-rid-of-pessimistic-friends-stat/)
+- [never try to be like someone else](https://inspiration.allwomenstalk.com/reasons-to-avoid-trying-to-be-someone-else/)
 - [7 Signs You Should Call off the Wedding... ...](https://wedding.allwomenstalk.com/7-signs-you-should-call-off-the-wedding/)
 - [10 Times You Dont Need to Apologize ...](https://lifestyle.allwomenstalk.com/times-you-dont-need-to-apologize/)
 

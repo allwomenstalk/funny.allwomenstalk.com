@@ -3,7 +3,7 @@ title: "7 Things That Ruin a Date Instantly ..."
 description: "Messy Meals; An Exiled Ex; Impolite Lateness; Obsessive Cell Phone Use; Sour Self Views; More ..."
 url: "https://funny.allwomenstalk.com/things-that-ruin-a-date-instantly/"
 category: "funny"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Things That Ruin a Date Instantly ...
@@ -42,16 +42,16 @@ If a date is ruined by one of these things, it doesn't mean that you're not mean
 
 ## Related Posts
 
+- [which words should not be used in this essay](https://teen.allwomenstalk.com/words-to-avoid-using-in-essays-to-get-higher-grades/)
+- [what to say to a gurl](https://lifestyle.allwomenstalk.com/worst-things-a-girl-can-say-according-to-guys/)
+- [lovepanky first date](https://love.allwomenstalk.com/annoying-girlfriend-habits-that-guys-dont-like/)
+- [should you brag in your college essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-a-college-essay/)
 - [keep people in your life](https://lifestyle.allwomenstalk.com/people-to-keep-out-of-your-life/)
 - [how to lose weight as a stay at home mom](https://parenting.allwomenstalk.com/worst-things-to-say-to-a-stay-at-home-mom/)
-- [which words should not be used in this essay](https://teen.allwomenstalk.com/words-to-avoid-using-in-essays-to-get-higher-grades/)
-- [should you brag in your college essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-a-college-essay/)
-- [what to say to a gurl](https://lifestyle.allwomenstalk.com/worst-things-a-girl-can-say-according-to-guys/)
-- [things you should never tolerate in a relationship](https://love.allwomenstalk.com/things-you-should-never-tolerate-in-a-relationship-2/)
 - [stage of crushing](https://funny.allwomenstalk.com/the-absolute-worst-phases-of-having-a-crush/)
-- [true friends dont](https://lifestyle.allwomenstalk.com/things-true-friends-dont-do/)
-- [lovepanky first date](https://love.allwomenstalk.com/annoying-girlfriend-habits-that-guys-dont-like/)
 - [embarrassing school photos](https://lifestyle.allwomenstalk.com/embarrassing-high-school-situations-you-never-mention-in-your-adult-life/)
+- [things you should never tolerate in a relationship](https://love.allwomenstalk.com/things-you-should-never-tolerate-in-a-relationship-2/)
+- [true friends dont](https://lifestyle.allwomenstalk.com/things-true-friends-dont-do/)
 - [7 Things That Can Turn Guys off ...](https://love.allwomenstalk.com/things-that-can-turn-guys-off/)
 - [5 Common First Date Mistakes You Should Avoid ...](https://allwomenstalk.com/common-first-date-mistakes-you-should-avoid/)
 

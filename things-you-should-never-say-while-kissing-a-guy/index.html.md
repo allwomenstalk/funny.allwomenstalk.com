@@ -3,7 +3,7 @@ title: "7 Things You Should Never Say While Kissing a Guy ..."
 description: "Now I Know Why Your Ex Dumped You; Oooh, Sherlock; Am I Doing This Right?; This Would Be More Fun with More People; Let Me Tweet This; More ..."
 url: "https://funny.allwomenstalk.com/things-you-should-never-say-while-kissing-a-guy/"
 category: "funny"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Things You Should Never Say While Kissing a Guy ...
@@ -57,14 +57,14 @@ If you want the kissing to continue, avoid saying these silly things. What's the
 ## Related Posts
 
 - [things not to post on social media](https://lifestyle.allwomenstalk.com/things-you-should-never-post-on-social-media/)
+- [cliche advice](https://love.allwomenstalk.com/love-advice-cliches-that-you-shouldnt-actually-follow/)
 - [forced relationship](https://love.allwomenstalk.com/you-dont-belong-together-if-youre-forcing-these-things/)
+- [things to do while drunk with friends](https://health.allwomenstalk.com/things-you-should-never-do-while-drunk/)
 - [how to make him lose interest in you](https://love.allwomenstalk.com/things-thatll-make-him-lose-interest-in-you-right-away/)
+- [overrated things in society](https://lifestyle.allwomenstalk.com/overrated-things-we-should-stop-romanticizing/)
 - [short dress thong](https://fashion.allwomenstalk.com/times-when-you-shouldnt-wear-a-thong/)
 - [egirl piercings](https://funny.allwomenstalk.com/never-say-these-things-to-a-girl-with-piercings/)
-- [cliche advice](https://love.allwomenstalk.com/love-advice-cliches-that-you-shouldnt-actually-follow/)
 - [what to do at 12 am with friends](https://lifestyle.allwomenstalk.com/things-you-should-never-do-after-midnight/)
-- [things to do while drunk with friends](https://health.allwomenstalk.com/things-you-should-never-do-while-drunk/)
-- [overrated things in society](https://lifestyle.allwomenstalk.com/overrated-things-we-should-stop-romanticizing/)
 - [condom mistakes](https://love.allwomenstalk.com/condom-mistakes-you-dont-want-to-make/)
 - [11 Things to Never Tell Your Man ...](https://allwomenstalk.com/11-things-to-never-tell-your-man/)
 - [6 Things You Should Never Say to a Man ...](https://allwomenstalk.com/6-things-you-should-never-say-to-a-man/)

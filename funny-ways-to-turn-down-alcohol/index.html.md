@@ -3,7 +3,7 @@ title: "7 of the Funniest Ways to Say No to Alcohol ..."
 description: "I Don’t Need to Loosen up. I Just Got It Together; I Don’t Look Good in a Lamp Shade; I'm Saving My Brain Cells for Science; I Can’t. I Have to Perform Brain Surgery in the Morning; I'm Pregnant with Benedict Cumberbatch’s Baby; More ..."
 url: "https://funny.allwomenstalk.com/funny-ways-to-turn-down-alcohol/"
 category: "funny"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 of the Funniest Ways to Say No to Alcohol ...
@@ -42,16 +42,16 @@ You should never feel embarrassed about turning down drinks at a party. After al
 
 ## Related Posts
 
-- [pumpkin menu starbucks](https://food.allwomenstalk.com/pumpkin-spice-menu-items-from-starbucks/)
-- [cocktails fire](https://food.allwomenstalk.com/cocktails-that-are-perfect-for-drinking-by-the-fire/)
-- [ice tray hacks](https://food.allwomenstalk.com/ice-cube-tray-hacks-you-have-to-try/)
-- [marshmallow flask](https://food.allwomenstalk.com/marshmallow-drinks-to-sip-on-this-season/)
-- [dessert wine pairing chart](https://food.allwomenstalk.com/wine-hacks-to-help-you-get-your-drink-on/)
-- [soda substitutes](https://food.allwomenstalk.com/alternatives-to-soda-with-far-fewer-calories/)
-- [starbugs menu](https://food.allwomenstalk.com/the-secret-starbucks-holiday-menu/)
-- [healthiest thing to drink in the morning](https://food.allwomenstalk.com/start-your-day-with-these-healthy-breakfast-drinks/)
 - [good fruit smoothie combinations](https://food.allwomenstalk.com/clever-smoothie-combos-youve-never-tasted/)
+- [dessert wine pairing chart](https://food.allwomenstalk.com/wine-hacks-to-help-you-get-your-drink-on/)
+- [healthiest thing to drink in the morning](https://food.allwomenstalk.com/start-your-day-with-these-healthy-breakfast-drinks/)
+- [starbugs menu](https://food.allwomenstalk.com/the-secret-starbucks-holiday-menu/)
 - [whats the best flavored water](https://food.allwomenstalk.com/the-healthiest-fruits-for-creating-flavored-water/)
+- [pumpkin menu starbucks](https://food.allwomenstalk.com/pumpkin-spice-menu-items-from-starbucks/)
+- [ice tray hacks](https://food.allwomenstalk.com/ice-cube-tray-hacks-you-have-to-try/)
+- [cocktails fire](https://food.allwomenstalk.com/cocktails-that-are-perfect-for-drinking-by-the-fire/)
+- [marshmallow flask](https://food.allwomenstalk.com/marshmallow-drinks-to-sip-on-this-season/)
+- [soda substitutes](https://food.allwomenstalk.com/alternatives-to-soda-with-far-fewer-calories/)
 - [7 Positive Tips to Avoid Peer Pressure ...](https://lifestyle.allwomenstalk.com/positive-tips-to-avoid-peer-pressure/)
 - [7 Sure Ways to Have Fun without Drinking ...](https://allwomenstalk.com/8-sure-ways-to-have-fun-without-drinking/)
 

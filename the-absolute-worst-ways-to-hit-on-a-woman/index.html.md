@@ -3,7 +3,7 @@ title: "The Absolute Worst Ways to Hit on a Woman ..."
 description: "Corny Pickup Lines; Catcalling; Just Staring; Too Much Bragging; Trying Too Hard to Be Manly; More ..."
 url: "https://funny.allwomenstalk.com/the-absolute-worst-ways-to-hit-on-a-woman/"
 category: "funny"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # The Absolute Worst Ways to Hit on a Woman ...
@@ -57,15 +57,15 @@ Men need to realize that hitting on women isn't a game. They should stop trying 
 ## Related Posts
 
 - [things you should never say to your partner](https://love.allwomenstalk.com/things-you-should-never-say-to-someone-you-care-about/)
-- [funny things couples fight about](https://love.allwomenstalk.com/the-absolute-silliest-things-couples-fight-over/)
-- [selfie amsterdam](https://travel.allwomenstalk.com/gasp-places-where-you-cannot-use-your-selfie-stick/)
-- [include advice avoid](https://lifestyle.allwomenstalk.com/situations-where-its-best-to-avoid-giving-advice/)
-- [in this movie](https://health.allwomenstalk.com/a-cock-and-balls-story-things-you-should-never-do-to-a-mans-privates/)
-- [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
-- [never ever text](https://love.allwomenstalk.com/things-you-should-never-ever-text-your-ex/)
-- [how many words per chapter in a novel](https://lifestyle.allwomenstalk.com/cliche-tropes-to-avoid-in-your-fiction-writing/)
 - [wish i didnt but i do](https://teen.allwomenstalk.com/things-i-wish-i-didnt-do-as-a-teenager/)
+- [how many words per chapter in a novel](https://lifestyle.allwomenstalk.com/cliche-tropes-to-avoid-in-your-fiction-writing/)
+- [in this movie](https://health.allwomenstalk.com/a-cock-and-balls-story-things-you-should-never-do-to-a-mans-privates/)
+- [include advice avoid](https://lifestyle.allwomenstalk.com/situations-where-its-best-to-avoid-giving-advice/)
+- [never ever text](https://love.allwomenstalk.com/things-you-should-never-ever-text-your-ex/)
+- [selfie amsterdam](https://travel.allwomenstalk.com/gasp-places-where-you-cannot-use-your-selfie-stick/)
+- [funny things couples fight about](https://love.allwomenstalk.com/the-absolute-silliest-things-couples-fight-over/)
 - [dangerous things on the road](https://lifestyle.allwomenstalk.com/avoid-doing-these-dangerous-things-while-driving-friends-around/)
+- [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
 - [6 Things You Should Never Say to a Man ...](https://allwomenstalk.com/6-things-you-should-never-say-to-a-man/)
 - [8 Things Guys Should Not do in Front of Girls ...](https://allwomenstalk.com/8-things-guys-should-not-do-in-front-of-girls/)
 

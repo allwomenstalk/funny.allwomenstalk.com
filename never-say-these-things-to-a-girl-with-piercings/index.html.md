@@ -3,7 +3,7 @@ title: "Never Say These 7 Things to a Girl with Piercings ..."
 description: "I Would Never Date a Girl with Piercings; Did That Hurt?; Can You Eat with That in?; Why Did You do That to Yourself?; You'll Never Get a Job; More ..."
 url: "https://funny.allwomenstalk.com/never-say-these-things-to-a-girl-with-piercings/"
 category: "funny"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Never Say These 7 Things to a Girl with Piercings ...
@@ -55,16 +55,16 @@ What do you hate hearing about your piercings?
 
 ## Related Posts
 
-- [can i lie in my resume](https://money.allwomenstalk.com/things-you-should-never-lie-about-on-a-resume/)
 - [cool girl definition](https://love.allwomenstalk.com/cool-girl-traits-you-dont-want-to-have/)
 - [how to complain to your boyfriend](https://love.allwomenstalk.com/complaints-you-shouldnt-have-about-your-boyfriend/)
-- [cliche advice](https://love.allwomenstalk.com/love-advice-cliches-that-you-shouldnt-actually-follow/)
-- [what makes someone nosey](https://apps.allwomenstalk.com/types-of-people-you-should-un-friend-on-facebook/)
-- [overrated things in society](https://lifestyle.allwomenstalk.com/overrated-things-we-should-stop-romanticizing/)
-- [dont let him in](https://love.allwomenstalk.com/dont-let-him-in-your-pants-if-he-does-these-things/)
-- [sexual couple questions](https://love.allwomenstalk.com/never-ask-a-same-sex-couple-these-ridiculous-questions/)
-- [things to do while drunk with friends](https://health.allwomenstalk.com/things-you-should-never-do-while-drunk/)
 - [what not to talk about on a first date](https://love.allwomenstalk.com/never-talk-about-these-things-during-a-first-date/)
+- [what makes someone nosey](https://apps.allwomenstalk.com/types-of-people-you-should-un-friend-on-facebook/)
+- [cliche advice](https://love.allwomenstalk.com/love-advice-cliches-that-you-shouldnt-actually-follow/)
+- [sexual couple questions](https://love.allwomenstalk.com/never-ask-a-same-sex-couple-these-ridiculous-questions/)
+- [overrated things in society](https://lifestyle.allwomenstalk.com/overrated-things-we-should-stop-romanticizing/)
+- [can i lie in my resume](https://money.allwomenstalk.com/things-you-should-never-lie-about-on-a-resume/)
+- [things to do while drunk with friends](https://health.allwomenstalk.com/things-you-should-never-do-while-drunk/)
+- [dont let him in](https://love.allwomenstalk.com/dont-let-him-in-your-pants-if-he-does-these-things/)
 - [7 Worst Tattoos That You Should Never Get ...](https://lifestyle.allwomenstalk.com/worst-tattoos-that-you-should-never-get/)
 - [Dont Say It Top Ten Lines a Woman Should Never Hea...](https://allwomenstalk.com/top-ten-lines-a-woman-should-never-hear-from-you/)
 

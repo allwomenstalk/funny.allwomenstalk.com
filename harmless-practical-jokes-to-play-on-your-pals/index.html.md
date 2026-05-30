@@ -3,7 +3,7 @@ title: "7 Harmless Practical Jokes to Play on Your Pals ..."
 description: "Smartphone Shortcuts; Artificial Accident; Sink Spray; Alarming Alarms; Hellish Hot Sauce; More ..."
 url: "https://funny.allwomenstalk.com/harmless-practical-jokes-to-play-on-your-pals/"
 category: "funny"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Harmless Practical Jokes to Play on Your Pals ...
@@ -42,16 +42,16 @@ As long as you don't hurt anyone, there's nothing wrong with playing pranks ever
 
 ## Related Posts
 
-- [words you didnt know existed](https://lifestyle.allwomenstalk.com/words-youve-always-needed-but-never-realized-existed/)
-- [carcolepsy](https://funny.allwomenstalk.com/these-words-need-to-exist-starting-now/)
-- [latin mottos and meanings](https://lifestyle.allwomenstalk.com/latin-phrases-thatll-make-you-sound-wise-beyond-your-years/)
 - [dictionary word games online](https://health.allwomenstalk.com/keep-your-mind-active-with-these-unique-word-games-youve-never-heard-of/)
+- [awesome would you rather questions](https://funny.allwomenstalk.com/these-wild-would-you-rather-questions-will-stump-your-friends/)
+- [words you didnt know existed](https://lifestyle.allwomenstalk.com/words-youve-always-needed-but-never-realized-existed/)
+- [trick.questions](https://funny.allwomenstalk.com/see-if-you-can-figure-out-these-trick-questions/)
+- [carcolepsy](https://funny.allwomenstalk.com/these-words-need-to-exist-starting-now/)
+- [degradation kink phrases](https://lifestyle.allwomenstalk.com/degrading-sexist-phrases-that-everyone-should-stop-saying/)
+- [comebacks for glasses insults](https://lifestyle.allwomenstalk.com/classy-comebacks-thatll-help-you-stay-sophisticated/)
 - [what does it mean when a guy tells you good mornin...](https://love.allwomenstalk.com/what-men-mean-when-they-send-you-these-common-texts/)
 - [latein beleidigungen](https://funny.allwomenstalk.com/silly-latin-insults-you-need-to-learn/)
-- [comebacks for glasses insults](https://lifestyle.allwomenstalk.com/classy-comebacks-thatll-help-you-stay-sophisticated/)
-- [degradation kink phrases](https://lifestyle.allwomenstalk.com/degrading-sexist-phrases-that-everyone-should-stop-saying/)
-- [trick.questions](https://funny.allwomenstalk.com/see-if-you-can-figure-out-these-trick-questions/)
-- [awesome would you rather questions](https://funny.allwomenstalk.com/these-wild-would-you-rather-questions-will-stump-your-friends/)
+- [latin mottos and meanings](https://lifestyle.allwomenstalk.com/latin-phrases-thatll-make-you-sound-wise-beyond-your-years/)
 - [5 Silly Things to Make You Laugh...](https://allwomenstalk.com/5-silly-things-to-make-you-laugh/)
 - [7 Funny Jokes to Help You Smile ...](https://allwomenstalk.com/7-funny-jokes-to-help-you-smile/)
 

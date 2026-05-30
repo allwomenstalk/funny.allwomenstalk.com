@@ -3,7 +3,7 @@ title: "7 Weird Wacky Things All Best Friends do ..."
 description: "Constant Chats; Invalid Insults; Telepathic Talks; One Word; Bogus Bands; More ..."
 url: "https://funny.allwomenstalk.com/weird-wacky-things-all-best-friends-do/"
 category: "funny"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Weird Wacky Things All Best Friends do ...
@@ -57,15 +57,15 @@ Go tell your BFF that you love her! She deserves to be complimented, so don't fo
 ## Related Posts
 
 - [much marcle yew tree](https://lifestyle.allwomenstalk.com/youve-never-seen-anything-quite-like-these-ancient-trees/)
-- [humans of new york santa](https://inspiration.allwomenstalk.com/inspirational-humans-of-new-york-hony-stories/)
 - [nocholas hoult](https://movies.allwomenstalk.com/news-harry-potter-fans-have-been-waiting-for/)
 - [attempt to fly](https://travel.allwomenstalk.com/here-are-the-failed-flight-attempts-humanity-will-always-remember/)
-- [dowager countess downton abbey memes](https://movies.allwomenstalk.com/down-about-the-end-of-downton-abbey-steal-these-dowager-quotes-so-the-series-lives-on/)
-- [beryl utah hotels](https://travel.allwomenstalk.com/coffins-cars-and-cribs-the-craziest-hotel-beds/)
 - [meaning of goosebumps](https://lifestyle.allwomenstalk.com/things-that-are-sure-to-give-you-goosebumps/)
-- [awesome creations](https://lifestyle.allwomenstalk.com/is-this-americas-great-artist-the-awesome-creations-of-jeff-koons/)
-- [phobias list](https://lifestyle.allwomenstalk.com/eek-these-phobia-infographics-might-freak-you-out/)
+- [dowager countess downton abbey memes](https://movies.allwomenstalk.com/down-about-the-end-of-downton-abbey-steal-these-dowager-quotes-so-the-series-lives-on/)
+- [humans of new york santa](https://inspiration.allwomenstalk.com/inspirational-humans-of-new-york-hony-stories/)
+- [beryl utah hotels](https://travel.allwomenstalk.com/coffins-cars-and-cribs-the-craziest-hotel-beds/)
 - [death valley ufo](https://lifestyle.allwomenstalk.com/weird-ancient-alien-myths-that-will-not-let-you-sleep-at-night/)
+- [phobias list](https://lifestyle.allwomenstalk.com/eek-these-phobia-infographics-might-freak-you-out/)
+- [awesome creations](https://lifestyle.allwomenstalk.com/is-this-americas-great-artist-the-awesome-creations-of-jeff-koons/)
 - [7 Outrageously Excellent Ways to Find New Friends ...](https://lifestyle.allwomenstalk.com/outrageously-excellent-ways-to-find-new-friends/)
 - [7 Ways to Be a Great Friend ...](https://allwomenstalk.com/7-ways-to-be-a-great-friend/)
 

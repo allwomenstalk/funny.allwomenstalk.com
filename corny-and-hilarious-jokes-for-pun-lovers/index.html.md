@@ -3,7 +3,7 @@ title: "25 Corny and Hilarious Jokes for Pun Lovers ..."
 description: "Start with Steak; Clowning around; Word Woes; Defying Gravity; Star Wars; More ..."
 url: "https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/"
 category: "funny"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 25 Corny and Hilarious Jokes for Pun Lovers ...
@@ -118,15 +118,15 @@ Sources: _punoftheday.com_ and _yourdictionary.com_
 ## Related Posts
 
 - [50s slang for cool](https://funny.allwomenstalk.com/silly-slang-terms-from-the-50s-to-bring-back/)
-- [all intensive purposes other misused phrases](https://funny.allwomenstalk.com/commonly-misused-words-and-expressions-in-my-neck-of-the-woods/)
-- [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
-- [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
 - [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
-- [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
-- [if youre here whos running heaven](https://funny.allwomenstalk.com/funny-replies-to-overused-pesky-pick-up-lines/)
-- [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
-- [paris riche stylo smoky eye spark](https://inspiration.allwomenstalk.com/limiting-phrases-you-say-that-age-you/)
+- [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
+- [all intensive purposes other misused phrases](https://funny.allwomenstalk.com/commonly-misused-words-and-expressions-in-my-neck-of-the-woods/)
 - [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
+- [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
+- [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
+- [if youre here whos running heaven](https://funny.allwomenstalk.com/funny-replies-to-overused-pesky-pick-up-lines/)
+- [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
+- [paris riche stylo smoky eye spark](https://inspiration.allwomenstalk.com/limiting-phrases-you-say-that-age-you/)
 - [7 Amazing Satirists ...](https://allwomenstalk.com/7-amazing-satirists/)
 - [9 Movies That Make Me Laugh ...](https://7fun.net/9-movies-that-make-me-laugh/)
 

@@ -3,7 +3,7 @@ title: "11 Funny Old West Slang Terms We Should Use Again ..."
 description: "Above Snakes; Adam's Ale; Beetle Crushers; Catch a Weasel Asleep; Flannel Mouth; More ..."
 url: "https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/"
 category: "funny"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 11 Funny Old West Slang Terms We Should Use Again ...
@@ -59,16 +59,16 @@ There are thousands of words and phrases in the English language that we've neve
 
 ## Related Posts
 
-- [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
-- [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
-- [who invented tv shows](https://movies.allwomenstalk.com/words-invented-by-tv-shows/)
-- [words teenagers use](https://teen.allwomenstalk.com/words-teenagers-love-to-use/)
 - [when something means something else](https://lifestyle.allwomenstalk.com/colloquial-words-that-used-to-mean-something-else/)
+- [who invented tv shows](https://movies.allwomenstalk.com/words-invented-by-tv-shows/)
 - [funny signs to make](https://funny.allwomenstalk.com/funny-signs-to-make-you-chuckle-and-scratch-your-head/)
-- [old timer sayings funny](https://funny.allwomenstalk.com/silly-old-time-phrases-that-youll-love-using/)
 - [latin motos](https://funny.allwomenstalk.com/funny-latin-phrases-youll-benefit-from-learning/)
-- [7 Popular Sayings That Are Just Plain Dumb ...](https://lifestyle.allwomenstalk.com/popular-sayings-that-are-just-plain-dumb/)
 - [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
+- [words teenagers use](https://teen.allwomenstalk.com/words-teenagers-love-to-use/)
+- [old timer sayings funny](https://funny.allwomenstalk.com/silly-old-time-phrases-that-youll-love-using/)
+- [7 Popular Sayings That Are Just Plain Dumb ...](https://lifestyle.allwomenstalk.com/popular-sayings-that-are-just-plain-dumb/)
+- [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
+- [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
 - [7 Words That Are Funny to Say ...](https://allwomenstalk.com/7-words-that-are-funny-to-say/)
 - [9 Cool-Sounding Words to Add to Your Vocabulary .....](https://allwomenstalk.com/9-cool-sounding-words-to-add-to-your-vocabulary/)
 

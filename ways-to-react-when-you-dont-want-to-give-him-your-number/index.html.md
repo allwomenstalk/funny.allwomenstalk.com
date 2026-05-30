@@ -3,7 +3,7 @@ title: "7 Ways to React when You Dont Want to Give Him Your Number ..."
 description: "Give It a Guess; Red Cross Cares; Help from Bell Hooks; Can't Recall; Silly Scribbles; More ..."
 url: "https://funny.allwomenstalk.com/ways-to-react-when-you-dont-want-to-give-him-your-number/"
 category: "funny"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Ways to React when You Dont Want to Give Him Your Number ...
@@ -43,15 +43,15 @@ Never give out your number to someone you don't want contacting you. You're in c
 ## Related Posts
 
 - [he didnt touch me on first date](https://love.allwomenstalk.com/important-things-you-can-tell-about-a-man-on-the-first-date/)
-- [i will tell him how i feel](https://love.allwomenstalk.com/reasons-to-just-tell-him-how-you-feel/)
-- [how to turn on a boyfriend](https://love.allwomenstalk.com/ways-to-turn-your-boyfriend-into-a-fiance/)
-- [caring gestures](https://love.allwomenstalk.com/sweet-gestures-to-make-that-show-him-you-care/)
-- [how to get your boyfriend in the mood](https://love.allwomenstalk.com/ways-to-tell-him-youre-in-the-mood-without-saying-a-word/)
 - [look for a boyfriend](https://teen.allwomenstalk.com/places-teens-can-look-for-boyfriends/)
-- [boyfriend pandora mens rings](https://wedding.allwomenstalk.com/hints-to-give-your-boyfriend-about-the-engagement-ring-you-want/)
+- [i will tell him how i feel](https://love.allwomenstalk.com/reasons-to-just-tell-him-how-you-feel/)
+- [how to get your boyfriend in the mood](https://love.allwomenstalk.com/ways-to-tell-him-youre-in-the-mood-without-saying-a-word/)
 - [when a guy wants to show you off](https://love.allwomenstalk.com/ways-a-proud-boyfriend-will-show-you-off/)
-- [how to flirt properly](https://love.allwomenstalk.com/ways-to-be-a-great-flirt/)
+- [how to turn on a boyfriend](https://love.allwomenstalk.com/ways-to-turn-your-boyfriend-into-a-fiance/)
 - [flaws in a guy](https://love.allwomenstalk.com/tips-to-help-you-overlook-your-guys-flaws/)
+- [how to flirt properly](https://love.allwomenstalk.com/ways-to-be-a-great-flirt/)
+- [caring gestures](https://love.allwomenstalk.com/sweet-gestures-to-make-that-show-him-you-care/)
+- [boyfriend pandora mens rings](https://wedding.allwomenstalk.com/hints-to-give-your-boyfriend-about-the-engagement-ring-you-want/)
 - [7 Ways to Know a Guy Likes You ...](https://allwomenstalk.com/7-ways-to-know-a-guy-likes-you/)
 - [7 Ways to Know Hes Not into You ...](https://allwomenstalk.com/7-ways-to-know-hes-not-into-you/)
 

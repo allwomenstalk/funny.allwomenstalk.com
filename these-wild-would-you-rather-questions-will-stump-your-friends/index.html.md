@@ -3,7 +3,7 @@ title: "These Wild Would You Rather Questions Will Stump Your Friends ..."
 description: "Crush or Parents; Walking Dead or Jurassic Park; Whisper or Shout; Never Speak or Say Everything; Elephant or Giraffe; More ..."
 url: "https://funny.allwomenstalk.com/these-wild-would-you-rather-questions-will-stump-your-friends/"
 category: "funny"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # These Wild Would You Rather Questions Will Stump Your Friends ...
@@ -67,13 +67,13 @@ The next time you're bored, pass the time by asking your friends these ridiculou
 ## Related Posts
 
 - [comebacks for glasses insults](https://lifestyle.allwomenstalk.com/classy-comebacks-thatll-help-you-stay-sophisticated/)
-- [words you didnt know existed](https://lifestyle.allwomenstalk.com/words-youve-always-needed-but-never-realized-existed/)
 - [latein beleidigungen](https://funny.allwomenstalk.com/silly-latin-insults-you-need-to-learn/)
-- [backhanded compliment for a girl](https://inspiration.allwomenstalk.com/these-are-the-perfect-comebacks-to-backhanded-compliments/)
 - [dictionary word games online](https://health.allwomenstalk.com/keep-your-mind-active-with-these-unique-word-games-youve-never-heard-of/)
+- [backhanded compliment for a girl](https://inspiration.allwomenstalk.com/these-are-the-perfect-comebacks-to-backhanded-compliments/)
 - [cute smooth pick up lines](https://funny.allwomenstalk.com/the-fast-track-to-a-fling-pickup-lines-that-are-perfect-for-the-beach/)
-- [carcolepsy](https://funny.allwomenstalk.com/these-words-need-to-exist-starting-now/)
 - [trick.questions](https://funny.allwomenstalk.com/see-if-you-can-figure-out-these-trick-questions/)
+- [words you didnt know existed](https://lifestyle.allwomenstalk.com/words-youve-always-needed-but-never-realized-existed/)
+- [carcolepsy](https://funny.allwomenstalk.com/these-words-need-to-exist-starting-now/)
 - [what does it mean when a guy tells you good mornin...](https://love.allwomenstalk.com/what-men-mean-when-they-send-you-these-common-texts/)
 - [self deprecating quotes](https://inspiration.allwomenstalk.com/here-are-most-self-deprecating-phrases-people-say-but-shouldnt-ever/)
 - [7 Creative Crazy Present Ideas for the Ones That H...](https://allwomenstalk.com/7-creative-crazy-present-ideas-for-the-ones-that-have-everything/)

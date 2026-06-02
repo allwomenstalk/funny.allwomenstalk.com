@@ -3,7 +3,7 @@ title: "17 Funny Excuses to Use for Skipping Class ..."
 description: "I’m Allergic to Responsibility; It Wasn’t Destined to Happen; I Was at a Procrastinators Club Meeting; I Couldn’t Come on an Empty Stomach; I Had a Bad Hair Day; More ..."
 url: "https://funny.allwomenstalk.com/funny-excuses-for-skipping-class/"
 category: "funny"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 17 Funny Excuses to Use for Skipping Class ...
@@ -116,16 +116,16 @@ Your teachers might not appreciate these excuses, but they certainly are funny. 
 
 ## Related Posts
 
-- [united kingdom accent](https://lifestyle.allwomenstalk.com/how-to-fake-a-british-accent/)
-- [brown food names](https://food.allwomenstalk.com/food-names-youve-been-saying-wrong/)
-- [apocalypse jokes](https://funny.allwomenstalk.com/dad-jokes-that-will-actually-make-you-laugh/)
-- [sherlock holmes catch phrases](https://books.allwomenstalk.com/words-to-steal-from-sherlock-holmes/)
+- [emoji pick up lines](https://funny.allwomenstalk.com/the-biggest-pick-up-line-failures/)
 - [aussie pick up lines](https://lifestyle.allwomenstalk.com/australian-slang-terms-you-havent-heard/)
+- [brown food names](https://food.allwomenstalk.com/food-names-youve-been-saying-wrong/)
+- [how to professionally say someone is lazy](https://funny.allwomenstalk.com/the-best-comebacks-for-being-called-lazy/)
 - [funniest roses are red poems](https://funny.allwomenstalk.com/the-funniest-lines-to-use-when-dumping-him/)
+- [sherlock holmes catch phrases](https://books.allwomenstalk.com/words-to-steal-from-sherlock-holmes/)
+- [united kingdom accent](https://lifestyle.allwomenstalk.com/how-to-fake-a-british-accent/)
 - [crazy things parents text](https://funny.allwomenstalk.com/embarrassing-things-our-parents-say-over-text/)
 - [use that word lightly](https://lifestyle.allwomenstalk.com/words-you-should-never-use-lightly/)
-- [emoji pick up lines](https://funny.allwomenstalk.com/the-biggest-pick-up-line-failures/)
-- [how to professionally say someone is lazy](https://funny.allwomenstalk.com/the-best-comebacks-for-being-called-lazy/)
+- [apocalypse jokes](https://funny.allwomenstalk.com/dad-jokes-that-will-actually-make-you-laugh/)
 - [7 Tips on Being a Substitute Teacher ...](https://allwomenstalk.com/7-tips-on-being-a-substitute-teacher/)
 - [7 Ways to Get Better Grades ...](https://allwomenstalk.com/7-ways-to-get-better-grades/)
 

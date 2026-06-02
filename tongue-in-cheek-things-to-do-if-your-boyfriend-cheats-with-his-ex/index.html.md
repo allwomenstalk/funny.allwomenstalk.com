@@ -3,7 +3,7 @@ title: "7 Tongue-in-Cheek Things to do if Your Boyfriend Cheats with His Ex ..."
 description: "Text Him... a Lot; FBO; Make Sure He is Aware of How Much He Hurt You; Make Sure Everyone else is Aware Too; Frequently Contact His Friends; More ..."
 url: "https://funny.allwomenstalk.com/tongue-in-cheek-things-to-do-if-your-boyfriend-cheats-with-his-ex/"
 category: "funny"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Tongue\-in\-Cheek Things to do if Your Boyfriend Cheats with His Ex ...
@@ -58,16 +58,16 @@ Has your boyfriend ever cheated on you with his ex? After you got him back, did 
 
 ## Related Posts
 
+- [hear ex](https://love.allwomenstalk.com/things-you-feel-when-you-hear-about-an-ex/)
+- [how to not let your life revolve around your boyfr...](https://love.allwomenstalk.com/tips-on-how-to-not-let-your-life-revolve-around-him/)
+- [how to get over concert depression](https://funny.allwomenstalk.com/phases-of-post-concert-depression/)
+- [why do i feel sad when my friend is sad](https://lifestyle.allwomenstalk.com/things-to-do-when-your-best-friend-is-sad/)
 - [why heartbreak is good for you](https://love.allwomenstalk.com/surprising-benefits-of-a-broken-heart/)
 - [how to fix a bad relationship](https://love.allwomenstalk.com/ways-to-fix-a-bad-relationship/)
-- [how to not let your life revolve around your boyfr...](https://love.allwomenstalk.com/tips-on-how-to-not-let-your-life-revolve-around-him/)
 - [how to keep busy after a breakup](https://love.allwomenstalk.com/ways-to-keep-busy-during-a-break-up/)
-- [why do i feel sad when my friend is sad](https://lifestyle.allwomenstalk.com/things-to-do-when-your-best-friend-is-sad/)
-- [hear ex](https://love.allwomenstalk.com/things-you-feel-when-you-hear-about-an-ex/)
 - [how to deal with failing](https://teen.allwomenstalk.com/ways-to-recover-emotionally-after-failing-a-class/)
-- [how to get over concert depression](https://funny.allwomenstalk.com/phases-of-post-concert-depression/)
-- [what to do when you think your boyfriend is cheati...](https://love.allwomenstalk.com/things-to-do-if-you-think-your-boyfriend-is-cheating/)
 - [i quit relationship quotes](https://love.allwomenstalk.com/reassuring-quotes-to-help-you-finally-end-a-bad-relationship/)
+- [what to do when you think your boyfriend is cheati...](https://love.allwomenstalk.com/things-to-do-if-you-think-your-boyfriend-is-cheating/)
 - [7 Ways to Catch Your Cheating Boyfriend ...](https://allwomenstalk.com/7-ways-to-catch-your-cheating-boyfriend/)
 - [7 Ways to Deal with His Ex ...](https://allwomenstalk.com/7-ways-to-deal-with-his-ex/)
 

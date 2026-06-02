@@ -3,7 +3,7 @@ title: "11 Silly Old Time Phrases That Youll Love Using ..."
 description: "Paint the Town Red; Can't Cut the Mustard; Drink like a Fish; Don't Jump Ship; The Cat's Meow; More ..."
 url: "https://funny.allwomenstalk.com/silly-old-time-phrases-that-youll-love-using/"
 category: "funny"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 11 Silly Old Time Phrases That Youll Love Using ...
@@ -58,16 +58,16 @@ There are hundreds of silly phrases out there, but it's up to you to use them. Y
 
 ## Related Posts
 
+- [jokes about piercings](https://funny.allwomenstalk.com/clever-jokes-only-literature-lovers-will-appreciate/)
+- [t shirts saying](https://fashion.allwomenstalk.com/hilarious-t-shirt-sayings-you-will-laugh-out-loud-at/)
 - [funny words like shenanigans](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
 - [good mean girl comebacks](https://funny.allwomenstalk.com/insults-you-should-steal-from-the-movie-mean-girls/)
-- [medieval words and phrases](https://funny.allwomenstalk.com/fancy-medieval-words-that-should-be-brought-back/)
-- [jokes about piercings](https://funny.allwomenstalk.com/clever-jokes-only-literature-lovers-will-appreciate/)
-- [hermit the frog drawing](https://inspiration.allwomenstalk.com/quotes-from-kermit-the-frog-the-puppet-with-a-lot-to-say/)
-- [t shirts saying](https://fashion.allwomenstalk.com/hilarious-t-shirt-sayings-you-will-laugh-out-loud-at/)
 - [some e card](https://funny.allwomenstalk.com/hilariously-sassy-e-cards-that-we-cant-get-enough-of/)
-- [anti jokes list](https://funny.allwomenstalk.com/anti-jokes-that-will-make-you-burst-out-in-laughter/)
 - [pickup line espaol](https://funny.allwomenstalk.com/silly-pick-up-lines-in-latin/)
+- [medieval words and phrases](https://funny.allwomenstalk.com/fancy-medieval-words-that-should-be-brought-back/)
 - [f1 pickup lines](https://funny.allwomenstalk.com/perfect-guardians-of-the-galaxy-pick-up-lines/)
+- [anti jokes list](https://funny.allwomenstalk.com/anti-jokes-that-will-make-you-burst-out-in-laughter/)
+- [hermit the frog drawing](https://inspiration.allwomenstalk.com/quotes-from-kermit-the-frog-the-puppet-with-a-lot-to-say/)
 - [7 Everyday Phrases Attributed to Shakespeare ...](https://lifestyle.allwomenstalk.com/everyday-phrases-attributed-to-shakespeare/)
 - [10 Funny Things That Children Say ...](https://allwomenstalk.com/10-funny-things-that-children-say/)
 

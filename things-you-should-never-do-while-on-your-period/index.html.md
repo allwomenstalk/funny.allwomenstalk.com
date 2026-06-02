@@ -3,7 +3,7 @@ title: "13 Things You Should Never do While on Your Period ..."
 description: "Cook Any Meals; Use Our Phones; Exercise in Any Way; Watch Romantic Comedies; Eat Tons of Chocolate; More ..."
 url: "https://funny.allwomenstalk.com/things-you-should-never-do-while-on-your-period/"
 category: "funny"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 13 Things You Should Never do While on Your Period ...
@@ -94,16 +94,16 @@ This article written in collaboration with editor, Eliza Martinez
 
 ## Related Posts
 
+- [why do people bark at emos](https://movies.allwomenstalk.com/things-people-do-wrong-in-horror-movies-when-trying-to-survive/)
 - [things never to say to someone who just came out](https://lifestyle.allwomenstalk.com/things-you-should-never-say-about-yourself/)
-- [job description cliches](https://lifestyle.allwomenstalk.com/worst-cliches-to-avoid-during-a-job-interview/)
-- [shmerms_](https://health.allwomenstalk.com/personal-items-you-shouldnt-share-to-avoid-germ-transference/)
 - [loreal riche le stylo silver couture](https://inspiration.allwomenstalk.com/things-that-block-your-creativity-that-you-should-stop-doing/)
-- [10 things a man can only do](https://love.allwomenstalk.com/things-a-woman-should-never-do-for-a-man/)
 - [why do i feel like im losing everyone](https://teen.allwomenstalk.com/worst-types-of-friends-you-shouldnt-keep-in-your-life/)
 - [relationship no nos](https://love.allwomenstalk.com/online-dating-no-nos-to-stop-doing-right-now/)
+- [job description cliches](https://lifestyle.allwomenstalk.com/worst-cliches-to-avoid-during-a-job-interview/)
+- [shmerms_](https://health.allwomenstalk.com/personal-items-you-shouldnt-share-to-avoid-germ-transference/)
 - [things to talk about with a new friend](https://lifestyle.allwomenstalk.com/things-to-avoid-saying-to-a-new-friend/)
+- [10 things a man can only do](https://love.allwomenstalk.com/things-a-woman-should-never-do-for-a-man/)
 - [questions you should never ask a girl](https://lifestyle.allwomenstalk.com/questions-you-should-never-ask/)
-- [why do people bark at emos](https://movies.allwomenstalk.com/things-people-do-wrong-in-horror-movies-when-trying-to-survive/)
 - [11 Things to Never Tell Your Man ...](https://allwomenstalk.com/11-things-to-never-tell-your-man/)
 - [10 Things to Not do in Bed ...](https://allwomenstalk.com/10-things-to-not-do-in-bed/)
 

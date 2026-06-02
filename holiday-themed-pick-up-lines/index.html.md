@@ -3,7 +3,7 @@ title: "7 Holiday Themed Pick-up Lines ..."
 description: "Can I Take a Picture of You, so I Can Show Santa Exactly What I Want for Christmas?; Let's Be Naughty Together and save Santa the Trip; Shouldn't You Be Sitting on Top of the Tree, Angel?; Who Needs Sugarplums? I Have Visions of You Dancing in My Head; Let’s Try to Kiss for Eight Nights; More ..."
 url: "https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/"
 category: "funny"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Holiday Themed Pick\-up Lines ...
@@ -42,16 +42,16 @@ Pick-up lines aren't the most successful way of getting a date, but it can't hur
 
 ## Related Posts
 
-- [where are you these days funny reply](https://funny.allwomenstalk.com/funny-responses-to-what-are-you-going-to-do-with-your-life/)
-- [tell me a history joke](https://funny.allwomenstalk.com/corny-jokes-for-all-of-the-history-buffs-out-there/)
-- [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
-- [words that sound smart](https://lifestyle.allwomenstalk.com/words-thatll-make-you-sound-smart-when-you-use-them/)
-- [words that used to be swear words](https://funny.allwomenstalk.com/ridiculous-words-that-used-to-be-considered-curses/)
-- [new year pickup line](https://funny.allwomenstalk.com/pick-up-lines-to-use-around-new-years/)
 - [wrong use of words](https://lifestyle.allwomenstalk.com/everyday-words-we-all-use-incorrectly/)
+- [where are you these days funny reply](https://funny.allwomenstalk.com/funny-responses-to-what-are-you-going-to-do-with-your-life/)
+- [words that sound smart](https://lifestyle.allwomenstalk.com/words-thatll-make-you-sound-smart-when-you-use-them/)
 - [slang words 2015](https://lifestyle.allwomenstalk.com/whos-your-bae-the-slang-words-everyone-used-in/)
-- [crush funny flirty flirty quotes](https://funny.allwomenstalk.com/funny-quotes-about-the-difficulty-of-flirting/)
+- [tell me a history joke](https://funny.allwomenstalk.com/corny-jokes-for-all-of-the-history-buffs-out-there/)
+- [new year pickup line](https://funny.allwomenstalk.com/pick-up-lines-to-use-around-new-years/)
+- [words that used to be swear words](https://funny.allwomenstalk.com/ridiculous-words-that-used-to-be-considered-curses/)
 - [whats a word you mispronounced one time](https://lifestyle.allwomenstalk.com/commonly-mispronounced-words-youve-been-saying-wrong/)
+- [crush funny flirty flirty quotes](https://funny.allwomenstalk.com/funny-quotes-about-the-difficulty-of-flirting/)
+- [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
 - [10 Worst Pick up Lines ...](https://allwomenstalk.com/10-worst-pick-up-lines/)
 - [7 Funny Jokes to Help You Smile ...](https://allwomenstalk.com/7-funny-jokes-to-help-you-smile/)
 

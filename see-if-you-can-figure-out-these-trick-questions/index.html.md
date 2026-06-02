@@ -3,7 +3,7 @@ title: "See if You Can Figure out These Trick Questions ..."
 description: "How Much Dirt is in a 3 Foot Deep Hole?; Is It Legal for a Man to Marry His Widowed Wife's Sister?; A Rooster Laid an Egg on Top of the Barn Roof. Which Way Did It Roll?; A Little Girl Kicks a Soccer Ball. It Goes 10 Feet and Comes Back to Her. How?; How Can a Man Go Eight Days without Sleep?; More ..."
 url: "https://funny.allwomenstalk.com/see-if-you-can-figure-out-these-trick-questions/"
 category: "funny"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # See if You Can Figure out These Trick Questions ...
@@ -59,15 +59,15 @@ Trick questions are fun, because no one ever sees them coming. Did any of these 
 ## Related Posts
 
 - [cute smooth pick up lines](https://funny.allwomenstalk.com/the-fast-track-to-a-fling-pickup-lines-that-are-perfect-for-the-beach/)
-- [backhanded compliment for a girl](https://inspiration.allwomenstalk.com/these-are-the-perfect-comebacks-to-backhanded-compliments/)
-- [carcolepsy](https://funny.allwomenstalk.com/these-words-need-to-exist-starting-now/)
-- [catcall examples](https://funny.allwomenstalk.com/its-time-to-take-a-stand-the-ultimate-list-of-comebacks-to-catcalls/)
+- [words you didnt know existed](https://lifestyle.allwomenstalk.com/words-youve-always-needed-but-never-realized-existed/)
 - [comebacks for glasses insults](https://lifestyle.allwomenstalk.com/classy-comebacks-thatll-help-you-stay-sophisticated/)
+- [latein beleidigungen](https://funny.allwomenstalk.com/silly-latin-insults-you-need-to-learn/)
 - [self deprecating quotes](https://inspiration.allwomenstalk.com/here-are-most-self-deprecating-phrases-people-say-but-shouldnt-ever/)
 - [el emoji nervioso](https://lifestyle.allwomenstalk.com/emojis-you-didnt-know-you-were-using-wrong/)
-- [words you didnt know existed](https://lifestyle.allwomenstalk.com/words-youve-always-needed-but-never-realized-existed/)
-- [latein beleidigungen](https://funny.allwomenstalk.com/silly-latin-insults-you-need-to-learn/)
 - [dictionary word games online](https://health.allwomenstalk.com/keep-your-mind-active-with-these-unique-word-games-youve-never-heard-of/)
+- [catcall examples](https://funny.allwomenstalk.com/its-time-to-take-a-stand-the-ultimate-list-of-comebacks-to-catcalls/)
+- [backhanded compliment for a girl](https://inspiration.allwomenstalk.com/these-are-the-perfect-comebacks-to-backhanded-compliments/)
+- [carcolepsy](https://funny.allwomenstalk.com/these-words-need-to-exist-starting-now/)
 - [Cracking the Code ...](https://allwomenstalk.com/cracking-the-code-2/)
 - [Try Some Speedy Tips for Quick Memorization ...](https://inspiration.allwomenstalk.com/tips-on-how-to-memorize-things-quickly/)
 

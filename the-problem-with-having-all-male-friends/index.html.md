@@ -3,7 +3,7 @@ title: "17 Problems Only Women with Lots of Guy Friends Understand ..."
 description: "Your Girl Friends Can't Understand How You're Not Secretly in Love with One of Them; You Are Expected to Speak for All Girls in Existence; Guys Are Afraid to Ask You out Because They Think You're Dating One of Your Guy Friends; They Talk about Gross Guy Things around You; Your Guy Friends Get Protective if They Don't like the Person You're into; More ..."
 url: "https://funny.allwomenstalk.com/the-problem-with-having-all-male-friends/"
 category: "funny"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 17 Problems Only Women with Lots of Guy Friends Understand ...
@@ -82,16 +82,16 @@ Do you have all guy friends, or do you mostly hang out with girls?
 
 ## Related Posts
 
-- [when he carries your bag](https://love.allwomenstalk.com/things-men-only-do-when-theyre-crazy-about-you/)
-- [mean girl personality traits](https://love.allwomenstalk.com/mean-girl-traits-that-will-chase-boys-away/)
-- [men in their 20s](https://love.allwomenstalk.com/annoying-habits-of-men-in-their-20s/)
-- [most sensitive part in men](https://love.allwomenstalk.com/things-most-men-are-sensitive-about/)
+- [bedrooms for men](https://love.allwomenstalk.com/men-dont-care-about-these-things-in-the-bedroom/)
 - [i love my psycho girlfriend](https://love.allwomenstalk.com/things-thatll-earn-you-the-title-of-a-psycho-girlfriend/)
+- [most sensitive part in men](https://love.allwomenstalk.com/things-most-men-are-sensitive-about/)
+- [how do you know if youre a good kisser](https://love.allwomenstalk.com/traits-that-make-a-woman-a-good-kisser/)
+- [mean girl personality traits](https://love.allwomenstalk.com/mean-girl-traits-that-will-chase-boys-away/)
 - [signs a man is territorial](https://love.allwomenstalk.com/how-to-mark-your-territory-to-keep-women-away-from-your-man/)
 - [how to take things slow with a guy](https://love.allwomenstalk.com/how-to-stop-getting-screwed-over-by-men/)
-- [how do you know if youre a good kisser](https://love.allwomenstalk.com/traits-that-make-a-woman-a-good-kisser/)
-- [bedrooms for men](https://love.allwomenstalk.com/men-dont-care-about-these-things-in-the-bedroom/)
+- [men in their 20s](https://love.allwomenstalk.com/annoying-habits-of-men-in-their-20s/)
 - [what on a mans mind](https://love.allwomenstalk.com/secrets-about-the-way-your-mans-mind-works/)
+- [when he carries your bag](https://love.allwomenstalk.com/things-men-only-do-when-theyre-crazy-about-you/)
 - [11 Things Guys Hate about Girls ...](https://love.allwomenstalk.com/things-guys-hate-about-girls/)
 - [8 Things I Wish Id Always Known about Men ...](https://allwomenstalk.com/8-things-i-wish-id-always-known-about-men/)
 

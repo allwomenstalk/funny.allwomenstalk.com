@@ -3,7 +3,7 @@ title: "Its Time to Take a Stand! the Ultimate List of Comebacks to Catcalls ...
 description: "\"Call Me That Again and I’ll Call You an Ambulance.\"; \"I Acknowledge My Beauty in the Mirror Everyday. I Don’t Need Your Help.\"; \"Sorry, but Im Looking for a Man with Manners.\"; \"You Too!\"; \"I Want You… to Get Away from Me.\"; More ..."
 url: "https://funny.allwomenstalk.com/its-time-to-take-a-stand-the-ultimate-list-of-comebacks-to-catcalls/"
 category: "funny"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Its Time to Take a Stand! the Ultimate List of Comebacks to Catcalls ...
@@ -44,14 +44,14 @@ You're gorgeous, but you deserve to hear about your beauty in a respectful way, 
 
 - [strange language](https://lifestyle.allwomenstalk.com/strange-languages-youve-never-heard-of-until-now/)
 - [substitute cuss words](https://lifestyle.allwomenstalk.com/stop-cursing-by-using-these-alternative-insult-words-instead/)
-- [british slang for goodbye](https://lifestyle.allwomenstalk.com/british-slang-words-that-should-be-used-all-around-the-world/)
-- [funny ways to reject someone asking you out](https://funny.allwomenstalk.com/funny-responses-for-when-a-guy-rejects-you/)
 - [hawaii saying](https://lifestyle.allwomenstalk.com/hawaiian-words-to-learn-besides-aloha/)
-- [words aesthetic](https://lifestyle.allwomenstalk.com/aesthetically-pleasing-words-youll-love-to-say/)
-- [el emoji nervioso](https://lifestyle.allwomenstalk.com/emojis-you-didnt-know-you-were-using-wrong/)
-- [feel like royalty](https://lifestyle.allwomenstalk.com/fancy-words-to-use-thatll-make-you-feel-like-royalty/)
-- [flow chart quizzes](https://funny.allwomenstalk.com/need-a-laugh-these-funny-flow-charts-can-help/)
 - [back handed compliment examples](https://funny.allwomenstalk.com/backhanded-compliments-to-give-your-enemies/)
+- [british slang for goodbye](https://lifestyle.allwomenstalk.com/british-slang-words-that-should-be-used-all-around-the-world/)
+- [feel like royalty](https://lifestyle.allwomenstalk.com/fancy-words-to-use-thatll-make-you-feel-like-royalty/)
+- [words aesthetic](https://lifestyle.allwomenstalk.com/aesthetically-pleasing-words-youll-love-to-say/)
+- [funny ways to reject someone asking you out](https://funny.allwomenstalk.com/funny-responses-for-when-a-guy-rejects-you/)
+- [flow chart quizzes](https://funny.allwomenstalk.com/need-a-laugh-these-funny-flow-charts-can-help/)
+- [el emoji nervioso](https://lifestyle.allwomenstalk.com/emojis-you-didnt-know-you-were-using-wrong/)
 - [Fighting Words: Names We Call Ourselves and Each O...](https://allwomenstalk.com/fighting-words-names-we-call-ourselves-and-each-other/)
 - [8 Ways to Stand up for Yourself ...](https://allwomenstalk.com/8-ways-to-stand-up-for-yourself/)
 

@@ -1,12 +1,12 @@
 ---
-title: "9 Classy Ways to Say Youre on Your Period ..."
+title: "9 Classy Ways to Say You're on Your Period ..."
 description: "My Oven is in Cleaning Mode; My Girl Has Started Her Monthly Job; I’m Experiencing Technical Difficulties; Mother Nature is Obsessed with Me; I Think I’m Going to Wear Red Today; More ..."
 url: "https://funny.allwomenstalk.com/classy-ways-to-say-youre-on-your-period/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 9 Classy Ways to Say Youre on Your Period ...
+# 9 Classy Ways to Say You're on Your Period ...
 
 No one will know that you're on your period unless you tell them, which is normally a positive thing. However, if you're dating a guy who's trying to touch you below the belt, or if your friends are wondering why you've been so moody, then you might want to let them know it's your time of the month. Since saying that you're on your period sounds so bland and boring, there are other ways you can divulge of the information. Here are a few of the classiest ways to say you're on your period:
 
@@ -50,17 +50,17 @@ You don't have to be blunt and tell others that you're bleeding below the belt, 
 
 ## Related Posts
 
-- [funny ways of answering the phone](https://funny.allwomenstalk.com/funny-replies-for-when-the-teacher-calls-on-you/)
+- [what do drunk texts look like](https://funny.allwomenstalk.com/hysterical-drunk-text-fails/)
 - [7 Silly Internet Mistakes Most People Are Making E...](https://lifestyle.allwomenstalk.com/silly-internet-mistakes-you-need-to-stop-making-today/)
+- [six word stories funny](https://books.allwomenstalk.com/the-best-6-word-stories-ever-written/)
 - [another word for flirting](https://love.allwomenstalk.com/seductive-words-to-use-when-flirting/)
-- [stuff to tell your boyfriend](https://love.allwomenstalk.com/corny-phrases-hell-actually-love-to-hear/)
 - [straight forward text](https://love.allwomenstalk.com/texts-messages-you-should-stop-overanalyzing/)
 - [why you so quiet](https://funny.allwomenstalk.com/clever-responses-for-when-others-call-you-quiet/)
+- [stuff to tell your boyfriend](https://love.allwomenstalk.com/corny-phrases-hell-actually-love-to-hear/)
 - [describing words about yourself](https://inspiration.allwomenstalk.com/confidence-boosting-words-to-use-to-describe-yourself/)
-- [what do drunk texts look like](https://funny.allwomenstalk.com/hysterical-drunk-text-fails/)
-- [six word stories funny](https://books.allwomenstalk.com/the-best-6-word-stories-ever-written/)
 - [hate doesnt know own name](https://lifestyle.allwomenstalk.com/things-you-can-do-if-you-hate-your-name/)
-- [9 Table Manners You Dont Want to Forget ...](https://lifestyle.allwomenstalk.com/table-manners-you-dont-want-to-forget/)
+- [funny ways of answering the phone](https://funny.allwomenstalk.com/funny-replies-for-when-the-teacher-calls-on-you/)
+- [9 Table Manners You Don't Want to Forget ...](https://lifestyle.allwomenstalk.com/table-manners-you-dont-want-to-forget/)
 - [9 Things a Guy May Want from You ...](https://love.allwomenstalk.com/things-a-guy-may-want-from-you/)
 
 ## Site Information

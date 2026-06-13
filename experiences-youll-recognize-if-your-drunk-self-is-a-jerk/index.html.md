@@ -1,12 +1,12 @@
 ---
-title: "19 Experiences Youll Recognize if Your Drunk Self is a Jerk ..."
+title: "19 Experiences You'll Recognize if Your Drunk Self is a Jerk ..."
 description: "You Frequently Wake up to Find You've Sent Texts like This; Sometimes You Make Your Drunk Self Look like a Jerk; Finding Uber Receipts for Truly Epic Trips; Your Drunk Self Abuses Household Appliances; Drunk You Has No Respect for the Rules; More ..."
 url: "https://funny.allwomenstalk.com/experiences-youll-recognize-if-your-drunk-self-is-a-jerk/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 19 Experiences Youll Recognize if Your Drunk Self is a Jerk ...
+# 19 Experiences You'll Recognize if Your Drunk Self is a Jerk ...
 
 People drink. It happens. Sometimes you get tipsy, sometimes you get drunk, sometimes you get blitzed out of your head. Sometimes you're nice when you're drunk, sometimes you're morose, and sometimes you're kind of a jerk. If you're not sure what kind of type you are, read on. Protip: if you recognize these experiences, your drunk self is probably kind of a booger.
 
@@ -165,15 +165,15 @@ Be honest. Is your drunk self kind of a jerk?
 ## Related Posts
 
 - [dont turn 25](https://lifestyle.allwomenstalk.com/things-that-just-dont-matter-once-you-turn-25/)
-- [people pleaser memes](https://funny.allwomenstalk.com/the-daily-problems-only-people-pleasers-can-relate-to/)
-- [7swvdhvwxok -site:youtube.com](https://lifestyle.allwomenstalk.com/questions-that-no-one-knows-the-answers-to/)
 - [dennis prager happiness book](https://inspiration.allwomenstalk.com/what-you-can-learn-from-happiness-is-a-serious-problem-by-dennis-prager/)
+- [7swvdhvwxok -site:youtube.com](https://lifestyle.allwomenstalk.com/questions-that-no-one-knows-the-answers-to/)
+- [forward i'm heavy backward i'm not what am i](https://love.allwomenstalk.com/dont-let-these-things-in-life-weigh-you-down/)
 - [sadness and happiness](https://inspiration.allwomenstalk.com/why-allowing-yourself-to-be-sad-allows-you-to-be-happier/)
-- [forward im heavy backward im not what am i](https://love.allwomenstalk.com/dont-let-these-things-in-life-weigh-you-down/)
-- [losing cool](https://lifestyle.allwomenstalk.com/dont-lose-your-cool-over-these-silly-things/)
-- [things that are reckless](https://lifestyle.allwomenstalk.com/reckless-things-that-are-actually-healthy-for-you-to-do/)
+- [people pleaser memes](https://funny.allwomenstalk.com/the-daily-problems-only-people-pleasers-can-relate-to/)
 - [thoughts of a man](https://love.allwomenstalk.com/the-right-man-will-make-you-think-these-happy-thoughts/)
 - [success what people think it looks like](https://inspiration.allwomenstalk.com/this-is-what-success-looks-like/)
+- [losing cool](https://lifestyle.allwomenstalk.com/dont-lose-your-cool-over-these-silly-things/)
+- [things that are reckless](https://lifestyle.allwomenstalk.com/reckless-things-that-are-actually-healthy-for-you-to-do/)
 - [10 Facts about Alcohol That You Need to Know ...](https://allwomenstalk.com/10-facts-about-alcohol-that-you-need-to-know/)
 - [11 Self-Destructive Behaviors ...](https://allwomenstalk.com/11-self-destructive-behaviors/)
 

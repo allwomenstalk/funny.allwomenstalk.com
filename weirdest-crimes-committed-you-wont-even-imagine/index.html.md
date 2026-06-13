@@ -1,12 +1,12 @@
 ---
-title: "11 Weirdest Crimes Committed You Wont Even Imagine ..."
+title: "11 Weirdest Crimes Committed You Won't Even Imagine ..."
 description: "Man Attacks Girlfriend with a Banana; Boy Punches His Grandma; Man Crashes into a Gas Station, Steals a Banana; Man Punches Pizza Guy; Robber Found Snoozing at the Place He Robbed; More ..."
 url: "https://funny.allwomenstalk.com/weirdest-crimes-committed-you-wont-even-imagine/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 11 Weirdest Crimes Committed You Wont Even Imagine ...
+# 11 Weirdest Crimes Committed You Won't Even Imagine ...
 
 It’s a simple fact that people do unpredictable things but some of them actually take things to a whole another level and make history in the weirdest crimes committed. You would be surprised what people do and how ridiculous it sounds when reported in the news. Just take a look at this list of 11 weirdest crimes committed!
 
@@ -60,15 +60,15 @@ This article was written in collaboration with editor Lisa Washington.
 
 ## Related Posts
 
-- [what spider is the most poisonous](https://lifestyle.allwomenstalk.com/of-the-worlds-most-poisonous-spiders/)
-- [scrubs sad moments](https://movies.allwomenstalk.com/sad-moments-from-scrubs-that-left-me-in-tears/)
+- [when someone you loved becomes a stranger](https://lifestyle.allwomenstalk.com/struggles-of-becoming-strangers-again/)
+- [when the bad guy is actually talented](https://movies.allwomenstalk.com/bad-guys-we-love-even-though-we-shouldnt/)
 - [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
 - [crazy news headlines](https://funny.allwomenstalk.com/real-but-crazy-newspaper-headlines/)
-- [when someone you loved becomes a stranger](https://lifestyle.allwomenstalk.com/struggles-of-becoming-strangers-again/)
-- [what episode do serena and nate get together in se...](https://movies.allwomenstalk.com/memorable-gossip-girl-moments-i-will-never-get-over/)
 - [famous street magicians](https://celebs.allwomenstalk.com/best-magicians-who-will-boggle-your-mind/)
-- [when the bad guy is actually talented](https://movies.allwomenstalk.com/bad-guys-we-love-even-though-we-shouldnt/)
+- [what episode do serena and nate get together in se...](https://movies.allwomenstalk.com/memorable-gossip-girl-moments-i-will-never-get-over/)
 - [disney series movies](https://movies.allwomenstalk.com/disney-movie-spin-off-shows-i-loved-as-a-kid/)
+- [what spider is the most poisonous](https://lifestyle.allwomenstalk.com/of-the-worlds-most-poisonous-spiders/)
+- [scrubs sad moments](https://movies.allwomenstalk.com/sad-moments-from-scrubs-that-left-me-in-tears/)
 - [pysch season 4](https://movies.allwomenstalk.com/best-pysch-episodes-that-we-can-watch-over-and-over/)
 - [7 Shockingly True Crime Documentaries ...](https://movies.allwomenstalk.com/shockingly-true-crime-documentaries/)
 - [7 Weirdest Urban Legends ...](https://allwomenstalk.com/7-urban-legends/)

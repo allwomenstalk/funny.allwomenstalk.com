@@ -1,12 +1,12 @@
 ---
-title: "7 Weird Wacky Things All Best Friends do ..."
+title: "7 Weird, Wacky Things All Best Friends do ..."
 description: "Constant Chats; Invalid Insults; Telepathic Talks; One Word; Bogus Bands; More ..."
 url: "https://funny.allwomenstalk.com/weird-wacky-things-all-best-friends-do/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Weird Wacky Things All Best Friends do ...
+# 7 Weird, Wacky Things All Best Friends do ...
 
 Your BFF is so much more than just a friend--she's practically your sister. She's been with you through it all, so she's seen you at your best and at your worst. Although she's witnessed every side of you, her favorite is your psychotic side, the side that you'd be embarrassed for anyone else to see. Here are some weird, wacky things all best friends do:
 
@@ -56,14 +56,14 @@ Go tell your BFF that you love her! She deserves to be complimented, so don't fo
 
 ## Related Posts
 
-- [humans of new york santa](https://inspiration.allwomenstalk.com/inspirational-humans-of-new-york-hony-stories/)
-- [nocholas hoult](https://movies.allwomenstalk.com/news-harry-potter-fans-have-been-waiting-for/)
-- [much marcle yew tree](https://lifestyle.allwomenstalk.com/youve-never-seen-anything-quite-like-these-ancient-trees/)
 - [death valley ufo](https://lifestyle.allwomenstalk.com/weird-ancient-alien-myths-that-will-not-let-you-sleep-at-night/)
 - [phobias list](https://lifestyle.allwomenstalk.com/eek-these-phobia-infographics-might-freak-you-out/)
 - [awesome creations](https://lifestyle.allwomenstalk.com/is-this-americas-great-artist-the-awesome-creations-of-jeff-koons/)
+- [humans of new york santa](https://inspiration.allwomenstalk.com/inspirational-humans-of-new-york-hony-stories/)
 - [meaning of goosebumps](https://lifestyle.allwomenstalk.com/things-that-are-sure-to-give-you-goosebumps/)
 - [dowager countess downton abbey memes](https://movies.allwomenstalk.com/down-about-the-end-of-downton-abbey-steal-these-dowager-quotes-so-the-series-lives-on/)
+- [nocholas hoult](https://movies.allwomenstalk.com/news-harry-potter-fans-have-been-waiting-for/)
+- [much marcle yew tree](https://lifestyle.allwomenstalk.com/youve-never-seen-anything-quite-like-these-ancient-trees/)
 - [attempt to fly](https://travel.allwomenstalk.com/here-are-the-failed-flight-attempts-humanity-will-always-remember/)
 - [beryl utah hotels](https://travel.allwomenstalk.com/coffins-cars-and-cribs-the-craziest-hotel-beds/)
 - [7 Outrageously Excellent Ways to Find New Friends ...](https://lifestyle.allwomenstalk.com/outrageously-excellent-ways-to-find-new-friends/)

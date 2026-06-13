@@ -1,12 +1,12 @@
 ---
-title: "50 US Laws That Dont Make Sense ..."
+title: "50 US Laws That Don't Make Sense ..."
 description: "Alabama; Alaska; Arizona; Arkansas; California; More ..."
 url: "https://funny.allwomenstalk.com/us-laws-that-dont-make-sense/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 50 US Laws That Dont Make Sense ...
+# 50 US Laws That Don't Make Sense ...
 
 It's amazing how many US laws don't make sense. For instance, I thought it was weird that my marriage license application asked if we were “first cousins or closer”. I mean, who would want to marry their first cousin? Wouldn't remembering things like catching bats in the attic or gluing his lips to the wall “ruin the mood”? I'd say so. Anyway, I thought it might be fun to see exactly how many dumb laws there were. Not surprisingly, most of them were about sex-what can be done (vaginal sex only), who can do it (married people) and how (missionary position). I don't know why lawmakers felt the need to go out of their way to outlaw these things. Then again, they've also made laws against taking a lion to the movies (Maryland) and trying to clone yourself (Arizona), so you never know. To that end, here are some of the US laws I found that just don't make sense. Since every state has its own brand of weird, I've gone through all 50. I hope you don't mind.
 
@@ -353,18 +353,18 @@ These are just a few of the strangest and most nonsensical laws in this country.
 
 ## Related Posts
 
-- [the flayed old lady](https://books.allwomenstalk.com/disturbing-fairytales-you-grew-up-loving-but-should-probably-spare-your-kids-from/)
-- [smile cartoons](https://lifestyle.allwomenstalk.com/these-imaginative-cartoons-will-make-you-smile/)
-- [kiss marry smash](https://funny.allwomenstalk.com/the-hardest-kiss-marry-kill-game-youll-ever-play/)
-- [short faced bear vs t rex](https://lifestyle.allwomenstalk.com/wait-till-you-see-these-giant-animals-that-succeeded-the-dinosaurs/)
 - [the future of civilization](https://lifestyle.allwomenstalk.com/scenarios-about-the-future-of-civilization/)
-- [sunset reflection on water](https://lifestyle.allwomenstalk.com/time-to-stand-and-stare-mesmerizing-reflections-in-water/)
+- [kiss marry smash](https://funny.allwomenstalk.com/the-hardest-kiss-marry-kill-game-youll-ever-play/)
+- [smile cartoons](https://lifestyle.allwomenstalk.com/these-imaginative-cartoons-will-make-you-smile/)
+- [the flayed old lady](https://books.allwomenstalk.com/disturbing-fairytales-you-grew-up-loving-but-should-probably-spare-your-kids-from/)
 - [family story writing](https://lifestyle.allwomenstalk.com/touching-family-stories-that-will-make-you-cry/)
-- [toronto bungee jumping](https://travel.allwomenstalk.com/get-ready-to-scream-the-most-spine-tingling-bungee-jumps-in-the-world/)
+- [short faced bear vs t rex](https://lifestyle.allwomenstalk.com/wait-till-you-see-these-giant-animals-that-succeeded-the-dinosaurs/)
 - [retro shower tile](https://diy.allwomenstalk.com/this-is-what-happens-when-you-go-retro-in-the-bathroom/)
+- [toronto bungee jumping](https://travel.allwomenstalk.com/get-ready-to-scream-the-most-spine-tingling-bungee-jumps-in-the-world/)
+- [sunset reflection on water](https://lifestyle.allwomenstalk.com/time-to-stand-and-stare-mesmerizing-reflections-in-water/)
 - [most inspiring athletes](https://celebs.allwomenstalk.com/inspiring-athletes-through-the-ages/)
 - [7 Reasons to Ignore Advice on Parenting ...](https://parenting.allwomenstalk.com/7-reasons-to-ignore-advice-on-parenting/)
-- [7 Celebrity Self-Help Books You Probably Shouldnt ...](https://allwomenstalk.com/7-celebrity-self-help-books-you-probably-shouldnt-take-seriously/)
+- [7 Celebrity Self-Help Books You Probably Shouldn't...](https://allwomenstalk.com/7-celebrity-self-help-books-you-probably-shouldnt-take-seriously/)
 
 ## Site Information
 

@@ -1,12 +1,12 @@
 ---
-title: "Shes Right You Know... Check out These 36 Quotes from Amy Poehler ..."
+title: "She's Right, You Know... Check out These 36 Quotes from Amy Poehler ..."
 description: "This; Bossy; Move down; Move down; Share Your Heart; More ..."
 url: "https://funny.allwomenstalk.com/shes-right-you-know-check-out-these-quotes-from-amy-poehler/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Shes Right You Know... Check out These 36 Quotes from Amy Poehler ...
+# She's Right, You Know... Check out These 36 Quotes from Amy Poehler ...
 
 There are so, so many reasons to love Amy Poehler - she's smart, funny, and all-around awesome - but if you haven't yet developed your girl crush, let me help get it started! Here are a few quotes to prove that she's just the best.
 
@@ -217,16 +217,16 @@ Source: [Community Post: 22 Amy Poehler](https://www.buzzfeed.com/fivezaj/22-amy
 
 ## Related Posts
 
-- [a bad day doesnt mean a bad life](https://inspiration.allwomenstalk.com/quotes-for-when-youre-sad/)
+- [inspirational calm quotes](https://inspiration.allwomenstalk.com/keep-calm-and-carry-on-with-these-quotes/)
 - [uplifting posters](https://inspiration.allwomenstalk.com/the-most-uplifting-quotes-from-motivational-posters/)
-- [inspire never stop learning quotes](https://inspiration.allwomenstalk.com/stimulating-quotes-thatll-inspire-you-to-learn/)
-- [quotes from frida kahlo](https://inspiration.allwomenstalk.com/have-a-peek-at-these-frida-kahlo-quotes-to-inspire-your-inner-artist/)
 - [amy schumer quotes](https://funny.allwomenstalk.com/quotes-from-amy-schumer-that-will-make-you-think/)
 - [one day is good one day is bad](https://inspiration.allwomenstalk.com/read-these-quotes-after-a-really-rough-day/)
-- [site:allwomenstalk.com](https://lifestyle.allwomenstalk.com/quotes-for-your-bff-and-you/)
 - [nail quotes sayings](https://travel.allwomenstalk.com/these-beachy-quotes-will-make-you-feel-like-youre-on-vacay-even-when-youre-not/)
+- [inspire never stop learning quotes](https://inspiration.allwomenstalk.com/stimulating-quotes-thatll-inspire-you-to-learn/)
+- [quotes from frida kahlo](https://inspiration.allwomenstalk.com/have-a-peek-at-these-frida-kahlo-quotes-to-inspire-your-inner-artist/)
+- [site:allwomenstalk.com](https://lifestyle.allwomenstalk.com/quotes-for-your-bff-and-you/)
+- [a bad day doesn't mean a bad life](https://inspiration.allwomenstalk.com/quotes-for-when-youre-sad/)
 - [girl fashion quotes](https://funny.allwomenstalk.com/funny-fashion-quotes-every-woman-will-understand/)
-- [inspirational calm quotes](https://inspiration.allwomenstalk.com/keep-calm-and-carry-on-with-these-quotes/)
 - [7 Quotes You Would Never Expect out of the Mouth o...](https://celebs.allwomenstalk.com/quotes-you-would-never-expect-out-of-the-mouth-of-betty-white/)
 - [9 Interesting Quotes from Celebrities Who Support ...](https://celebs.allwomenstalk.com/quotes-from-celebrities-who-support-feminism/)
 

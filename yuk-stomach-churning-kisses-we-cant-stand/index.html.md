@@ -1,12 +1,12 @@
 ---
-title: "Yuk! 12 Stomach Churning Kisses We Cant Stand ..."
+title: "Yuk! 12 Stomach Churning Kisses We Can't Stand ..."
 description: "The \"I'm Looking for Lost Treasure in Your Mouth\" Kiss; The \"I'm a Puppy\" Kiss; The \"I'm Going to Eat You\" Kiss; The \"closed Mouth\" Kiss; The \"Eye Opener\"; More ..."
 url: "https://funny.allwomenstalk.com/yuk-stomach-churning-kisses-we-cant-stand/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Yuk! 12 Stomach Churning Kisses We Cant Stand ...
+# Yuk! 12 Stomach Churning Kisses We Can't Stand ...
 
 The closeness, the butterflies, the fireworks when your tongues intertwine...kissing is truly magical, right? Well, yes of course but where there's good, there's also evil and some kisses are downright disgusting! Have you experienced any of these awful kisses?
 
@@ -85,16 +85,16 @@ I'd love to hear some of your horror kiss stories!
 
 ## Related Posts
 
-- [most addictive podcasts](https://lifestyle.allwomenstalk.com/extremely-addictive-podcasts-you-should-play-today/)
 - [tattoo skin stories](https://beauty.allwomenstalk.com/a-short-story-for-anyone-who-wants-a-tattoo/)
-- [gamer meme gif](https://funny.allwomenstalk.com/the-most-frustrating-gifs-every-gamer-has-experienced/)
-- [you stole my heart quotes](https://love.allwomenstalk.com/call-the-cops-the-guy-i-work-with-stole-my-heart/)
-- [amazon scary stories to tell in the dark](https://books.allwomenstalk.com/you-wont-be-able-to-sleep-after-hearing-these-ghost-stories/)
-- [what emojis does the google pixel have](https://funny.allwomenstalk.com/android-emoji-vs-iphone-emoji-epic-showdown/)
-- [where to watch pramface](https://movies.allwomenstalk.com/shows-you-should-watch-if-youre-obsessed-with-british-boys/)
-- [examples of single stories in real life](https://lifestyle.allwomenstalk.com/one-line-stories-that-will-blow-you-away/)
 - [downton abbey hair styles](https://movies.allwomenstalk.com/shows-that-downton-abbey-fans-will-flip-over/)
+- [where to watch pramface](https://movies.allwomenstalk.com/shows-you-should-watch-if-youre-obsessed-with-british-boys/)
+- [amazon scary stories to tell in the dark](https://books.allwomenstalk.com/you-wont-be-able-to-sleep-after-hearing-these-ghost-stories/)
+- [examples of single stories in real life](https://lifestyle.allwomenstalk.com/one-line-stories-that-will-blow-you-away/)
 - [tv shows for young adults](https://movies.allwomenstalk.com/young-adults-will-love-these-tv-shows/)
+- [you stole my heart quotes](https://love.allwomenstalk.com/call-the-cops-the-guy-i-work-with-stole-my-heart/)
+- [what emojis does the google pixel have](https://funny.allwomenstalk.com/android-emoji-vs-iphone-emoji-epic-showdown/)
+- [gamer meme gif](https://funny.allwomenstalk.com/the-most-frustrating-gifs-every-gamer-has-experienced/)
+- [most addictive podcasts](https://lifestyle.allwomenstalk.com/extremely-addictive-podcasts-you-should-play-today/)
 - [8 Delicious Must-Have Movie Snacks ...](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
 - [12 Iconic Foods ...](https://cooking.allwomenstalk.com/12-iconic-foods/)
 

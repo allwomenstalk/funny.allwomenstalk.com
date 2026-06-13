@@ -1,12 +1,12 @@
 ---
-title: "Man Hilariously Recreates Sias chandelier Video after Losing Football Bet ..."
+title: "Man Hilariously Recreates Sia's 'chandelier' Video after Losing Football Bet ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://funny.allwomenstalk.com/man-hilariously-recreates-sias-chandelier-video-after-losing-football-bet/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Man Hilariously Recreates Sias chandelier Video after Losing Football Bet ...
+# Man Hilariously Recreates Sia's 'chandelier' Video after Losing Football Bet ...
 
 There's a lesson to be learned here and it's right in Chuck Jose's YouTube video's title: "Never Lose A Fantasy Football Bet!" After his fantasy football league team lost, Jose was forced to create a shot-for-shot homemade version of Sia's famous "Chandelier" music video.
 
@@ -16,18 +16,18 @@ The video has already gone viral, bringing in nearly 3 million views! Jose's eve
 
 ## Related Posts
 
-- [Britneys Ex: She Definitely Had a Problem with Dru...](https://allwomenstalk.com/britneys-ex-she-definitely-had-a-problem-with-drugs/)
-- [Nicole amp Joel Getting Engaged](https://allwomenstalk.com/nicole-joel-getting-engaged/)
-- [justin timberlake fan](https://celebs.allwomenstalk.com/ten-year-old-fan-makes-justin-timberlake-cry-during-concert-its-so-sweet/)
-- [Britney Likely Suffers from Post Partum Depression...](https://allwomenstalk.com/britney-likely-suffers-from-post-partum-depression/)
-- [Another Reason Why Britney Might Have Ditched Reha...](https://allwomenstalk.com/another-reason-why-britney-might-have-ditched-rehab-last-week/)
-- [Anna Nicoles Journey Home to Daniel](https://allwomenstalk.com/anna-nicoles-journey-home-to-daniel/)
+- [Britney's Ex: "She Definitely Had a Problem with D...](https://allwomenstalk.com/britneys-ex-she-definitely-had-a-problem-with-drugs/)
 - [chris benoit text](https://allwomenstalk.com/wwe-releases-benoit-text-messages/)
-- [pop a nosh](https://allwomenstalk.com/pop-nosh-britney-spears-quickie-break/)
+- [Britney Likely Suffers from Post Partum Depression...](https://allwomenstalk.com/britney-likely-suffers-from-post-partum-depression/)
+- [Another One to Leave DWTS?](https://allwomenstalk.com/another-one-to-leave-dwts/)
+- [Nicole & Joel Getting Engaged?](https://allwomenstalk.com/nicole-joel-getting-engaged/)
 - [Blame Andre ...](https://allwomenstalk.com/blame-andre/)
-- [Another One to Leave DWTS](https://allwomenstalk.com/another-one-to-leave-dwts/)
-- [Angelina Reveals Her Latest Talent](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
-- [Scissor Sisters - Shes My Man - Video](https://allwomenstalk.com/scissor-sisters-shes-my-man-video/)
+- [justin timberlake fan](https://celebs.allwomenstalk.com/ten-year-old-fan-makes-justin-timberlake-cry-during-concert-its-so-sweet/)
+- [Another Reason Why Britney Might Have Ditched Reha...](https://allwomenstalk.com/another-reason-why-britney-might-have-ditched-rehab-last-week/)
+- [Anna Nicole's Journey Home to Daniel](https://allwomenstalk.com/anna-nicoles-journey-home-to-daniel/)
+- [pop a nosh](https://allwomenstalk.com/pop-nosh-britney-spears-quickie-break/)
+- [Angelina Reveals Her Latest Talent…](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
+- [Scissor Sisters - She's My Man - Video!](https://allwomenstalk.com/scissor-sisters-shes-my-man-video/)
 
 ## Site Information
 

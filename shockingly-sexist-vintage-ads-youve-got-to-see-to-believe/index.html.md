@@ -1,12 +1,12 @@
 ---
-title: "Shockingly Sexist Vintage Ads Youve Got to See to Believe!"
+title: "Shockingly Sexist Vintage Ads You've Got to See to Believe!"
 description: "Take Your Vitamins...so You Can Work Harder for Your Husband?!; It's STILL All about What Men Think of Us; Apparently Having \"middle-age\" Skin Was a Crime....; Talk about Being a \"douche\"bag; Because Men Apparently Smell like Roses All the Time?; More ..."
 url: "https://funny.allwomenstalk.com/shockingly-sexist-vintage-ads-youve-got-to-see-to-believe/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Shockingly Sexist Vintage Ads Youve Got to See to Believe!
+# Shockingly Sexist Vintage Ads You've Got to See to Believe!
 
 I don't know about you, but sometimes when I look at vintage pictures of well-dressed women, I almost wish I was born back then. But then I look at these horrendously sexist ads and heave a sigh of relief. So put on Queen Bee's "Run the World" and take a look at what was perfectly acceptable back in the day. It will amuse you and make you shudder at the same time!
 
@@ -96,18 +96,18 @@ I don't know about you, but sometimes when I look at vintage pictures of well-dr
 
 ## Related Posts
 
+- [list of role models](https://teen.allwomenstalk.com/these-are-the-women-who-should-be-your-role-models/)
 - [miss piggy in glasses](https://lifestyle.allwomenstalk.com/quotes-that-prove-miss-piggy-is-a-feminist-icon/)
+- [disney movies with strong female leads](https://movies.allwomenstalk.com/strong-female-role-models-in-the-disney-movies/)
+- [big sister and little sister simpsons](https://movies.allwomenstalk.com/fictional-sisters-you-wish-were-your-sibling/)
+- [little girl movie characters](https://movies.allwomenstalk.com/which-of-these-girl-power-movie-characters-is-you/)
 - [chick flick to watch](https://movies.allwomenstalk.com/every-woman-needs-to-watch-these-iconic-chick-flicks-from-the-80s/)
 - [women directors in hollywood](https://movies.allwomenstalk.com/film-focus-women-directors-in-hollywood/)
+- [business lady outfit](https://fashion.allwomenstalk.com/check-out-business-lady-vibes-from-these-gorge-celebrities/)
 - [what makes serena williams great](https://celebs.allwomenstalk.com/why-serena-williams-is-awesome/)
 - [becoming a femme fatale movie](https://movies.allwomenstalk.com/which-of-these-movie-femme-fatales-do-you-want-to-be/)
-- [list of role models](https://teen.allwomenstalk.com/these-are-the-women-who-should-be-your-role-models/)
-- [disney movies with strong female leads](https://movies.allwomenstalk.com/strong-female-role-models-in-the-disney-movies/)
-- [little girl movie characters](https://movies.allwomenstalk.com/which-of-these-girl-power-movie-characters-is-you/)
-- [business lady outfit](https://fashion.allwomenstalk.com/check-out-business-lady-vibes-from-these-gorge-celebrities/)
-- [big sister and little sister simpsons](https://movies.allwomenstalk.com/fictional-sisters-you-wish-were-your-sibling/)
 - [The Sad Evolution of Sexy Halloween Costumes ...](https://allwomenstalk.com/the-sad-evolution-of-sexy-halloween-costumes/)
-- [Proof That Girl Power is Real and Seriously Awesom...](https://inspiration.allwomenstalk.com/proof-that-girl-power-is-real-and-seriously-awesome/)
+- [Proof That Girl Power is Real, and Seriously Aweso...](https://inspiration.allwomenstalk.com/proof-that-girl-power-is-real-and-seriously-awesome/)
 
 ## Site Information
 

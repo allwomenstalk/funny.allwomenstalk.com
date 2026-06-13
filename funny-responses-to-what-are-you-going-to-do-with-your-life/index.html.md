@@ -1,12 +1,12 @@
 ---
-title: "7 Funny Responses to What Are You Going to do with Your Life? ..."
+title: "7 Funny Responses to \"What Are You Going to do with Your Life?\" ..."
 description: "It's a Surprise; Get a PhD in Horribleness; Ruin It; The opposite of Whatever You Did; View Each Day as an Opportunity, Not an Obligation; More ..."
 url: "https://funny.allwomenstalk.com/funny-responses-to-what-are-you-going-to-do-with-your-life/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Funny Responses to What Are You Going to do with Your Life? ...
+# 7 Funny Responses to "What Are You Going to do with Your Life?" ...
 
 There are some funny responses to "what are you going to do with your life" for when your family keeps asking you the same dull questions. It's nice that they want to know about your plans, but their curiosity can feel more like an interrogation. No matter how old you are, you don't want to be badgered about your life choices. That's why you should remember these funny responses to "what are you going to do with your life" for the next time the question pops up:
 
@@ -42,16 +42,16 @@ You're not obligated to tell others your plans for the future, if you even have 
 
 ## Related Posts
 
-- [charmander pick up lines](https://funny.allwomenstalk.com/silly-pokemon-pick-up-lines/)
-- [whats a word you mispronounced one time](https://lifestyle.allwomenstalk.com/commonly-mispronounced-words-youve-been-saying-wrong/)
-- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
-- [is conversate a real word](https://lifestyle.allwomenstalk.com/words-you-use-that-dont-actually-exist-in-dictionaries/)
-- [words that used to be swear words](https://funny.allwomenstalk.com/ridiculous-words-that-used-to-be-considered-curses/)
 - [wrong use of words](https://lifestyle.allwomenstalk.com/everyday-words-we-all-use-incorrectly/)
+- [what's a word you mispronounced one time](https://lifestyle.allwomenstalk.com/commonly-mispronounced-words-youve-been-saying-wrong/)
+- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
+- [words that used to be swear words](https://funny.allwomenstalk.com/ridiculous-words-that-used-to-be-considered-curses/)
+- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
+- [charmander pick up lines](https://funny.allwomenstalk.com/silly-pokemon-pick-up-lines/)
 - [how to reply to a compliment on instagram](https://funny.allwomenstalk.com/funny-responses-for-when-you-need-to-accept-a-compliment/)
 - [how to turn down a date](https://funny.allwomenstalk.com/funny-responses-to-use-when-turning-down-a-date/)
-- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
 - [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
+- [is conversate a real word](https://lifestyle.allwomenstalk.com/words-you-use-that-dont-actually-exist-in-dictionaries/)
 - [7 Ways to Answer the Question Why Should We Hire Y...](https://lifestyle.allwomenstalk.com/ways-to-answer-the-question-why-should-we-hire-you/)
 - [7 Ways to Decide What You Want to Be when You Grow...](https://allwomenstalk.com/ways-to-decide-what-you-want-to-be-when-you-grow-up/)
 

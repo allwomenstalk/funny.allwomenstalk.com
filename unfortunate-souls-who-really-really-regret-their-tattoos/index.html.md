@@ -1,12 +1,12 @@
 ---
-title: "51 Unfortunate Souls Who Really Really Regret Their Tattoos ..."
+title: "51 Unfortunate Souls Who Really, Really Regret Their Tattoos ..."
 description: "Mr. Cool Ice; There is so Much Wrong with This; This is Truly Regrettable; LOLOL, Misspellings!; When You Can See into the Future; More ..."
 url: "https://funny.allwomenstalk.com/unfortunate-souls-who-really-really-regret-their-tattoos/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 51 Unfortunate Souls Who Really Really Regret Their Tattoos ...
+# 51 Unfortunate Souls Who Really, Really Regret Their Tattoos ...
 
 Tattoos aren't technically forever, but ink is definitely a commitment. You're free to get any tattoo you want, but as dissenters always say, you're stuck with it. It's one thing to get a tattoo you dislike, though, and something else entirely to get something that looks just awful. Also, please remember: friends don't let friends get tattoos without spell-checking.
 
@@ -412,16 +412,16 @@ What say you, stalkers? Any tattoos of fail you're willing to cop to?
 
 ## Related Posts
 
+- [you stole my heart quotes](https://love.allwomenstalk.com/call-the-cops-the-guy-i-work-with-stole-my-heart/)
 - [amazon scary stories to tell in the dark](https://books.allwomenstalk.com/you-wont-be-able-to-sleep-after-hearing-these-ghost-stories/)
-- [antm best makeovers](https://movies.allwomenstalk.com/antms-most-unforgettable-makeovers-meltdowns-and-melodramas/)
-- [mark zuckerberg chinese](https://lifestyle.allwomenstalk.com/watch-mark-zuckerbergs-chinese-new-year-greeting-in-mandarin/)
+- [most addictive podcasts](https://lifestyle.allwomenstalk.com/extremely-addictive-podcasts-you-should-play-today/)
+- [stomach kisses](https://funny.allwomenstalk.com/yuk-stomach-churning-kisses-we-cant-stand/)
 - [famous kisses](https://love.allwomenstalk.com/historys-most-memorable-kisses/)
 - [gamer meme gif](https://funny.allwomenstalk.com/the-most-frustrating-gifs-every-gamer-has-experienced/)
-- [downton abbey hair styles](https://movies.allwomenstalk.com/shows-that-downton-abbey-fans-will-flip-over/)
-- [stomach kisses](https://funny.allwomenstalk.com/yuk-stomach-churning-kisses-we-cant-stand/)
-- [you stole my heart quotes](https://love.allwomenstalk.com/call-the-cops-the-guy-i-work-with-stole-my-heart/)
+- [mark zuckerberg chinese](https://lifestyle.allwomenstalk.com/watch-mark-zuckerbergs-chinese-new-year-greeting-in-mandarin/)
 - [tattoo skin stories](https://beauty.allwomenstalk.com/a-short-story-for-anyone-who-wants-a-tattoo/)
-- [most addictive podcasts](https://lifestyle.allwomenstalk.com/extremely-addictive-podcasts-you-should-play-today/)
+- [antm best makeovers](https://movies.allwomenstalk.com/antms-most-unforgettable-makeovers-meltdowns-and-melodramas/)
+- [downton abbey hair styles](https://movies.allwomenstalk.com/shows-that-downton-abbey-fans-will-flip-over/)
 - [5 Confessions from Twilight Fans ...](https://twilight.allwomenstalk.com/5-confessions-from-twilight-fans/)
 - [6 Sad Celebrity Stories ...](https://allwomenstalk.com/6-sad-celebrity-stories/)
 

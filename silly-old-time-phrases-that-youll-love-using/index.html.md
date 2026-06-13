@@ -1,12 +1,12 @@
 ---
-title: "11 Silly Old Time Phrases That Youll Love Using ..."
+title: "11 Silly Old Time Phrases That You'll Love Using ..."
 description: "Paint the Town Red; Can't Cut the Mustard; Drink like a Fish; Don't Jump Ship; The Cat's Meow; More ..."
 url: "https://funny.allwomenstalk.com/silly-old-time-phrases-that-youll-love-using/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 11 Silly Old Time Phrases That Youll Love Using ...
+# 11 Silly Old Time Phrases That You'll Love Using ...
 
 There are silly old time phrases that you may have heard others use, but don't use yourself. There's no reason to let the phrases our parents used die out. There are some pretty great silly old time phrases that you can add into any conversation that you're having. Here are a few of the greatest, most useful ones:
 
@@ -58,15 +58,15 @@ There are hundreds of silly phrases out there, but it's up to you to use them. Y
 
 ## Related Posts
 
-- [jokes about piercings](https://funny.allwomenstalk.com/clever-jokes-only-literature-lovers-will-appreciate/)
-- [t shirts saying](https://fashion.allwomenstalk.com/hilarious-t-shirt-sayings-you-will-laugh-out-loud-at/)
-- [funny words like shenanigans](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
+- [pickup line español](https://funny.allwomenstalk.com/silly-pick-up-lines-in-latin/)
 - [good mean girl comebacks](https://funny.allwomenstalk.com/insults-you-should-steal-from-the-movie-mean-girls/)
+- [jokes about piercings](https://funny.allwomenstalk.com/clever-jokes-only-literature-lovers-will-appreciate/)
 - [some e card](https://funny.allwomenstalk.com/hilariously-sassy-e-cards-that-we-cant-get-enough-of/)
-- [pickup line espaol](https://funny.allwomenstalk.com/silly-pick-up-lines-in-latin/)
-- [medieval words and phrases](https://funny.allwomenstalk.com/fancy-medieval-words-that-should-be-brought-back/)
-- [f1 pickup lines](https://funny.allwomenstalk.com/perfect-guardians-of-the-galaxy-pick-up-lines/)
+- [funny words like shenanigans](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
 - [anti jokes list](https://funny.allwomenstalk.com/anti-jokes-that-will-make-you-burst-out-in-laughter/)
+- [medieval words and phrases](https://funny.allwomenstalk.com/fancy-medieval-words-that-should-be-brought-back/)
+- [t shirts saying](https://fashion.allwomenstalk.com/hilarious-t-shirt-sayings-you-will-laugh-out-loud-at/)
+- [f1 pickup lines](https://funny.allwomenstalk.com/perfect-guardians-of-the-galaxy-pick-up-lines/)
 - [hermit the frog drawing](https://inspiration.allwomenstalk.com/quotes-from-kermit-the-frog-the-puppet-with-a-lot-to-say/)
 - [7 Everyday Phrases Attributed to Shakespeare ...](https://lifestyle.allwomenstalk.com/everyday-phrases-attributed-to-shakespeare/)
 - [10 Funny Things That Children Say ...](https://allwomenstalk.com/10-funny-things-that-children-say/)

@@ -3,7 +3,7 @@ title: "7 Terrible Movies That You Have to Watch ..."
 description: "A Talking Cat!?!; Cheerleader Ninjas; Sharknado; Terror of Mechagodzilla; 2 Headed Shark Attack; More ..."
 url: "https://funny.allwomenstalk.com/terrible-movies-that-you-have-to-watch/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Terrible Movies That You Have to Watch ...
@@ -42,16 +42,16 @@ If you and your friends are bored, then watching a terrible movie will make you 
 
 ## Related Posts
 
-- [films set in victorian era](https://movies.allwomenstalk.com/movies-set-in-victorian-times/)
-- [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
-- [spoofing movies](https://movies.allwomenstalk.com/horrifyingly-hilarious-spoof-movies/)
-- [international movies to watch](https://movies.allwomenstalk.com/reasons-to-watch-foreign-films/)
-- [laugh out loud movie](https://movies.allwomenstalk.com/movies-that-will-make-you-laugh-out-loud/)
-- [robin hood movies list](https://movies.allwomenstalk.com/movies-about-robin-hood-through-the-decades/)
-- [movies about d-day](https://movies.allwomenstalk.com/movies-about-d-day-6th-june/)
-- [the dhamma brothers trailer](https://movies.allwomenstalk.com/documentaries-on-netflix-you-will-love/)
 - [best dads in movies](https://movies.allwomenstalk.com/greatest-movie-dads-that-you-cant-help-but-love/)
+- [laugh out loud movie](https://movies.allwomenstalk.com/movies-that-will-make-you-laugh-out-loud/)
+- [spoofing movies](https://movies.allwomenstalk.com/horrifyingly-hilarious-spoof-movies/)
+- [the dhamma brothers trailer](https://movies.allwomenstalk.com/documentaries-on-netflix-you-will-love/)
+- [international movies to watch](https://movies.allwomenstalk.com/reasons-to-watch-foreign-films/)
 - [movie the dragon](https://movies.allwomenstalk.com/best-talking-dragons-in-the-movies/)
+- [films set in victorian era](https://movies.allwomenstalk.com/movies-set-in-victorian-times/)
+- [movies about d-day](https://movies.allwomenstalk.com/movies-about-d-day-6th-june/)
+- [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
+- [robin hood movies list](https://movies.allwomenstalk.com/movies-about-robin-hood-through-the-decades/)
 - [5 Horrible Horror Movies to Miss ...](https://twilight.allwomenstalk.com/5-horrible-horror-movies-to-miss/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

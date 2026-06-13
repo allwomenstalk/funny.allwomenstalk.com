@@ -1,12 +1,12 @@
 ---
-title: "17 Crystal Clear Signs That Youre an Old Millennial ..."
+title: "17 Crystal Clear Signs That You're an Old Millennial ..."
 description: "You Didn't Get a Cell Phone until You Were 16 or Older; You Remember Watching the O.J Simpson Trial; AOL Was a Thing; You WERE Going to Marry Nick Carter, Justin Timberlake, Nick Lachey, or Taylor Hanson; Your Books Were Berenstain Bears, Baby-Sitters Club, and Goosebumps; More ..."
 url: "https://funny.allwomenstalk.com/crystal-clear-signs-that-youre-an-old-millennial/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 17 Crystal Clear Signs That Youre an Old Millennial ...
+# 17 Crystal Clear Signs That You're an Old Millennial ...
 
 There's a lot of dispute about who is part of the millennial generation. Everyone tends to think it only encompasses '90s kids, but many sources believe it also includes kids born throughout the '80s. What's that mean? It means that there are a lot of old millennials out there. How do you know if you are one? Besides feeling old and being a millennial, you can see if any of these signs ring true for you.
 
@@ -110,18 +110,18 @@ Feel old yet? Whatever, we're the backbone of the millennial generation. We rule
 
 ## Related Posts
 
+- [signs you're destined to be together](https://inspiration.allwomenstalk.com/undeniable-signs-youre-destined-for-bigger-things-and-a-brighter-future/)
+- [is it time for a new phone](https://lifestyle.allwomenstalk.com/telling-signs-its-time-to-get-a-new-phone/)
+- [signs im bisexual](https://love.allwomenstalk.com/signs-you-are-bisexual-for-girls-who-keep-getting-girl-crushes/)
+- [my biological clock is ticking](https://parenting.allwomenstalk.com/signs-your-biological-clock-is-ticking-loud-and-clear/)
 - [sign for trouble](https://love.allwomenstalk.com/stop-running-at-the-first-sign-of-trouble/)
 - [when its time to move](https://love.allwomenstalk.com/signs-its-time-to-move-out/)
-- [signs youre destined to be together](https://inspiration.allwomenstalk.com/undeniable-signs-youre-destined-for-bigger-things-and-a-brighter-future/)
-- [signs im bisexual](https://love.allwomenstalk.com/signs-you-are-bisexual-for-girls-who-keep-getting-girl-crushes/)
-- [signs that your hair is damaged](https://hair.allwomenstalk.com/signs-your-hair-is-damaged-and-needs-attention/)
-- [my biological clock is ticking](https://parenting.allwomenstalk.com/signs-your-biological-clock-is-ticking-loud-and-clear/)
-- [control freak meaning in relationship](https://lifestyle.allwomenstalk.com/telling-signs-you-might-be-a-classic-control-freak/)
-- [signs youre a rebel](https://lifestyle.allwomenstalk.com/clear-cut-signs-youre-a-risk-taking-rebel/)
-- [is it time for a new phone](https://lifestyle.allwomenstalk.com/telling-signs-its-time-to-get-a-new-phone/)
 - [sell my self](https://inspiration.allwomenstalk.com/the-telltale-signs-youre-selling-yourself-short-in-life/)
+- [signs you're a rebel](https://lifestyle.allwomenstalk.com/clear-cut-signs-youre-a-risk-taking-rebel/)
+- [signs that your hair is damaged](https://hair.allwomenstalk.com/signs-your-hair-is-damaged-and-needs-attention/)
+- [control freak meaning in relationship](https://lifestyle.allwomenstalk.com/telling-signs-you-might-be-a-classic-control-freak/)
 - [7 Signs That You Are a Cheapskate ...](https://lifestyle.allwomenstalk.com/7-signs-that-you-are-a-cheapskate/)
-- [8 Ways You Know Youre Not Young Any More ...](https://allwomenstalk.com/8-ways-you-know-youre-not-young-any-more/)
+- [8 Ways You Know You're Not Young Any More ...](https://allwomenstalk.com/8-ways-you-know-youre-not-young-any-more/)
 
 ## Site Information
 

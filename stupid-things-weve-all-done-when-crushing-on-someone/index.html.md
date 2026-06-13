@@ -1,12 +1,12 @@
 ---
-title: "7 Stupid Things Weve All Done when Crushing on Someone ..."
+title: "7 Stupid Things We've All Done when Crushing on Someone ..."
 description: "Stalking His Social Media; Forcing Yourself to Be Interested in His Interests; Planing Your Outfits; Constantly Mentioning Him; Analyzing Every Word; More ..."
 url: "https://funny.allwomenstalk.com/stupid-things-weve-all-done-when-crushing-on-someone/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Stupid Things Weve All Done when Crushing on Someone ...
+# 7 Stupid Things We've All Done when Crushing on Someone ...
 
 It's normal to act insane when crushing on someone. Boys can be confusing, so you don't know if your feelings are being wasted or if they're going to pay off in the end. Although love is a beautiful emotion, it sure can drive us crazy. Here are some of the most ridiculous things we've all done when crushing on someone:
 
@@ -42,18 +42,18 @@ Crushes can toy with our emotions, and make us stressed out over the simplest th
 
 ## Related Posts
 
-- [7 Things That Hurt Your Chances of Getting a Raise...](https://money.allwomenstalk.com/things-that-hurt-your-chances-of-getting-a-raise/)
 - [my boss doesn t know how to do my job](https://money.allwomenstalk.com/things-your-boss-doesnt-need-to-know/)
+- [9 Things You Shouldn't do when You're Sick ...](https://health.allwomenstalk.com/things-you-shouldnt-do-when-youre-sick/)
 - [bad things to buy](https://money.allwomenstalk.com/of-the-worst-things-to-buy-used/)
-- [7 Things Youll Regret in 7 Years ...](https://inspiration.allwomenstalk.com/things-youll-regret-in-7-years/)
 - [7 Emotionally Abusive Things You Should Never Tell...](https://love.allwomenstalk.com/emotionally-abusive-things-you-should-never-tell-your-partner/)
+- [The Most Essential Dos and Don'ts of Saying You're...](https://inspiration.allwomenstalk.com/dos-and-donts-of-apologizing/)
+- [Social Media: the Dos & Don'ts ...](https://lifestyle.allwomenstalk.com/social-media-the-dos-donts/)
+- [7 Things You'll Regret in 7 Years ...](https://inspiration.allwomenstalk.com/things-youll-regret-in-7-years/)
+- [7 Things That Hurt Your Chances of Getting a Raise...](https://money.allwomenstalk.com/things-that-hurt-your-chances-of-getting-a-raise/)
 - [The Biggest Things You Should Never Say to Your Ma...](https://funny.allwomenstalk.com/things-you-should-never-tell-a-man/)
-- [The Most Essential Dos and Donts of Saying Youre S...](https://inspiration.allwomenstalk.com/dos-and-donts-of-apologizing/)
 - [7 Things Not to do when You Are Angry ...](https://inspiration.allwomenstalk.com/things-not-to-do-when-you-are-angry/)
-- [Social Media: the Dos  Donts ...](https://lifestyle.allwomenstalk.com/social-media-the-dos-donts/)
-- [9 Things You Shouldnt do when Youre Sick ...](https://health.allwomenstalk.com/things-you-shouldnt-do-when-youre-sick/)
 - [Top 7 Dating Mistakes ...](https://allwomenstalk.com/top-7-dating-mistakes/)
-- [10 Facebook Dating Mistakes Weve All Made ...](https://allwomenstalk.com/10-facebook-dating-mistakes-weve-all-made/)
+- [10 Facebook Dating Mistakes We've All Made ...](https://allwomenstalk.com/10-facebook-dating-mistakes-weve-all-made/)
 
 ## Site Information
 

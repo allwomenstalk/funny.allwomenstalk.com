@@ -1,12 +1,12 @@
 ---
-title: "They Didnt Want Traditional Baby Photos so They Did This Instead ..."
+title: "They Didn't Want Traditional Baby Photos, so They Did This Instead ..."
 description: "Jan and Chase Renegar's \"Baby\" Shoot; Justin Sylvester's Man-ternity Shoot; Dave Engledow (and Alice Bee); More ..."
 url: "https://funny.allwomenstalk.com/they-didnt-want-traditional-baby-photos-so-they-did-this-instead/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# They Didnt Want Traditional Baby Photos so They Did This Instead ...
+# They Didn't Want Traditional Baby Photos, so They Did This Instead ...
 
 Who hasn't fallen in love with the gorgeous maternity and newborn baby shots our friends have posted on Facebook (and we've secretly pinned on a "someday" board on Pinterest)? If you're looking for a new (and hilarious) twist on these traditional shots, read on - three couples have broken the internet with their own takes on the trend.
 
@@ -70,16 +70,16 @@ Have you seen any other non-traditional (and completely hilarious) baby photos? 
 
 ## Related Posts
 
-- [8 Amazing Puppy Instagram Accounts You Need to Fol...](https://apps.allwomenstalk.com/amazing-puppy-instagram-accounts-you-need-to-follow/)
-- [7 Changes to the Way You Use Social Media That Wel...](https://apps.allwomenstalk.com/changes-to-the-way-you-use-social-media-that-well-likely-see-in/)
-- [These Photos of Christian Greys Family Will You Ha...](https://movies.allwomenstalk.com/these-photos-of-christian-greys-family-will-you-have-you-obsessed/)
-- [Weekend Wrap-up: 20 Celeb Insta Posts You Need to ...](https://celebs.allwomenstalk.com/weekend-wrap-up-celeb-insta-posts-you-need-to-see/)
-- [online dating photo tips](https://love.allwomenstalk.com/tips-for-better-online-dating-profile-photos/)
-- [Jessica Simpsons Instagram Posts Prove Her Kids Ar...](https://celebs.allwomenstalk.com/jessica-simpsons-instagram-posts-prove-her-kids-are-ridiculously-cute/)
+- [These Photos of Christian Grey's Family Will You H...](https://movies.allwomenstalk.com/these-photos-of-christian-greys-family-will-you-have-you-obsessed/)
+- [Photographer's Wife Chases Storms in Stunning Phot...](https://lifestyle.allwomenstalk.com/photographers-wife-chases-storms-in-stunning-photo-series/)
 - [diddy instagram post](https://celebs.allwomenstalk.com/need-some-motivation-here-are-diddys-most-inspiring-instagram-posts/)
-- [Prepared to Be Awed: Photographers Girlfriend Lead...](https://love.allwomenstalk.com/prepared-to-be-awed-photographers-girlfriend-leads-him-all-around-the-world/)
+- [Prepared to Be Awed: Photographer's Girlfriend Lea...](https://love.allwomenstalk.com/prepared-to-be-awed-photographers-girlfriend-leads-him-all-around-the-world/)
+- [online dating photo tips](https://love.allwomenstalk.com/tips-for-better-online-dating-profile-photos/)
+- [7 Changes to the Way You Use Social Media That We'...](https://apps.allwomenstalk.com/changes-to-the-way-you-use-social-media-that-well-likely-see-in/)
 - [7 New Photography Apps That Will Make You Feel lik...](https://apps.allwomenstalk.com/new-photography-apps-that-will-make-you-feel-like-a-pro/)
-- [Photographers Wife Chases Storms in Stunning Photo...](https://lifestyle.allwomenstalk.com/photographers-wife-chases-storms-in-stunning-photo-series/)
+- [Weekend Wrap-up: 20 Celeb Insta Posts You Need to ...](https://celebs.allwomenstalk.com/weekend-wrap-up-celeb-insta-posts-you-need-to-see/)
+- [Jessica Simpson's Instagram Posts Prove Her Kids A...](https://celebs.allwomenstalk.com/jessica-simpsons-instagram-posts-prove-her-kids-are-ridiculously-cute/)
+- [8 Amazing Puppy Instagram Accounts You Need to Fol...](https://apps.allwomenstalk.com/amazing-puppy-instagram-accounts-you-need-to-follow/)
 - [A Quirky and Romantic Engagement Shoot: TinyWater ...](https://wedding.allwomenstalk.com/a-quirky-and-romantic-engagement-shoot-tinywater-photography/)
 - [Engagement Shoot: Forever Friends ...](https://wedding.allwomenstalk.com/engagement-shoot-forever-friends/)
 

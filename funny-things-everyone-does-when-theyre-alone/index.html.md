@@ -1,12 +1,12 @@
 ---
-title: "7 Funny Things Everyone Does when Theyre Alone ..."
+title: "7 Funny Things Everyone Does when They're Alone ..."
 description: "Singing to Music Super-loud; Footpath Fancies; Kiddy Stuff; Yelling at the TV; Getting Our Geek on; More ..."
 url: "https://funny.allwomenstalk.com/funny-things-everyone-does-when-theyre-alone/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Funny Things Everyone Does when Theyre Alone ...
+# 7 Funny Things Everyone Does when They're Alone ...
 
 There’s something about solitude that tends to bring out the cah-razy side in people – I mean, just think of all the funny things everyone does when they are alone! I will be the first to admit it; the moment you walk through that door, my inhibitions go with you like a little Chihuahua in your handbag. When no one’s watching, I will break out the crazy, terrible dancing like it’s no one’s business (and it’s really not; my awful dance moves cannot be unseen). Nutella lids will come off, and a spoon will meet that Nutella with more intensity than THAT kiss from The Notebook. Yes, I brought The Gos into this. Hey girl, that’s just what happens; shameless feasting is one of many funny things people do when they are alone.
 
@@ -44,16 +44,16 @@ Being alone means being free, and that means acting out your wildest dreams and 
 
 ## Related Posts
 
-- [impossible vs improbable](https://inspiration.allwomenstalk.com/reasons-why-anything-is-possible-the-difference-between-improbable-and-impossible/)
-- [things i take for granted](https://inspiration.allwomenstalk.com/things-to-never-take-for-granted/)
-- [important values to have](https://inspiration.allwomenstalk.com/important-values-to-live-by/)
-- [elementary lessons](https://inspiration.allwomenstalk.com/life-lessons-that-you-learned-in-elementary-school/)
+- [why i talk less](https://inspiration.allwomenstalk.com/interesting-benefits-of-speaking-less-and-listening-more/)
 - [life skills that can help you save money](https://lifestyle.allwomenstalk.com/valuable-skills-that-could-save-your-life-in-an-emergency/)
+- [impossible vs improbable](https://inspiration.allwomenstalk.com/reasons-why-anything-is-possible-the-difference-between-improbable-and-impossible/)
+- [beautiful in all aspects](https://inspiration.allwomenstalk.com/beautiful-aspects-about-you-that-make-you-unique/)
+- [instinct examples in humans](https://lifestyle.allwomenstalk.com/base-instincts-you-didnt-know-you-had/)
+- [things i take for granted](https://inspiration.allwomenstalk.com/things-to-never-take-for-granted/)
 - [glennon doyle ted talk](https://health.allwomenstalk.com/ted-talks-about-mental-health-that-will-change-your-perspective/)
 - [things parents teach you](https://parenting.allwomenstalk.com/things-your-parents-cant-teach-you-about-life/)
-- [why i talk less](https://inspiration.allwomenstalk.com/interesting-benefits-of-speaking-less-and-listening-more/)
-- [instinct examples in humans](https://lifestyle.allwomenstalk.com/base-instincts-you-didnt-know-you-had/)
-- [beautiful in all aspects](https://inspiration.allwomenstalk.com/beautiful-aspects-about-you-that-make-you-unique/)
+- [important values to have](https://inspiration.allwomenstalk.com/important-values-to-live-by/)
+- [elementary lessons](https://inspiration.allwomenstalk.com/life-lessons-that-you-learned-in-elementary-school/)
 - [7 Tips for Travelling Solo ...](https://travel.allwomenstalk.com/7-tips-for-travelling-solo-3/)
 - [7 Fun Things to do in an Elevator ...](https://lifestyle.allwomenstalk.com/fun-things-to-do-in-an-elevator/)
 

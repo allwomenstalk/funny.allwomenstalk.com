@@ -3,7 +3,7 @@ title: "Let Garfield Convince You to Get a Little Lazy ..."
 description: "Moody Mornings; Occasional Naps; Exercise Avoidance; Bedtime Blues; Active Imaginations; More ..."
 url: "https://funny.allwomenstalk.com/garfield-inspired-quotes-for-when-youre-feeling-lazy/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # Let Garfield Convince You to Get a Little Lazy ...
@@ -56,16 +56,16 @@ There's nothing wrong with being grumpy like Garfield. He's so lovable because h
 
 ## Related Posts
 
-- [learn from defeat](https://inspiration.allwomenstalk.com/lessons-we-learn-about-ourselves-in-defeat/)
-- [why not everyone can be successful](https://lifestyle.allwomenstalk.com/interesting-reasons-why-some-people-will-never-succeed/)
-- [as the year draws to a close](https://inspiration.allwomenstalk.com/important-questions-to-ask-yourself-as-the-year-draws-to-a-close/)
-- [reassuring yourself](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-when-youre-worried-about-your-future/)
-- [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
-- [the funny one in the group](https://inspiration.allwomenstalk.com/awesome-things-about-being-the-funny-one/)
-- [the struggles of a younger top](https://funny.allwomenstalk.com/very-real-struggles-of-being-short/)
 - [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
-- [what is your favourite memory from your childhood ...](https://lifestyle.allwomenstalk.com/childhood-memories-you-never-forget/)
+- [why not everyone can be successful](https://lifestyle.allwomenstalk.com/interesting-reasons-why-some-people-will-never-succeed/)
+- [reassuring yourself](https://inspiration.allwomenstalk.com/reassuring-things-to-tell-yourself-when-youre-worried-about-your-future/)
+- ["as the year draws to a close"](https://inspiration.allwomenstalk.com/important-questions-to-ask-yourself-as-the-year-draws-to-a-close/)
+- [the struggles of a younger top](https://funny.allwomenstalk.com/very-real-struggles-of-being-short/)
+- [the funny one in the group](https://inspiration.allwomenstalk.com/awesome-things-about-being-the-funny-one/)
+- [learn from defeat](https://inspiration.allwomenstalk.com/lessons-we-learn-about-ourselves-in-defeat/)
 - [assume meaning](https://inspiration.allwomenstalk.com/reasons-to-assume-the-best-of-others/)
+- [technophobes](https://funny.allwomenstalk.com/problems-faced-by-technophobes/)
+- [what is your favourite memory from your childhood ...](https://lifestyle.allwomenstalk.com/childhood-memories-you-never-forget/)
 - [Impeccable Ideas to Turn Your Life around ...](https://inspiration.allwomenstalk.com/energizing-ideas-for-turning-your-life-around/)
 - [How to Successfully Deal with a Lazy Child ...](https://parenting.allwomenstalk.com/ways-to-deal-when-your-child-is-lazy/)
 

@@ -1,12 +1,12 @@
 ---
-title: "Hashtags We All Wouldve Used Back in the 90s ..."
+title: "Hashtags We All Would've Used Back in the '90s ..."
 description: "#WhoLovesOrangeSoda; #PartyOnGarth; #beaniebabymadness; #grunge; #Whatever or #asif; More ..."
 url: "https://funny.allwomenstalk.com/hashtags-we-all-wouldve-used-back-in-the-90s/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Hashtags We All Wouldve Used Back in the 90s ...
+# Hashtags We All Would've Used Back in the '90s ...
 
 Back in the '90s, when we just knew the hashtag as the pound sign on our sad old landlines, we did not have hashtags. We had AOL and AIM, y'all, we didn't need them. It's a shame we didn't, though, because viral things kind of happened in the '90s, too. We just didn't have sophisticated social media platforms on which to share. Very sad, right? If hashtags had been a thing back then, I like to think we would've used these all the time …
 
@@ -128,18 +128,18 @@ I just did this one for Heather. Because she still loves Hanson.
 
 ## Related Posts
 
-- [what should i say to a girl](https://lifestyle.allwomenstalk.com/things-to-say-to-a-girl-if-you-really-want-to-piss-her-off/)
-- [fancy ways to write words](https://lifestyle.allwomenstalk.com/wordsmiths-will-love-these-brilliant-infographics-of-alternative-words/)
 - [the smartest woman in the room](https://lifestyle.allwomenstalk.com/words-your-vocab-needs-to-have-you-being-the-smartest-person-in-the-room/)
 - [pick up lines cringe](https://love.allwomenstalk.com/cringe-worthy-pick-up-lines-that-should-be-banned/)
+- [fancy ways to write words](https://lifestyle.allwomenstalk.com/wordsmiths-will-love-these-brilliant-infographics-of-alternative-words/)
+- [epic clapbacks](https://inspiration.allwomenstalk.com/epic-clapbacks-for-anyone-who-says-you-cant-do-something/)
+- [funny questions to ask a couple](https://love.allwomenstalk.com/hilariously-funny-questions-to-ask-your-partner-for-a-good-laugh/)
+- [what should i say to a girl](https://lifestyle.allwomenstalk.com/things-to-say-to-a-girl-if-you-really-want-to-piss-her-off/)
+- [assessable vs accessible](https://lifestyle.allwomenstalk.com/correct-grammar-staples-to-use-for-people-who-want-to-sound-smarter/)
 - [cool sounding foreign words](https://travel.allwomenstalk.com/on-point-foreign-words-only-experienced-travelers-can-totally-relate-to/)
 - [words in song](https://music.allwomenstalk.com/words-from-pop-songs-that-actually-made-it-into-the-dictionary/)
-- [epic clapbacks](https://inspiration.allwomenstalk.com/epic-clapbacks-for-anyone-who-says-you-cant-do-something/)
 - [model](https://lifestyle.allwomenstalk.com/use-these-easy-conversation-prompts-to-break-the-ice/)
-- [funny questions to ask a couple](https://love.allwomenstalk.com/hilariously-funny-questions-to-ask-your-partner-for-a-good-laugh/)
-- [assessable vs accessible](https://lifestyle.allwomenstalk.com/correct-grammar-staples-to-use-for-people-who-want-to-sound-smarter/)
 - [9 Celebs to Follow on Twitter ...](https://celebs.allwomenstalk.com/celebs-to-follow-on-twitter/)
-- [7 Amazing Television Heroines from the 90s ...](https://lifestyle.allwomenstalk.com/amazing-television-heroines-from-the-90s/)
+- [7 Amazing Television Heroines from the '90s ...](https://lifestyle.allwomenstalk.com/amazing-television-heroines-from-the-90s/)
 
 ## Site Information
 

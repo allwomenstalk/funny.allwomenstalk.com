@@ -1,12 +1,12 @@
 ---
-title: "17 Responses to Someone Asking Whats Wrong ..."
+title: "17 Responses to Someone Asking What's Wrong 🤔 ..."
 description: "The Fact That I Have Resting Bitch Face; Do You Want a List?; There’s Trouble Back on My Home Planet; You Should Know; How Much I Care; More ..."
 url: "https://funny.allwomenstalk.com/responses-to-use-when-someone-asks-whats-wrong/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 17 Responses to Someone Asking Whats Wrong  ...
+# 17 Responses to Someone Asking What's Wrong 🤔 ...
 
 Don't you hate when you're just sitting around, minding your own business, and someone walks up to you and asks what's wrong. If you're actually in a good mood that day, you'll be insulted. Even if they hit the nail on the head and you're genuinely upset, you probably won't want to talk about it. So here are a few responses to use the next time someone asks you what's wrong:
 
@@ -116,17 +116,17 @@ Now you'll be able to put nosy people in their place. What do you usually say wh
 
 ## Related Posts
 
-- [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
-- [cohost snao](https://apps.allwomenstalk.com/you-can-be-our-next-snapchat-co-host-see-how/)
-- [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
 - [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
+- [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
+- [crying watching tv](https://movies.allwomenstalk.com/did-you-know-crying-during-movies-means-youre-a-stronger-person/)
+- [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
+- [cohost snao](https://apps.allwomenstalk.com/you-can-be-our-next-snapchat-co-host-see-how/)
+- [symptoms of nomofobia](https://lifestyle.allwomenstalk.com/do-you-have-the-symptoms-of-nomophobia/)
 - [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
 - [i trust my boyfriend](https://love.allwomenstalk.com/should-i-trust-my-boyfriend-around-my-friends/)
-- [crying watching tv](https://movies.allwomenstalk.com/did-you-know-crying-during-movies-means-youre-a-stronger-person/)
 - [style quotes in english](https://fashion.allwomenstalk.com/what-does-your-fashion-style-say-about-you/)
 - [finger trampoline tattoo](https://beauty.allwomenstalk.com/questions-girls-thinking-of-getting-their-first-tattoo-should-ask-themselves/)
-- [symptoms of nomofobia](https://lifestyle.allwomenstalk.com/do-you-have-the-symptoms-of-nomophobia/)
-- [7 of Womens Most Puzzling Behaviors Explained ...](https://love.allwomenstalk.com/of-womens-most-puzzling-behaviors-explained/)
+- [7 of Women's Most Puzzling Behaviors Explained ...](https://love.allwomenstalk.com/of-womens-most-puzzling-behaviors-explained/)
 - [7 Things That Make Guys Upset ...](https://allwomenstalk.com/7-things-that-make-guys-upset/)
 
 ## Site Information

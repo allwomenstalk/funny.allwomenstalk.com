@@ -1,12 +1,12 @@
 ---
-title: "7 Highbrow Things Its Okay to Hate ..."
+title: "7 Highbrow Things It's Okay to Hate ..."
 description: "Champagne; CAVIAR; Oysters; The Opera; Nouvelle Cuisine; More ..."
 url: "https://funny.allwomenstalk.com/highbrow-things-its-okay-to-hate/"
 category: "funny"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Highbrow Things Its Okay to Hate ...
+# 7 Highbrow Things It's Okay to Hate ...
 
 With our growing obsession with the celebrity lifestyle and the lavishness portrayed on our favourite shows, it’s not surprising that we are expected to enjoy highbrow things. However, most of us do not live on the Upper East Side, do not vacation in St Barts and are happy to swig some Cava on New Year’s Eve. So fear not ladies, let’s be real - it’s perfectly fine not to enjoy the highbrow things in life!
 
@@ -56,18 +56,18 @@ I’m all for “to each their own” but these are just a few things that make 
 
 ## Related Posts
 
-- [7 Things Best Left out of Your Relationship ...](https://love.allwomenstalk.com/worst-things-for-your-relationship-that-are-best-left-out/)
 - [7 Things to Stop Doing Right Now ...](https://inspiration.allwomenstalk.com/things-to-stop-doing-right-now-2/)
-- [7 Things You Shouldnt Discuss at Work ...](https://lifestyle.allwomenstalk.com/things-you-shouldnt-discuss-at-work/)
 - [things that damage your eyesight](https://health.allwomenstalk.com/things-that-damage-your-eyesight-to-stop-doing-right-now/)
-- [kicked off a plane](https://travel.allwomenstalk.com/things-that-could-get-you-kicked-off-a-plane/)
-- [9 Silly Habits That Harm Your Relationship to Avoi...](https://love.allwomenstalk.com/silly-habits-that-harm-your-relationship-to-avoid-at-all-costs/)
-- [9 Worst Things to do when Youre Depressed ...](https://health.allwomenstalk.com/worst-things-to-do-when-youre-depressed/)
 - [9 Things to Rid Yourself of in 2014 ...](https://inspiration.allwomenstalk.com/things-to-rid-yourself-of-in/)
+- [9 Worst Things to do when You're Depressed ...](https://health.allwomenstalk.com/worst-things-to-do-when-youre-depressed/)
 - [misconceptions of yoga](https://fitness.allwomenstalk.com/misconceptions-about-yoga-youre-better-off-not-believing/)
+- [kicked off a plane](https://travel.allwomenstalk.com/things-that-could-get-you-kicked-off-a-plane/)
+- [7 Things You Shouldn't Discuss at Work ...](https://lifestyle.allwomenstalk.com/things-you-shouldnt-discuss-at-work/)
+- [9 Silly Habits That Harm Your Relationship to Avoi...](https://love.allwomenstalk.com/silly-habits-that-harm-your-relationship-to-avoid-at-all-costs/)
 - [7 Things You Should Never Feel Guilty about Doing ...](https://inspiration.allwomenstalk.com/things-you-should-never-feel-guilty-about-doing/)
+- [7 Things Best Left out of Your Relationship ...](https://love.allwomenstalk.com/worst-things-for-your-relationship-that-are-best-left-out/)
 - [7 Actors Who Are Overrated ...](https://movies.allwomenstalk.com/7-actors-who-are-overrated/)
-- [7 Books I Couldnt Stand ...](https://allwomenstalk.com/7-books-i-couldnt-stand/)
+- [7 Books I Couldn't Stand ...](https://allwomenstalk.com/7-books-i-couldnt-stand/)
 
 ## Site Information
 

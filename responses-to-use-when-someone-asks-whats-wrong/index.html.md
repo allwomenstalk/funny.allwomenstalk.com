@@ -3,7 +3,7 @@ title: "17 Responses to Someone Asking What's Wrong 🤔 ..."
 description: "The Fact That I Have Resting Bitch Face; Do You Want a List?; There’s Trouble Back on My Home Planet; You Should Know; How Much I Care; More ..."
 url: "https://funny.allwomenstalk.com/responses-to-use-when-someone-asks-whats-wrong/"
 category: "funny"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 17 Responses to Someone Asking What's Wrong 🤔 ...
@@ -116,16 +116,16 @@ Now you'll be able to put nosy people in their place. What do you usually say wh
 
 ## Related Posts
 
-- [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
 - [yours pyjamas](https://fashion.allwomenstalk.com/what-do-your-pajamas-say-about-you/)
-- [crying watching tv](https://movies.allwomenstalk.com/did-you-know-crying-during-movies-means-youre-a-stronger-person/)
-- [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
-- [cohost snao](https://apps.allwomenstalk.com/you-can-be-our-next-snapchat-co-host-see-how/)
-- [symptoms of nomofobia](https://lifestyle.allwomenstalk.com/do-you-have-the-symptoms-of-nomophobia/)
-- [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
 - [i trust my boyfriend](https://love.allwomenstalk.com/should-i-trust-my-boyfriend-around-my-friends/)
+- [crying watching tv](https://movies.allwomenstalk.com/did-you-know-crying-during-movies-means-youre-a-stronger-person/)
+- [symptoms of nomofobia](https://lifestyle.allwomenstalk.com/do-you-have-the-symptoms-of-nomophobia/)
 - [style quotes in english](https://fashion.allwomenstalk.com/what-does-your-fashion-style-say-about-you/)
+- [cohost snao](https://apps.allwomenstalk.com/you-can-be-our-next-snapchat-co-host-see-how/)
+- [bras for bell shape](https://beauty.allwomenstalk.com/whats-your-breast-shape/)
 - [finger trampoline tattoo](https://beauty.allwomenstalk.com/questions-girls-thinking-of-getting-their-first-tattoo-should-ask-themselves/)
+- [new person in friend group](https://lifestyle.allwomenstalk.com/are-you-the-brutally-honest-person-in-your-friend-group/)
+- [what is an old soul personality](https://lifestyle.allwomenstalk.com/are-you-actually-an-old-soul-in-disguise/)
 - [7 of Women's Most Puzzling Behaviors Explained ...](https://love.allwomenstalk.com/of-womens-most-puzzling-behaviors-explained/)
 - [7 Things That Make Guys Upset ...](https://allwomenstalk.com/7-things-that-make-guys-upset/)
 

@@ -3,7 +3,7 @@ title: "The 17 Best Comebacks for Being Called Lazy ..."
 description: "I’m Too Lazy to Think of a Comeback; I’m Not Lazy. I’m Conserving Energy; I Don’t like Anything That Requires a Bra; Hard Work Never Killed Anybody, but Why Take That Chance?; Being Lazy is Better than Being You; More ..."
 url: "https://funny.allwomenstalk.com/the-best-comebacks-for-being-called-lazy/"
 category: "funny"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # The 17 Best Comebacks for Being Called Lazy ...
@@ -116,16 +116,16 @@ We're all capable of being lazy every once in a while, so don't worry about it. 
 
 ## Related Posts
 
-- [recent additions to the dictionary](https://lifestyle.allwomenstalk.com/a-few-new-words-being-added-to-the-dictionary/)
+- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
 - [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
-- [site:allwomenstalk.com](https://funny.allwomenstalk.com/funny-comebacks-to-catcalls/)
+- [if you were a holiday you'd be pick up line](https://love.allwomenstalk.com/pickup-lines-to-use-underneath-the-mistletoe/)
+- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
+- [11 rules of grammar](https://lifestyle.allwomenstalk.com/grammar-rules-that-most-people-have-never-learned/)
 - [funniest roses are red poems](https://funny.allwomenstalk.com/the-funniest-lines-to-use-when-dumping-him/)
 - [emoji pick up lines](https://funny.allwomenstalk.com/the-biggest-pick-up-line-failures/)
-- [11 rules of grammar](https://lifestyle.allwomenstalk.com/grammar-rules-that-most-people-have-never-learned/)
-- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
-- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
 - [sign language russian](https://lifestyle.allwomenstalk.com/sign-language-infographics-thatll-make-you-smarter/)
-- [if you were a holiday you'd be pick up line](https://love.allwomenstalk.com/pickup-lines-to-use-underneath-the-mistletoe/)
+- [recent additions to the dictionary](https://lifestyle.allwomenstalk.com/a-few-new-words-being-added-to-the-dictionary/)
+- [site:allwomenstalk.com](https://funny.allwomenstalk.com/funny-comebacks-to-catcalls/)
 - [7 Popular Excuses for Calling into Work ...](https://allwomenstalk.com/7-popular-excuses-for-calling-into-work/)
 - [7 Fashionable Excuses for Being Late ...](https://fashion.allwomenstalk.com/fashionable-excuses-for-being-late/)
 

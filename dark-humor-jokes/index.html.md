@@ -3,7 +3,7 @@ title: "80 Dark Humor Jokes ..."
 description: "Medical dark jokes; Covid Dark Jokes; Dark jokes about climate change; Jokes to die for ...; Jokes about death from the top comedians; More ..."
 url: "https://funny.allwomenstalk.com/dark-humor-jokes/"
 category: "funny"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 80 Dark Humor Jokes ...
@@ -232,16 +232,16 @@ last_updated: "2026-06-13"
 
 ## Related Posts
 
-- [5 Things to Make You Laugh Today ...](https://allwomenstalk.com/5-things-to-make-you-laugh-today/)
-- [Fighting Words: Names We Call Ourselves and Each O...](https://allwomenstalk.com/fighting-words-names-we-call-ourselves-and-each-other/)
-- [10 Common Surnames and What They Mean ...](https://allwomenstalk.com/10-common-surnames-and-what-they-mean/)
-- [5 Silly Things to Make You Laugh...](https://allwomenstalk.com/5-silly-things-to-make-you-laugh/)
-- [The Instinctiv Application 'Anticipates' What You ...](https://allwomenstalk.com/the-instinctiv-application-anticipates-what-you-want-to-hear-next/)
-- [A Couple of Jokes for Monday Morning :)](https://allwomenstalk.com/a-funny-anti-feminist-joke/)
-- [The Increased Tolerance of Pet Names ...](https://allwomenstalk.com/the-increased-tolerance-of-pet-names/)
-- [Getting the Word out ...](https://allwomenstalk.com/getting-the-word-out/)
-- [The Next Four Letter Word ...](https://allwomenstalk.com/the-next-four-letter-word/)
 - [10 Worst Pick up Lines ...](https://allwomenstalk.com/10-worst-pick-up-lines/)
+- [The Next Four Letter Word ...](https://allwomenstalk.com/the-next-four-letter-word/)
+- [The Instinctiv Application 'Anticipates' What You ...](https://allwomenstalk.com/the-instinctiv-application-anticipates-what-you-want-to-hear-next/)
+- [5 Silly Things to Make You Laugh...](https://allwomenstalk.com/5-silly-things-to-make-you-laugh/)
+- [The Increased Tolerance of Pet Names ...](https://allwomenstalk.com/the-increased-tolerance-of-pet-names/)
+- [Fighting Words: Names We Call Ourselves and Each O...](https://allwomenstalk.com/fighting-words-names-we-call-ourselves-and-each-other/)
+- [Getting the Word out ...](https://allwomenstalk.com/getting-the-word-out/)
+- [10 Common Surnames and What They Mean ...](https://allwomenstalk.com/10-common-surnames-and-what-they-mean/)
+- [A Couple of Jokes for Monday Morning :)](https://allwomenstalk.com/a-funny-anti-feminist-joke/)
+- [5 Things to Make You Laugh Today ...](https://allwomenstalk.com/5-things-to-make-you-laugh-today/)
 - [8 Beginner Bloopers in Gardening ...](https://gardening.allwomenstalk.com/8-beginner-bloopers-in-gardening-2/)
 - [20 Funny Jokes about Men ...](https://allwomenstalk.com/20-funny-jokes-about-men/)
 

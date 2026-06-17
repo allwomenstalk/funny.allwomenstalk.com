@@ -3,7 +3,7 @@ title: "What Does Your Cat do While You're Away? Cat Selfies!"
 description: "What... the?!; Paw's in the Way; In the Plants; Perfect!; With My Human; More ..."
 url: "https://funny.allwomenstalk.com/what-does-your-cat-do-while-youre-away-cat-selfies/"
 category: "funny"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # What Does Your Cat do While You're Away? Cat Selfies!
@@ -186,16 +186,16 @@ Source: [14 Tips For Taking The](https://www.buzzfeed.com/expresident/tips-for-t
 
 ## Related Posts
 
-- [if animals could talk](https://funny.allwomenstalk.com/if-animals-could-talk/)
-- [photoshoot ideas for puppies](https://lifestyle.allwomenstalk.com/absolutely-adorable-pet-photography-ideas-for-your-next-photo-shoot/)
 - [cloud animals](https://lifestyle.allwomenstalk.com/amazing-nature-clouds-that-look-like-animals/)
-- [good pets to have](https://love.allwomenstalk.com/the-best-pets-to-raise-with-your-boyfriend/)
-- [animals that are surprisingly dangerous](https://lifestyle.allwomenstalk.com/surprisingly-deadly-animals-youve-never-even-heard-of/)
-- [domesticated wild animals](https://lifestyle.allwomenstalk.com/wild-animals-that-are-becoming-domesticated-household-pets/)
-- [animals gifs](https://funny.allwomenstalk.com/these-animal-gifs-will-definitely-make-your-day/)
-- [spirit animal tattoo](https://beauty.allwomenstalk.com/find-your-inner-wild-with-these-gorgeous-spirit-animal-tattoos/)
 - [animals with bow ties](https://funny.allwomenstalk.com/how-adorkable-are-these-animals-in-bow-ties/)
+- [animals that are surprisingly dangerous](https://lifestyle.allwomenstalk.com/surprisingly-deadly-animals-youve-never-even-heard-of/)
+- [photoshoot ideas for puppies](https://lifestyle.allwomenstalk.com/absolutely-adorable-pet-photography-ideas-for-your-next-photo-shoot/)
+- [domesticated wild animals](https://lifestyle.allwomenstalk.com/wild-animals-that-are-becoming-domesticated-household-pets/)
 - [all cats are beautiful tattoo](https://beauty.allwomenstalk.com/meow-check-out-these-best-ever-kitty-tattoos/)
+- [good pets to have](https://love.allwomenstalk.com/the-best-pets-to-raise-with-your-boyfriend/)
+- [spirit animal tattoo](https://beauty.allwomenstalk.com/find-your-inner-wild-with-these-gorgeous-spirit-animal-tattoos/)
+- [animals gifs](https://funny.allwomenstalk.com/these-animal-gifs-will-definitely-make-your-day/)
+- [if animals could talk](https://funny.allwomenstalk.com/if-animals-could-talk/)
 - [10 Things to Daydream about ...](https://lifestyle.allwomenstalk.com/things-to-daydream-about/)
 - [7 Things Couples Can do Online Together ...](https://allwomenstalk.com/7-things-couples-can-do-online-together/)
 

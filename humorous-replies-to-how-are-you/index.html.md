@@ -3,7 +3,7 @@ title: "Try a Humorous Reply when Someone Asks \"How Are You?\" ..."
 description: "I'm Better on the inside than I Look on the outside; Can't Complain... I've Tried, but No One Listens; Hopefully Not as Good as I'll Ever Be; If I Was Any Better, Vitamins Would Be Taking Me; Okay. I'd Be Better if You Asked Me out; More ..."
 url: "https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/"
 category: "funny"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # Try a Humorous Reply when Someone Asks "How Are You?" ...
@@ -82,16 +82,16 @@ You'll be asked how you are almost every single day, which is why you should add
 
 ## Related Posts
 
+- [funny i love you more](https://funny.allwomenstalk.com/funny-clever-responses-to-i-love-you/)
+- [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
 - [words that sound smart](https://lifestyle.allwomenstalk.com/words-thatll-make-you-sound-smart-when-you-use-them/)
+- [new year pickup line](https://funny.allwomenstalk.com/pick-up-lines-to-use-around-new-years/)
 - [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
 - [holiday pickup line](https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/)
-- [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
 - [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
-- [funny i love you more](https://funny.allwomenstalk.com/funny-clever-responses-to-i-love-you/)
+- [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
 - [slang words 2015](https://lifestyle.allwomenstalk.com/whos-your-bae-the-slang-words-everyone-used-in/)
-- [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
 - [crush funny flirty flirty quotes](https://funny.allwomenstalk.com/funny-quotes-about-the-difficulty-of-flirting/)
-- [new year pickup line](https://funny.allwomenstalk.com/pick-up-lines-to-use-around-new-years/)
 - [10 Easy Ways to Compliment Someone ...](https://allwomenstalk.com/10-easy-ways-to-compliment-someone/)
 - [9 Great Ways to Cheer Someone up ...](https://lifestyle.allwomenstalk.com/great-ways-to-cheer-someone-up/)
 

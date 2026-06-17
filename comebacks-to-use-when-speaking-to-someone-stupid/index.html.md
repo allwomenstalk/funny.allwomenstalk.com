@@ -3,7 +3,7 @@ title: "17 Comebacks to Use when Talking to Someone Stupid ..."
 description: "Of Course I Sound like an Idiot. How else Would You Understand Me?; It’s Scary to Know That People like You Are Allowed to Vote; I’d like to See Things from Your Point of View, but I Can’t Get My Head That Far up My Butt; If I Wanted to Hurt Myself, I’d Climb up to Your Ego and Jump down to Your IQ Level; I’m Sorry if I Hurt Your Feelings when I Called You Stupid. I Thought You Already Knew; More ..."
 url: "https://funny.allwomenstalk.com/comebacks-to-use-when-speaking-to-someone-stupid/"
 category: "funny"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 17 Comebacks to Use when Talking to Someone Stupid ...
@@ -116,16 +116,16 @@ Now you'll be able to put your friends in their place when they act ignorant. Wh
 
 ## Related Posts
 
-- [when you dont know what to say](https://funny.allwomenstalk.com/funny-lines-for-when-you-cant-think-of-anything-else-to-say/)
-- [like white on rice similar sayings](https://lifestyle.allwomenstalk.com/replacement-phrases-to-omg-that-sound-more-mature/)
-- [plain black tattoo](https://funny.allwomenstalk.com/silly-tattoos-you-wont-believe-someone-actually-stuck-with/)
-- [flintstones pick up lines](https://love.allwomenstalk.com/classic-pick-up-lines-that-never-grow-old/)
-- [words to sound intelligent](https://lifestyle.allwomenstalk.com/avoid-these-words-that-can-make-you-sound-uneducated/)
-- [cute names to save your boyfriend's number](https://love.allwomenstalk.com/cute-names-to-list-your-boyfriend-as-on-your-phone/)
-- [funny words for period](https://funny.allwomenstalk.com/silly-period-puns-to-make-that-time-of-the-month-feel-better/)
 - [naughty jokes for boyfriend](https://love.allwomenstalk.com/dirty-jokes-you-should-tell-your-crush/)
-- [inoffensive jokes](https://funny.allwomenstalk.com/inoffensive-dad-jokes-you-can-tell-anyone-and-everyone/)
+- [funny words for period](https://funny.allwomenstalk.com/silly-period-puns-to-make-that-time-of-the-month-feel-better/)
+- [words to sound intelligent](https://lifestyle.allwomenstalk.com/avoid-these-words-that-can-make-you-sound-uneducated/)
+- [when you dont know what to say](https://funny.allwomenstalk.com/funny-lines-for-when-you-cant-think-of-anything-else-to-say/)
+- [plain black tattoo](https://funny.allwomenstalk.com/silly-tattoos-you-wont-believe-someone-actually-stuck-with/)
 - [idiom let sleeping dogs lie](https://lifestyle.allwomenstalk.com/idioms-you-should-start-using-more-often/)
+- [flintstones pick up lines](https://love.allwomenstalk.com/classic-pick-up-lines-that-never-grow-old/)
+- [cute names to save your boyfriend's number](https://love.allwomenstalk.com/cute-names-to-list-your-boyfriend-as-on-your-phone/)
+- [inoffensive jokes](https://funny.allwomenstalk.com/inoffensive-dad-jokes-you-can-tell-anyone-and-everyone/)
+- [like white on rice similar sayings](https://lifestyle.allwomenstalk.com/replacement-phrases-to-omg-that-sound-more-mature/)
 - [7 Things You Should Never Say in a Conversation .....](https://allwomenstalk.com/things-you-should-never-say-in-a-conversation/)
 - [15 Stupidest Quotes Celebrities Have Blurted out ....](https://celebs.allwomenstalk.com/stupidest-quotes-celebrities-have-blurted-out/)
 

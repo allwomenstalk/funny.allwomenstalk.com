@@ -3,7 +3,7 @@ title: "These Corny Jokes for History Buffs Are Good for a Cackle ..."
 description: "How Was the Roman Empire Cut in Half?; Did You Hear the One about the Liberty Bell?; Why Were the Early Days of History Called the Dark Ages?; What Was the Most Popular Dance in 1776?; Why Didn't Socrates like the French Fries?; More ..."
 url: "https://funny.allwomenstalk.com/corny-jokes-for-all-of-the-history-buffs-out-there/"
 category: "funny"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # These Corny Jokes for History Buffs Are Good for a Cackle ...
@@ -58,16 +58,16 @@ Sometimes, the jokes that make you roll your eyes will also make you laugh. Do y
 
 ## Related Posts
 
-- [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
-- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
-- [where are you these days funny reply](https://funny.allwomenstalk.com/funny-responses-to-what-are-you-going-to-do-with-your-life/)
-- [wrong use of words](https://lifestyle.allwomenstalk.com/everyday-words-we-all-use-incorrectly/)
-- [what's a word you mispronounced one time](https://lifestyle.allwomenstalk.com/commonly-mispronounced-words-youve-been-saying-wrong/)
-- [how to reply to a compliment on instagram](https://funny.allwomenstalk.com/funny-responses-for-when-you-need-to-accept-a-compliment/)
-- [words that used to be swear words](https://funny.allwomenstalk.com/ridiculous-words-that-used-to-be-considered-curses/)
 - [charmander pick up lines](https://funny.allwomenstalk.com/silly-pokemon-pick-up-lines/)
-- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
+- [words that used to be swear words](https://funny.allwomenstalk.com/ridiculous-words-that-used-to-be-considered-curses/)
+- [what's a word you mispronounced one time](https://lifestyle.allwomenstalk.com/commonly-mispronounced-words-youve-been-saying-wrong/)
+- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
 - [how to turn down a date](https://funny.allwomenstalk.com/funny-responses-to-use-when-turning-down-a-date/)
+- [wrong use of words](https://lifestyle.allwomenstalk.com/everyday-words-we-all-use-incorrectly/)
+- [how to reply to a compliment on instagram](https://funny.allwomenstalk.com/funny-responses-for-when-you-need-to-accept-a-compliment/)
+- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
+- [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
+- [where are you these days funny reply](https://funny.allwomenstalk.com/funny-responses-to-what-are-you-going-to-do-with-your-life/)
 - [5 Things to Make You Laugh Today ...](https://allwomenstalk.com/5-things-to-make-you-laugh-today/)
 - [5 Silly Things to Make You Laugh...](https://allwomenstalk.com/5-silly-things-to-make-you-laugh/)
 

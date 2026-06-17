@@ -3,7 +3,7 @@ title: "7 Silly Slang Terms from the '50s to Bring Back ..."
 description: "Backseat Bingo; Big Tickle; Wet Rag; Word from the Bird; Ankle-biter; More ..."
 url: "https://funny.allwomenstalk.com/silly-slang-terms-from-the-50s-to-bring-back/"
 category: "funny"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Silly Slang Terms from the '50s to Bring Back ...
@@ -43,15 +43,15 @@ Hundreds of slang terms have died out, but we're capable of bringing them back. 
 ## Related Posts
 
 - [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
-- [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
-- [who invented tv shows](https://movies.allwomenstalk.com/words-invented-by-tv-shows/)
-- [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
 - [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
+- [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
+- [who invented tv shows](https://movies.allwomenstalk.com/words-invented-by-tv-shows/)
 - [when something means something else](https://lifestyle.allwomenstalk.com/colloquial-words-that-used-to-mean-something-else/)
+- [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
 - [all intensive purposes other misused phrases](https://funny.allwomenstalk.com/commonly-misused-words-and-expressions-in-my-neck-of-the-woods/)
-- [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
 - [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
 - [7 Popular Sayings That Are Just Plain Dumb ...](https://lifestyle.allwomenstalk.com/popular-sayings-that-are-just-plain-dumb/)
+- [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
 - [7 Words That Are Funny to Say ...](https://allwomenstalk.com/7-words-that-are-funny-to-say/)
 - [7 Commonly Misused Words and Expressions ...](https://lifestyle.allwomenstalk.com/commonly-misused-words-and-expressions/)
 

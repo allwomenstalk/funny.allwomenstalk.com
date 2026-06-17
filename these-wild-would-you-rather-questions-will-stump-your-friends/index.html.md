@@ -3,7 +3,7 @@ title: "These Wild \"Would You Rather\" Questions Will Stump Your Friends ..."
 description: "Crush or Parents; Walking Dead or Jurassic Park; Whisper or Shout; Never Speak or Say Everything; Elephant or Giraffe; More ..."
 url: "https://funny.allwomenstalk.com/these-wild-would-you-rather-questions-will-stump-your-friends/"
 category: "funny"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # These Wild "Would You Rather" Questions Will Stump Your Friends ...
@@ -66,16 +66,16 @@ The next time you're bored, pass the time by asking your friends these ridiculou
 
 ## Related Posts
 
-- [carcolepsy](https://funny.allwomenstalk.com/these-words-need-to-exist-starting-now/)
-- [cute smooth pick up lines](https://funny.allwomenstalk.com/the-fast-track-to-a-fling-pickup-lines-that-are-perfect-for-the-beach/)
+- [words you didn't know existed](https://lifestyle.allwomenstalk.com/words-youve-always-needed-but-never-realized-existed/)
 - [what does it mean when a guy tells you good mornin...](https://love.allwomenstalk.com/what-men-mean-when-they-send-you-these-common-texts/)
+- [cute smooth pick up lines](https://funny.allwomenstalk.com/the-fast-track-to-a-fling-pickup-lines-that-are-perfect-for-the-beach/)
+- [comebacks for glasses insults](https://lifestyle.allwomenstalk.com/classy-comebacks-thatll-help-you-stay-sophisticated/)
 - [trick.questions](https://funny.allwomenstalk.com/see-if-you-can-figure-out-these-trick-questions/)
 - [self deprecating quotes](https://inspiration.allwomenstalk.com/here-are-most-self-deprecating-phrases-people-say-but-shouldnt-ever/)
 - [dictionary word games online](https://health.allwomenstalk.com/keep-your-mind-active-with-these-unique-word-games-youve-never-heard-of/)
 - [backhanded compliment for a girl](https://inspiration.allwomenstalk.com/these-are-the-perfect-comebacks-to-backhanded-compliments/)
+- [carcolepsy](https://funny.allwomenstalk.com/these-words-need-to-exist-starting-now/)
 - [latein beleidigungen](https://funny.allwomenstalk.com/silly-latin-insults-you-need-to-learn/)
-- [words you didn't know existed](https://lifestyle.allwomenstalk.com/words-youve-always-needed-but-never-realized-existed/)
-- [comebacks for glasses insults](https://lifestyle.allwomenstalk.com/classy-comebacks-thatll-help-you-stay-sophisticated/)
 - [7 Creative, Crazy Present Ideas for the Ones That ...](https://allwomenstalk.com/7-creative-crazy-present-ideas-for-the-ones-that-have-everything/)
 - [8 Sex Q&a's ...](https://allwomenstalk.com/8-sex-qas/)
 

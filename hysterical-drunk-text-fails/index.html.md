@@ -3,7 +3,7 @@ title: "23 Hysterical Drunk Text Fails ..."
 description: "We do Not Understand Your Request; A Half Dozen Babies; 'but I'm Sober!'; HELP ME!; Harry Potter Drunk?; More ..."
 url: "https://funny.allwomenstalk.com/hysterical-drunk-text-fails/"
 category: "funny"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 23 Hysterical Drunk Text Fails ...
@@ -108,14 +108,14 @@ Now that you've had a good laugh, what are some of your drunk texts that you've 
 
 ## Related Posts
 
+- [united kingdom accent](https://lifestyle.allwomenstalk.com/how-to-fake-a-british-accent/)
 - [crazy things parents text](https://funny.allwomenstalk.com/embarrassing-things-our-parents-say-over-text/)
-- [hate doesnt know own name](https://lifestyle.allwomenstalk.com/things-you-can-do-if-you-hate-your-name/)
-- [funny things to say in class](https://funny.allwomenstalk.com/funny-excuses-for-skipping-class/)
+- [apocalypse jokes](https://funny.allwomenstalk.com/dad-jokes-that-will-actually-make-you-laugh/)
+- [brown food names](https://food.allwomenstalk.com/food-names-youve-been-saying-wrong/)
 - [aussie pick up lines](https://lifestyle.allwomenstalk.com/australian-slang-terms-you-havent-heard/)
 - [sherlock holmes catch phrases](https://books.allwomenstalk.com/words-to-steal-from-sherlock-holmes/)
-- [apocalypse jokes](https://funny.allwomenstalk.com/dad-jokes-that-will-actually-make-you-laugh/)
-- [united kingdom accent](https://lifestyle.allwomenstalk.com/how-to-fake-a-british-accent/)
-- [brown food names](https://food.allwomenstalk.com/food-names-youve-been-saying-wrong/)
+- [funny things to say in class](https://funny.allwomenstalk.com/funny-excuses-for-skipping-class/)
+- [hate doesnt know own name](https://lifestyle.allwomenstalk.com/things-you-can-do-if-you-hate-your-name/)
 - [use that word lightly](https://lifestyle.allwomenstalk.com/words-you-should-never-use-lightly/)
 - [how to professionally say someone is lazy](https://funny.allwomenstalk.com/the-best-comebacks-for-being-called-lazy/)
 - [Flirty Texts for Him to Make His Day ...](https://love.allwomenstalk.com/text-flirting-ideas-to-try-today/)

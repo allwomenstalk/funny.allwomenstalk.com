@@ -3,7 +3,7 @@ title: "7 Funny Responses to \"What Are You Going to do with Your Life?\" ..."
 description: "It's a Surprise; Get a PhD in Horribleness; Ruin It; The opposite of Whatever You Did; View Each Day as an Opportunity, Not an Obligation; More ..."
 url: "https://funny.allwomenstalk.com/funny-responses-to-what-are-you-going-to-do-with-your-life/"
 category: "funny"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Funny Responses to "What Are You Going to do with Your Life?" ...
@@ -42,16 +42,16 @@ You're not obligated to tell others your plans for the future, if you even have 
 
 ## Related Posts
 
-- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
-- [how to reply to a compliment on instagram](https://funny.allwomenstalk.com/funny-responses-for-when-you-need-to-accept-a-compliment/)
-- [is conversate a real word](https://lifestyle.allwomenstalk.com/words-you-use-that-dont-actually-exist-in-dictionaries/)
-- [charmander pick up lines](https://funny.allwomenstalk.com/silly-pokemon-pick-up-lines/)
-- [how to turn down a date](https://funny.allwomenstalk.com/funny-responses-to-use-when-turning-down-a-date/)
-- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
-- [words that used to be swear words](https://funny.allwomenstalk.com/ridiculous-words-that-used-to-be-considered-curses/)
-- [what's a word you mispronounced one time](https://lifestyle.allwomenstalk.com/commonly-mispronounced-words-youve-been-saying-wrong/)
 - [wrong use of words](https://lifestyle.allwomenstalk.com/everyday-words-we-all-use-incorrectly/)
 - [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
+- [what's a word you mispronounced one time](https://lifestyle.allwomenstalk.com/commonly-mispronounced-words-youve-been-saying-wrong/)
+- [charmander pick up lines](https://funny.allwomenstalk.com/silly-pokemon-pick-up-lines/)
+- [how to reply to a compliment on instagram](https://funny.allwomenstalk.com/funny-responses-for-when-you-need-to-accept-a-compliment/)
+- [words that used to be swear words](https://funny.allwomenstalk.com/ridiculous-words-that-used-to-be-considered-curses/)
+- [how to turn down a date](https://funny.allwomenstalk.com/funny-responses-to-use-when-turning-down-a-date/)
+- [is conversate a real word](https://lifestyle.allwomenstalk.com/words-you-use-that-dont-actually-exist-in-dictionaries/)
+- [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
+- [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
 - [7 Ways to Answer the Question Why Should We Hire Y...](https://lifestyle.allwomenstalk.com/ways-to-answer-the-question-why-should-we-hire-you/)
 - [7 Ways to Decide What You Want to Be when You Grow...](https://allwomenstalk.com/ways-to-decide-what-you-want-to-be-when-you-grow-up/)
 

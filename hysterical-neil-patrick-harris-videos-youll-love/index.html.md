@@ -3,7 +3,7 @@ title: "7 Hysterical Neil Patrick Harris Videos You'll Love ..."
 description: "Reenacting the Oscars with Ellen; Singing with Hugh Jackman; Running with Billy on the Street; Bollywood from Neil's Puppet Dreams; Couple's Questions on the Chew; More ..."
 url: "https://funny.allwomenstalk.com/hysterical-neil-patrick-harris-videos-youll-love/"
 category: "funny"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Hysterical Neil Patrick Harris Videos You'll Love ...
@@ -42,15 +42,15 @@ NPH is a legendary actor, singer, dancer, host, magician, father--the list goes 
 
 ## Related Posts
 
+- [monica frizzy hair meme](https://movies.allwomenstalk.com/times-weve-all-been-one-of-the-f-r-i-e-n-d-s-characters/)
+- [jimmy kimmel's sidekick](https://movies.allwomenstalk.com/hilarious-segments-from-jimmy-kimmel-live/)
+- [dante 9 circles of hell](https://books.allwomenstalk.com/circles-of-hell-from-dantes-inferno/)
+- [7 dates with a guy](https://love.allwomenstalk.com/disastrous-dates-weve-all-had/)
 - [who was a in pll books](https://books.allwomenstalk.com/pretty-little-liars-characters-and-how-they-differ-between-the-show-and-books/)
 - [daniel howell shirtless](https://funny.allwomenstalk.com/funniest-dan-and-phil-videos-on-youtube/)
-- [jimmy kimmel's sidekick](https://movies.allwomenstalk.com/hilarious-segments-from-jimmy-kimmel-live/)
-- [monica frizzy hair meme](https://movies.allwomenstalk.com/times-weve-all-been-one-of-the-f-r-i-e-n-d-s-characters/)
-- [7 dates with a guy](https://love.allwomenstalk.com/disastrous-dates-weve-all-had/)
-- [ps4 games list 2014](https://lifestyle.allwomenstalk.com/ps4-games-we-cant-wait-for-this-year/)
-- [dante 9 circles of hell](https://books.allwomenstalk.com/circles-of-hell-from-dantes-inferno/)
-- [i wish fictional characters were real](https://movies.allwomenstalk.com/fictional-characters-we-wish-were-real/)
 - [what is the most hated day](https://funny.allwomenstalk.com/of-the-worst-days-in-a-month/)
+- [ps4 games list 2014](https://lifestyle.allwomenstalk.com/ps4-games-we-cant-wait-for-this-year/)
+- [i wish fictional characters were real](https://movies.allwomenstalk.com/fictional-characters-we-wish-were-real/)
 - [greek cyclopes](https://books.allwomenstalk.com/creatures-from-greek-mythology/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 - [7 of My Favorite Funny Youtube Videos ...](https://7fun.net/7-of-my-favorite-funny-youtube-videos/)

@@ -3,7 +3,7 @@ title: "9 Funny Videos of Benedict Cumberbatch ..."
 description: "Pranks on Set; Detective Test; Opinion on His Looks; Debate about Dragons; Pronunciation of Smaug; More ..."
 url: "https://funny.allwomenstalk.com/funny-videos-of-benedict-cumberbatch/"
 category: "funny"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 9 Funny Videos of Benedict Cumberbatch ...
@@ -50,16 +50,16 @@ Benedict is a lovable guy who knows how to make others smile. If you've never se
 
 ## Related Posts
 
-- [craziest sport](https://fitness.allwomenstalk.com/craziest-sports-that-really-exist/)
-- [ghosts videos](https://movies.allwomenstalk.com/ghost-videos-on-youtube-that-cant-be-explained/)
 - [24 moments](https://movies.allwomenstalk.com/24-moments-that-will-get-you-pumped-for-24-live-another-day/)
-- [shows we watched as a kid](https://movies.allwomenstalk.com/childhood-tv-shows-that-will-make-you-reminisce/)
-- [bizarre state laws](https://lifestyle.allwomenstalk.com/bizarre-state-laws-that-are-still-on-the-books/)
 - [kellyandryan com recipes](https://movies.allwomenstalk.com/classic-tv-couples-from-the-office/)
-- [disney movie conspiracy theory](https://movies.allwomenstalk.com/craziest-disney-conspiracy-theories/)
-- [funny problems to have](https://funny.allwomenstalk.com/most-hilarious-first-world-problems/)
-- [carnival ride names](https://lifestyle.allwomenstalk.com/classic-carnival-rides-we-cant-get-enough-of/)
+- [shows we watched as a kid](https://movies.allwomenstalk.com/childhood-tv-shows-that-will-make-you-reminisce/)
+- [ghosts videos](https://movies.allwomenstalk.com/ghost-videos-on-youtube-that-cant-be-explained/)
 - [loreal color riche le stylo smoky with a twist](https://lifestyle.allwomenstalk.com/unexpected-stories-behind-famous-logos/)
+- [carnival ride names](https://lifestyle.allwomenstalk.com/classic-carnival-rides-we-cant-get-enough-of/)
+- [funny problems to have](https://funny.allwomenstalk.com/most-hilarious-first-world-problems/)
+- [bizarre state laws](https://lifestyle.allwomenstalk.com/bizarre-state-laws-that-are-still-on-the-books/)
+- [disney movie conspiracy theory](https://movies.allwomenstalk.com/craziest-disney-conspiracy-theories/)
+- [craziest sport](https://fitness.allwomenstalk.com/craziest-sports-that-really-exist/)
 - [9 Very Brainy Movie Stars ...](https://movies.allwomenstalk.com/very-brainy-movie-stars/)
 - [11 Hilarious Harry Potter Parody Videos ...](https://movies.allwomenstalk.com/hilarious-harry-potter-parody-videos/)
 

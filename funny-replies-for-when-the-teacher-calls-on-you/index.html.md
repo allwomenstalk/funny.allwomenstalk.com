@@ -3,7 +3,7 @@ title: "9 Funny Replies for when the Teacher Calls on You ..."
 description: "Don't You Already Know?; I Have Bigger Problems to Worry about; I'm More Concerned with Why You Wore That Outfit; That's Not My Name; Hold on. Let Me Ask Siri; More ..."
 url: "https://funny.allwomenstalk.com/funny-replies-for-when-the-teacher-calls-on-you/"
 category: "funny"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 9 Funny Replies for when the Teacher Calls on You ...
@@ -50,16 +50,16 @@ Obviously, these things will get you in trouble, which is why you should probabl
 
 ## Related Posts
 
-- [funny things to say in class](https://funny.allwomenstalk.com/funny-excuses-for-skipping-class/)
-- [stuff to tell your boyfriend](https://love.allwomenstalk.com/corny-phrases-hell-actually-love-to-hear/)
-- [six word stories funny](https://books.allwomenstalk.com/the-best-6-word-stories-ever-written/)
-- [what do drunk texts look like](https://funny.allwomenstalk.com/hysterical-drunk-text-fails/)
+- [crazy things parents text](https://funny.allwomenstalk.com/embarrassing-things-our-parents-say-over-text/)
 - [united kingdom accent](https://lifestyle.allwomenstalk.com/how-to-fake-a-british-accent/)
 - [hate doesnt know own name](https://lifestyle.allwomenstalk.com/things-you-can-do-if-you-hate-your-name/)
-- [use that word lightly](https://lifestyle.allwomenstalk.com/words-you-should-never-use-lightly/)
+- [what do drunk texts look like](https://funny.allwomenstalk.com/hysterical-drunk-text-fails/)
+- [funny things to say in class](https://funny.allwomenstalk.com/funny-excuses-for-skipping-class/)
 - [brown food names](https://food.allwomenstalk.com/food-names-youve-been-saying-wrong/)
 - [sherlock holmes catch phrases](https://books.allwomenstalk.com/words-to-steal-from-sherlock-holmes/)
-- [crazy things parents text](https://funny.allwomenstalk.com/embarrassing-things-our-parents-say-over-text/)
+- [stuff to tell your boyfriend](https://love.allwomenstalk.com/corny-phrases-hell-actually-love-to-hear/)
+- [six word stories funny](https://books.allwomenstalk.com/the-best-6-word-stories-ever-written/)
+- [use that word lightly](https://lifestyle.allwomenstalk.com/words-you-should-never-use-lightly/)
 - [8 Reasons Teachers Rule ...](https://parenting.allwomenstalk.com/reasons-teachers-rule/)
 - [7 Tips on Being a Substitute Teacher ...](https://allwomenstalk.com/7-tips-on-being-a-substitute-teacher/)
 

@@ -3,7 +3,7 @@ title: "7 Worst Things to Say on Your First Day at Work ..."
 description: "\"so, Who do I Have to Sleep with around Here to Get a Promotion?\"; \"Who Wants to See My Breasts First?!\"; \"so, You're the B@%*!^ That Got the Role I Really Wanted?\"; \"I Hold Weekly Satanic Rituals at My Place Every Saturday, to Which You're All Invited - Feel Free to Bring Your Pets.\"; \"What do You Mean That's an Inappropriate Screen Saver? Oh, That's Your Husband...\"; More ..."
 url: "https://funny.allwomenstalk.com/worst-things-to-say-on-your-first-day-at-work/"
 category: "funny"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Worst Things to Say on Your First Day at Work ...
@@ -42,16 +42,16 @@ These are just a few things you shouldn't say on your very first day at work. Ma
 
 ## Related Posts
 
-- [lovepanky first date](https://love.allwomenstalk.com/annoying-girlfriend-habits-that-guys-dont-like/)
-- [should you brag in your college essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-a-college-essay/)
-- [what to say to a gurl](https://lifestyle.allwomenstalk.com/worst-things-a-girl-can-say-according-to-guys/)
+- [three ways how travellers should be considerate to...](https://travel.allwomenstalk.com/things-you-should-never-do-on-public-transport/)
 - [how much alone time do introverts need](https://inspiration.allwomenstalk.com/things-you-should-never-say-to-introverts/)
 - [how to ruin a date in the first minute](https://funny.allwomenstalk.com/things-that-ruin-a-date-instantly/)
-- [three ways how travellers should be considerate to...](https://travel.allwomenstalk.com/things-you-should-never-do-on-public-transport/)
-- [little girls taboo](https://parenting.allwomenstalk.com/toys-you-should-not-buy-for-your-little-girl/)
+- [what to say to a gurl](https://lifestyle.allwomenstalk.com/worst-things-a-girl-can-say-according-to-guys/)
 - [why do i sneeze when cooking](https://food.allwomenstalk.com/things-you-should-not-do-while-cooking/)
+- [lovepanky first date](https://love.allwomenstalk.com/annoying-girlfriend-habits-that-guys-dont-like/)
 - [7 Hilariously Terrible Online Dating Photos Men Sh...](https://funny.allwomenstalk.com/hilariously-terrible-online-dating-photos-men-should-avoid/)
+- [should you brag in your college essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-a-college-essay/)
 - [how to lose weight as a stay at home mom](https://parenting.allwomenstalk.com/worst-things-to-say-to-a-stay-at-home-mom/)
+- [little girls taboo](https://parenting.allwomenstalk.com/toys-you-should-not-buy-for-your-little-girl/)
 - [7 Worst Interview Mistakes ...](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
 - [7 Things Not to Say to Strangers ...](https://allwomenstalk.com/7-things-not-to-say-to-strangers/)
 

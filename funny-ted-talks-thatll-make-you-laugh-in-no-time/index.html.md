@@ -3,7 +3,7 @@ title: "7 Funny TED Talks That'll Make You Laugh in No Time ..."
 description: "Maz Jobrani; Seth Godin; Improv Everywhere; Carin Bondar; Joe Kowan; More ..."
 url: "https://funny.allwomenstalk.com/funny-ted-talks-thatll-make-you-laugh-in-no-time/"
 category: "funny"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Funny TED Talks That'll Make You Laugh in No Time ...
@@ -42,16 +42,16 @@ Laughter is the best medicine so I think it’s great to learn something while d
 
 ## Related Posts
 
-- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
-- [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
-- [dating customs around the world](https://love.allwomenstalk.com/funny-dating-customs-around-the-world/)
-- [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
-- [gmaes to play when bored](https://funny.allwomenstalk.com/texting-games-to-play-when-youre-bored/)
 - [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
-- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
+- [gmaes to play when bored](https://funny.allwomenstalk.com/texting-games-to-play-when-youre-bored/)
 - [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
-- [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
+- [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
+- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
+- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
+- [dating customs around the world](https://love.allwomenstalk.com/funny-dating-customs-around-the-world/)
 - [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
+- [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
+- [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
 - [7 Reasons to Laugh More ...](https://allwomenstalk.com/7-reasons-to-laugh-more/)
 - [7 Things That Make Me Laugh ...](https://allwomenstalk.com/7-things-that-make-me-laugh/)
 

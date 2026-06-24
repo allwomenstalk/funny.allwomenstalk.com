@@ -3,7 +3,7 @@ title: "17 Funny Replies when Someone Tells You to Smile ..."
 description: "I Will, as Soon as You Leave; It Takes More Energy to Frown than It Does to Smile, so I’m Exercising; I'm Psychic, and I'm Just Too Bummed over What's about to Happen to You to Smile; I Never Smile before I Kill a Man; I Can’t. I Just Got a Facelift; More ..."
 url: "https://funny.allwomenstalk.com/funny-replies-when-for-someone-tells-you-to-smile/"
 category: "funny"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 17 Funny Replies when Someone Tells You to Smile ...
@@ -116,16 +116,16 @@ Not all men tell you to smile in order to be rude. Sometimes, it's a friendly re
 
 ## Related Posts
 
-- [cute names to save your boyfriend's number](https://love.allwomenstalk.com/cute-names-to-list-your-boyfriend-as-on-your-phone/)
-- [words to sound intelligent](https://lifestyle.allwomenstalk.com/avoid-these-words-that-can-make-you-sound-uneducated/)
-- [funny ways to leave a group chat](https://funny.allwomenstalk.com/silly-lines-you-can-use-to-end-a-conversation/)
 - [idiom let sleeping dogs lie](https://lifestyle.allwomenstalk.com/idioms-you-should-start-using-more-often/)
-- [funny comebacks and insults](https://funny.allwomenstalk.com/comebacks-to-use-when-speaking-to-someone-stupid/)
-- [when you dont know what to say](https://funny.allwomenstalk.com/funny-lines-for-when-you-cant-think-of-anything-else-to-say/)
 - [plain black tattoo](https://funny.allwomenstalk.com/silly-tattoos-you-wont-believe-someone-actually-stuck-with/)
-- [funny words for period](https://funny.allwomenstalk.com/silly-period-puns-to-make-that-time-of-the-month-feel-better/)
-- [like white on rice similar sayings](https://lifestyle.allwomenstalk.com/replacement-phrases-to-omg-that-sound-more-mature/)
 - [naughty jokes for boyfriend](https://love.allwomenstalk.com/dirty-jokes-you-should-tell-your-crush/)
+- [when you dont know what to say](https://funny.allwomenstalk.com/funny-lines-for-when-you-cant-think-of-anything-else-to-say/)
+- [like white on rice similar sayings](https://lifestyle.allwomenstalk.com/replacement-phrases-to-omg-that-sound-more-mature/)
+- [funny words for period](https://funny.allwomenstalk.com/silly-period-puns-to-make-that-time-of-the-month-feel-better/)
+- [words to sound intelligent](https://lifestyle.allwomenstalk.com/avoid-these-words-that-can-make-you-sound-uneducated/)
+- [funny comebacks and insults](https://funny.allwomenstalk.com/comebacks-to-use-when-speaking-to-someone-stupid/)
+- [funny ways to leave a group chat](https://funny.allwomenstalk.com/silly-lines-you-can-use-to-end-a-conversation/)
+- [cute names to save your boyfriend's number](https://love.allwomenstalk.com/cute-names-to-list-your-boyfriend-as-on-your-phone/)
 - [7 Funny Jokes to Help You Smile ...](https://allwomenstalk.com/7-funny-jokes-to-help-you-smile/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 

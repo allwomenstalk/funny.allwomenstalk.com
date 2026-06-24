@@ -3,7 +3,7 @@ title: "Have a Laugh when You Feel Too Lazy to Exercise ..."
 description: "I Really Don't Think I Need Buns of Steel. I'd Be Happy with Buns of Cinnamon; I Named My Dog \"5 Miles\" so I Can Say I Walked 5 Miles Every Day; Your Brain Needs Exercise, Too. so, Spend Lots of Time Thinking up Excuses for Not Working out; I'm Not into Working out. My Philosophy: No Pain, No Pain; I Forgot to Post on Facebook That I Was Going to the Gym. Now This Whole Workout Was a Waste of Time; More ..."
 url: "https://funny.allwomenstalk.com/jokes-that-poke-fun-at-exercising-for-when-youre-feeling-lazy/"
 category: "funny"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # Have a Laugh when You Feel Too Lazy to Exercise ...
@@ -44,16 +44,16 @@ As much as you might hate exercising, you have to do it. Your body deserves to b
 
 ## Related Posts
 
-- [active activities for couples](https://love.allwomenstalk.com/active-date-ideas-thatll-help-you-both-get-fit-while-having-fun/)
+- [best drugstore pre workout](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
 - [rewards to give yourself](https://fitness.allwomenstalk.com/excellent-exercise-rewards-to-keep-you-motivated/)
 - [yoga sore legs](https://fitness.allwomenstalk.com/soothe-your-sore-muscles-with-these-yoga-inspired-stretches/)
-- [how to get rid of muffin top in a week](https://fitness.allwomenstalk.com/exercises-to-banish-that-muffin-top/)
-- [how to get rid of bingo wings](https://fitness.allwomenstalk.com/the-best-exercises-to-tone-your-arms-to-prevent-bingo-wings/)
-- [does jump rope build calves](https://fitness.allwomenstalk.com/awesome-exercises-for-curvaceous-calves/)
-- [best drugstore pre workout](https://fitness.allwomenstalk.com/great-ways-to-relax-before-working-out/)
-- [oblique exercises love handles](https://fitness.allwomenstalk.com/exercises-to-lose-those-love-handles/)
 - [20 lb kettlebell workout](https://fitness.allwomenstalk.com/the-best-exercises-using-kettle-bells/)
+- [how to get rid of muffin top in a week](https://fitness.allwomenstalk.com/exercises-to-banish-that-muffin-top/)
 - [can you lose weight jumping on a trampoline](https://fitness.allwomenstalk.com/super-easy-trampoline-exercises-to-boost-weight-loss/)
+- [how to get rid of bingo wings](https://fitness.allwomenstalk.com/the-best-exercises-to-tone-your-arms-to-prevent-bingo-wings/)
+- [active activities for couples](https://love.allwomenstalk.com/active-date-ideas-thatll-help-you-both-get-fit-while-having-fun/)
+- [oblique exercises love handles](https://fitness.allwomenstalk.com/exercises-to-lose-those-love-handles/)
+- [does jump rope build calves](https://fitness.allwomenstalk.com/awesome-exercises-for-curvaceous-calves/)
 - [Exercise to Feel Great when Naked ...](https://allwomenstalk.com/exercise-to-feel-great-when-naked/)
 - [Exercise Today! Even if You Don't Want to ...](https://fitness.allwomenstalk.com/reasons-to-exercise-today-even-if-you-dont-want-to/)
 

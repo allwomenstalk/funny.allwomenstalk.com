@@ -3,7 +3,7 @@ title: "7 Things to do Now That the Sochi Winter Olympics Are over ..."
 description: "Cry Hysterically; Relive Every Minute by \"Liking\" All the Olympic Photos on Facebook; Relive Every Moment All over Again through NBC’s Olympics Channel; Copy Your Favorite Beauty Looks from Your Favorite Athletes; Take up a Hobby; More ..."
 url: "https://funny.allwomenstalk.com/things-to-do-now-that-the-sochi-winter-olympics-are-over/"
 category: "funny"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Things to do Now That the Sochi Winter Olympics Are over ...
@@ -43,15 +43,15 @@ So now hopefully I’ve prepared you for your after Sochi Olympic withdrawals. I
 ## Related Posts
 
 - [7 Things That Are Easier than Playing Flappy Bird ...](https://funny.allwomenstalk.com/things-that-are-easier-than-playing-flappy-bird/)
-- [7 Super Perfect Ways to Celebrate St. Patrick's Da...](https://lifestyle.allwomenstalk.com/super-perfect-ways-to-celebrate-st-patricks-day/)
 - [7 Fun Spring Activities for Kids ...](https://parenting.allwomenstalk.com/fun-spring-activities-for-kids/)
 - [things to do on the internet when bored](https://lifestyle.allwomenstalk.com/fun-things-to-do-at-home-when-youre-bored/)
-- [7 Exciting Things about Spring That You Can Start ...](https://lifestyle.allwomenstalk.com/exciting-things-about-spring-that-you-can-start-looking-forward-to/)
+- [7 Super Perfect Ways to Celebrate St. Patrick's Da...](https://lifestyle.allwomenstalk.com/super-perfect-ways-to-celebrate-st-patricks-day/)
 - [7 Fun Activities to Put on Your Spring Bucket List...](https://lifestyle.allwomenstalk.com/fun-activities-to-put-on-your-spring-bucket-list/)
 - [10 Free Printables for St. Patrick's Day to Downlo...](https://diy.allwomenstalk.com/free-printables-for-st-patricks-day-to-download-for-a-roaring-party/)
 - [7 Fun and Special Mom and Son Date Ideas ...](https://parenting.allwomenstalk.com/fun-and-special-mom-and-son-date-ideas/)
-- [7 New Types of Dances That You Should Try ...](https://fitness.allwomenstalk.com/new-types-of-dances-that-you-should-try/)
+- [7 Exciting Things about Spring That You Can Start ...](https://lifestyle.allwomenstalk.com/exciting-things-about-spring-that-you-can-start-looking-forward-to/)
 - [how to make the work week more enjoyable](https://lifestyle.allwomenstalk.com/productive-and-fun-ways-to-spend-work-week-evenings/)
+- [7 New Types of Dances That You Should Try ...](https://fitness.allwomenstalk.com/new-types-of-dances-that-you-should-try/)
 - [Does a Chef's Body Size Matter?](https://allwomenstalk.com/does-a-chefs-body-size-matter/)
 - [12 Ingredients and Directions of Flourless Chocola...](https://allwomenstalk.com/flourless-chocolate-cake-ingredients-and-directions/)
 

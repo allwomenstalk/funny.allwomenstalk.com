@@ -3,7 +3,7 @@ title: "17 of the Lamest Excuses for Not Doing Something ..."
 description: "Lame Excuses for Turning up Late; Excuses Not to do a Task with a Deadline over 7 Days Away; Excuses for Not Turning up; Getting to Work Excuses; Jaw Dropping Reasons for Missing Work; More ..."
 url: "https://funny.allwomenstalk.com/of-the-lamest-excuses-for-not-doing-something/"
 category: "funny"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 17 of the Lamest Excuses for Not Doing Something ...
@@ -133,16 +133,16 @@ I hope you’re not guilty of these lame excuses, but if you ever did try one, d
 
 ## Related Posts
 
+- [it's ok not to be perfect](https://inspiration.allwomenstalk.com/reasons-you-dont-need-to-be-perfect/)
+- [money talk.com](https://money.allwomenstalk.com/common-reasons-why-couples-avoid-the-money-talk/)
+- [when he doesn't call you back](https://love.allwomenstalk.com/reasons-men-dont-call-women-back/)
+- [replicas bags](https://money.allwomenstalk.com/reasons-you-shouldnt-buy-fake-products/)
 - [why you shouldn't compare yourself to others](https://inspiration.allwomenstalk.com/important-reasons-not-to-compare-yourself-with-others/)
+- [i lied about my age by 5 years](https://lifestyle.allwomenstalk.com/why-do-people-lie-about-their-age-here-are-reasons/)
+- [i don't want to get married but my partner does](https://love.allwomenstalk.com/reasons-you-shouldnt-push-your-partner-to-get-married/)
+- [how to avoid arguments](https://lifestyle.allwomenstalk.com/reasons-to-avoid-arguments-on-social-media/)
 - [the risk of love](https://love.allwomenstalk.com/reasons-relationships-are-worth-the-risk-of-getting-hurt/)
 - [will i ever find my soulmate](https://love.allwomenstalk.com/reasons-its-smart-not-to-hold-out-for-a-soulmate/)
-- [i lied about my age by 5 years](https://lifestyle.allwomenstalk.com/why-do-people-lie-about-their-age-here-are-reasons/)
-- [it's ok not to be perfect](https://inspiration.allwomenstalk.com/reasons-you-dont-need-to-be-perfect/)
-- [replicas bags](https://money.allwomenstalk.com/reasons-you-shouldnt-buy-fake-products/)
-- [i don't want to get married but my partner does](https://love.allwomenstalk.com/reasons-you-shouldnt-push-your-partner-to-get-married/)
-- [when he doesn't call you back](https://love.allwomenstalk.com/reasons-men-dont-call-women-back/)
-- [how to avoid arguments](https://lifestyle.allwomenstalk.com/reasons-to-avoid-arguments-on-social-media/)
-- [money talk.com](https://money.allwomenstalk.com/common-reasons-why-couples-avoid-the-money-talk/)
 - [7 Reasons Children do Not Want to Go to School ...](https://parenting.allwomenstalk.com/7-reasons-children-do-not-want-to-go-to-school/)
 - [7 Dumb Excuses to Avoid Exercise ...](https://health.allwomenstalk.com/dumb-excuses-to-avoid-exercise/)
 

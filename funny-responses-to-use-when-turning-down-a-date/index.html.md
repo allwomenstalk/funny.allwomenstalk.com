@@ -3,7 +3,7 @@ title: "13 Funny Responses to Use when Turning down a Date ..."
 description: "I No Longer do Things That Make Me Want to Vomit; It Wouldn't Be Fair to My Other Suitors; I’d Rather Stick a Needle in My Eye. or Yours; I Don't Want to Leave My Comfort Zone; It Would Cause the Slow Death of My Soul; More ..."
 url: "https://funny.allwomenstalk.com/funny-responses-to-use-when-turning-down-a-date/"
 category: "funny"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 13 Funny Responses to Use when Turning down a Date ...
@@ -66,16 +66,16 @@ If someone has a crush on you, be polite to them. Of course, if you've turned th
 
 ## Related Posts
 
+- [kissing humor](https://funny.allwomenstalk.com/cute-jokes-about-kissing/)
+- [invented words by shakespeare](https://lifestyle.allwomenstalk.com/words-invented-by-shakespeare-we-still-use-today/)
+- [glamorous words](https://lifestyle.allwomenstalk.com/classy-words-to-use-to-sound-like-a-lady/)
 - [text before calling](https://lifestyle.allwomenstalk.com/important-times-to-call-instead-of-text/)
 - [how many unwritten rules of texting are there](https://lifestyle.allwomenstalk.com/unwritten-rules-of-texting-you-should-know/)
-- [awesome practical jokes](https://funny.allwomenstalk.com/harmless-practical-jokes-to-play-on-your-pals/)
 - [frases de falta de respeto](https://lifestyle.allwomenstalk.com/disrespectful-phrases-to-stop-using-to-be-more-likable/)
-- [oscar wilde insults](https://books.allwomenstalk.com/best-literary-insults-to-steal/)
-- [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
 - [is conversate a real word](https://lifestyle.allwomenstalk.com/words-you-use-that-dont-actually-exist-in-dictionaries/)
-- [invented words by shakespeare](https://lifestyle.allwomenstalk.com/words-invented-by-shakespeare-we-still-use-today/)
-- [kissing humor](https://funny.allwomenstalk.com/cute-jokes-about-kissing/)
-- [glamorous words](https://lifestyle.allwomenstalk.com/classy-words-to-use-to-sound-like-a-lady/)
+- [truth or dare pick up lines](https://funny.allwomenstalk.com/funniest-things-to-ask-during-truth-or-dare/)
+- [oscar wilde insults](https://books.allwomenstalk.com/best-literary-insults-to-steal/)
+- [awesome practical jokes](https://funny.allwomenstalk.com/harmless-practical-jokes-to-play-on-your-pals/)
 - [7 Shrewdly Clever Reasons to Avoid a Dating Type ....](https://love.allwomenstalk.com/shrewdly-clever-reasons-to-avoid-a-dating-type/)
 - [10 Ways to Avoid Awkward Moments on a First Date ....](https://allwomenstalk.com/10-ways-to-avoid-awkward-moments-on-a-first-date/)
 

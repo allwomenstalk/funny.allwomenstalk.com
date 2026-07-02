@@ -3,7 +3,7 @@ title: "7 Stupid Things We've All Done when Crushing on Someone ..."
 description: "Stalking His Social Media; Forcing Yourself to Be Interested in His Interests; Planing Your Outfits; Constantly Mentioning Him; Analyzing Every Word; More ..."
 url: "https://funny.allwomenstalk.com/stupid-things-weve-all-done-when-crushing-on-someone/"
 category: "funny"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Stupid Things We've All Done when Crushing on Someone ...
@@ -42,16 +42,16 @@ Crushes can toy with our emotions, and make us stressed out over the simplest th
 
 ## Related Posts
 
-- [The Biggest Things You Should Never Say to Your Ma...](https://funny.allwomenstalk.com/things-you-should-never-tell-a-man/)
 - [7 Things You'll Regret in 7 Years ...](https://inspiration.allwomenstalk.com/things-youll-regret-in-7-years/)
-- [Social Media: the Dos & Don'ts ...](https://lifestyle.allwomenstalk.com/social-media-the-dos-donts/)
-- [7 Emotionally Abusive Things You Should Never Tell...](https://love.allwomenstalk.com/emotionally-abusive-things-you-should-never-tell-your-partner/)
 - [The Most Essential Dos and Don'ts of Saying You're...](https://inspiration.allwomenstalk.com/dos-and-donts-of-apologizing/)
-- [7 Things That Hurt Your Chances of Getting a Raise...](https://money.allwomenstalk.com/things-that-hurt-your-chances-of-getting-a-raise/)
-- [bad things to buy](https://money.allwomenstalk.com/of-the-worst-things-to-buy-used/)
-- [7 Things Not to do when You Are Angry ...](https://inspiration.allwomenstalk.com/things-not-to-do-when-you-are-angry/)
-- [9 Things You Shouldn't do when You're Sick ...](https://health.allwomenstalk.com/things-you-shouldnt-do-when-youre-sick/)
 - [my boss doesn t know how to do my job](https://money.allwomenstalk.com/things-your-boss-doesnt-need-to-know/)
+- [bad things to buy](https://money.allwomenstalk.com/of-the-worst-things-to-buy-used/)
+- [The Biggest Things You Should Never Say to Your Ma...](https://funny.allwomenstalk.com/things-you-should-never-tell-a-man/)
+- [7 Emotionally Abusive Things You Should Never Tell...](https://love.allwomenstalk.com/emotionally-abusive-things-you-should-never-tell-your-partner/)
+- [7 Things That Hurt Your Chances of Getting a Raise...](https://money.allwomenstalk.com/things-that-hurt-your-chances-of-getting-a-raise/)
+- [7 Things Not to do when You Are Angry ...](https://inspiration.allwomenstalk.com/things-not-to-do-when-you-are-angry/)
+- [Social Media: the Dos & Don'ts ...](https://lifestyle.allwomenstalk.com/social-media-the-dos-donts/)
+- [9 Things You Shouldn't do when You're Sick ...](https://health.allwomenstalk.com/things-you-shouldnt-do-when-youre-sick/)
 - [Top 7 Dating Mistakes ...](https://allwomenstalk.com/top-7-dating-mistakes/)
 - [10 Facebook Dating Mistakes We've All Made ...](https://allwomenstalk.com/10-facebook-dating-mistakes-weve-all-made/)
 

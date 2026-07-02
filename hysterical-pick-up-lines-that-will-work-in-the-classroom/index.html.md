@@ -3,7 +3,7 @@ title: "Flirt with Your Classroom Crush Using These Hysterical Pick up Lines ...
 description: "I Hear YOU'RE Good at Algebra. Can You Replace My X without Asking Y?; I Don’t Know How I’ll Ever Get to Class on Time when It’s so Easy to Get Lost in Your Eyes; You Must Be a Very Important Textbook Passage, Because Seeing You is the Highlight of My Day; Don’t Walk into the Building. the Sprinklers Will Go off; Even if There Were No Gravity on Earth, I'd Still Fall for You; More ..."
 url: "https://funny.allwomenstalk.com/hysterical-pick-up-lines-that-will-work-in-the-classroom/"
 category: "funny"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Flirt with Your Classroom Crush Using These Hysterical Pick up Lines ...
@@ -52,16 +52,16 @@ You don't have to be a heartbreaker in order to use these ridiculous pick up lin
 
 ## Related Posts
 
+- [no one wants to be my friend](https://love.allwomenstalk.com/ways-to-handle-a-friend-wanting-to-date-you/)
+- [gif for crush](https://funny.allwomenstalk.com/gifs-to-use-the-next-time-you-talk-to-your-crush/)
+- [boyfriend is busy with school](https://love.allwomenstalk.com/ways-to-make-time-for-him-during-a-busy-school-year/)
 - [i don't know what to talk about with my boyfriend](https://love.allwomenstalk.com/things-to-do-when-you-and-your-boyfriend-are-not-talking/)
 - [how to be a friend with a guy](https://love.allwomenstalk.com/tips-for-when-your-boyfriend-is-jealous-of-your-guy-friends/)
-- [boyfriend is busy with school](https://love.allwomenstalk.com/ways-to-make-time-for-him-during-a-busy-school-year/)
-- [i'll brag about you to my friends](https://love.allwomenstalk.com/ways-hell-brag-about-you-to-his-friends/)
 - [questions to ask your best friend's boyfriend](https://love.allwomenstalk.com/ways-to-respond-if-your-friends-boyfriend-hits-on-you/)
+- [i'll brag about you to my friends](https://love.allwomenstalk.com/ways-hell-brag-about-you-to-his-friends/)
 - [typical boy things](https://lifestyle.allwomenstalk.com/typically-guy-things-you-should-know-how-to-do/)
 - [tinder social experiment](https://lifestyle.allwomenstalk.com/social-experiment-changing-up-appearances-for-tinder-dates/)
-- [gif for crush](https://funny.allwomenstalk.com/gifs-to-use-the-next-time-you-talk-to-your-crush/)
 - [i can't wait to see you response](https://love.allwomenstalk.com/text-messages-your-guy-would-love-to-receive-from-you/)
-- [no one wants to be my friend](https://love.allwomenstalk.com/ways-to-handle-a-friend-wanting-to-date-you/)
 - [Flirty Texts for Him to Make His Day ...](https://love.allwomenstalk.com/text-flirting-ideas-to-try-today/)
 - [Rules of Flirting to Live by ...](https://allwomenstalk.com/rules-of-flirting/)
 

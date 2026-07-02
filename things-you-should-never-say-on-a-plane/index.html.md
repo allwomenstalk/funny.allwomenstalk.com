@@ -3,7 +3,7 @@ title: "7 Outrageous Things You Should Never Say on a Plane ..."
 description: "“That’s the Bomb!”; “Whoops, I Forgot My Deodorant…”; “Wow! You Look like That Girl from Lost!”; “I’ll Have Another Drink, Thanks!”; “I Knew I Shouldn’t Have Eaten That Curry…”; More ..."
 url: "https://funny.allwomenstalk.com/things-you-should-never-say-on-a-plane/"
 category: "funny"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Outrageous Things You Should Never Say on a Plane ...
@@ -42,15 +42,15 @@ I hope you had a little giggle about these things you shouldn’t say on a plane
 
 ## Related Posts
 
-- [paris riche le smoky java](https://movies.allwomenstalk.com/worst-things-about-going-to-the-movies/)
-- [7 First Date Deal Breakers ...](https://love.allwomenstalk.com/first-date-deal-breakers/)
 - [7 Worst Things to do at Your Workplace ...](https://inspiration.allwomenstalk.com/worst-things-to-do-at-your-workplace/)
-- [annoying things boyfriends do](https://love.allwomenstalk.com/annoying-things-boyfriends-do-that-you-should-forgive/)
 - [7 Social Media Don'ts That You're Better off Avoid...](https://lifestyle.allwomenstalk.com/social-media-donts-that-youre-better-off-avoiding/)
-- [7 Questions You Should Never Ask Your Partner ...](https://love.allwomenstalk.com/questions-you-should-never-ask-your-partner/)
+- [7 First Date Deal Breakers ...](https://love.allwomenstalk.com/first-date-deal-breakers/)
 - [7 Things You Should Never Say to Your Guy ...](https://love.allwomenstalk.com/things-you-should-never-say-to-your-guy/)
-- [9 Negative Things to Consciously Detach Yourself f...](https://inspiration.allwomenstalk.com/negative-things-to-consciously-detach-yourself-from/)
 - [week before your wedding](https://wedding.allwomenstalk.com/things-you-should-not-do-the-week-before-your-wedding/)
+- [annoying things boyfriends do](https://love.allwomenstalk.com/annoying-things-boyfriends-do-that-you-should-forgive/)
+- [7 Questions You Should Never Ask Your Partner ...](https://love.allwomenstalk.com/questions-you-should-never-ask-your-partner/)
+- [9 Negative Things to Consciously Detach Yourself f...](https://inspiration.allwomenstalk.com/negative-things-to-consciously-detach-yourself-from/)
+- [paris riche le smoky java](https://movies.allwomenstalk.com/worst-things-about-going-to-the-movies/)
 - [7 Stupid Things We've All Done when Crushing on So...](https://funny.allwomenstalk.com/stupid-things-weve-all-done-when-crushing-on-someone/)
 - [7 Things You Should Never Tell Your Kids ...](https://allwomenstalk.com/7-things-you-should-never-tell-your-kids/)
 - [7 Things Not to Say to Strangers ...](https://allwomenstalk.com/7-things-not-to-say-to-strangers/)

@@ -3,7 +3,7 @@ title: "7 Things to Avoid Saying during a First Date ..."
 description: "You Remind Me of My Ex; Let’s Get Hitched; You Looked Hotter on Facebook; I Hope You Brought Enough Money; I Love You; More ..."
 url: "https://funny.allwomenstalk.com/things-to-avoid-saying-during-a-first-date/"
 category: "funny"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Things to Avoid Saying during a First Date ...
@@ -43,15 +43,15 @@ The next time you're on a date, make sure to avoid saying something you'll regre
 ## Related Posts
 
 - [7 Things You Shouldn't Get Annoyed about ...](https://health.allwomenstalk.com/things-you-shouldnt-get-annoyed-about/)
-- [7 Things You Don't Want to Hear on a First Date .....](https://funny.allwomenstalk.com/things-you-dont-want-to-hear-on-a-first-date/)
 - [7 Silly Selfie Mistakes to Avoid at All Costs ...](https://funny.allwomenstalk.com/selfie-mistakes-to-avoid-at-all-costs/)
 - [loreal paris riche le stylo smoky endless pearl](https://lifestyle.allwomenstalk.com/things-you-shouldnt-feel-pressurized-into-doing/)
-- [7 Questionable Things You Should Never Snapchat .....](https://apps.allwomenstalk.com/questionable-things-you-should-never-snapchat/)
-- [7 Reasons You Should Not Wear Flip Flops ...](https://shoes.allwomenstalk.com/reasons-you-should-not-wear-flip-flops/)
+- [7 Things You Don't Want to Hear on a First Date .....](https://funny.allwomenstalk.com/things-you-dont-want-to-hear-on-a-first-date/)
+- [flight attendant attitude](https://travel.allwomenstalk.com/things-to-never-say-to-a-flight-attendant/)
+- [7 Things Mr Wrong Will Say on a Speed Date ...](https://love.allwomenstalk.com/things-mr-wrong-will-say-on-a-speed-date/)
 - [7 Things You Really Don't Need to Pack for a Holid...](https://travel.allwomenstalk.com/things-you-really-dont-need-to-pack-for-a-holiday/)
 - [7 Things Highly Focused People Don't do ...](https://inspiration.allwomenstalk.com/things-highly-focused-people-dont-do/)
-- [7 Things Mr Wrong Will Say on a Speed Date ...](https://love.allwomenstalk.com/things-mr-wrong-will-say-on-a-speed-date/)
-- [flight attendant attitude](https://travel.allwomenstalk.com/things-to-never-say-to-a-flight-attendant/)
+- [7 Questionable Things You Should Never Snapchat .....](https://apps.allwomenstalk.com/questionable-things-you-should-never-snapchat/)
+- [7 Reasons You Should Not Wear Flip Flops ...](https://shoes.allwomenstalk.com/reasons-you-should-not-wear-flip-flops/)
 - [5 Common First Date Mistakes You Should Avoid ...](https://allwomenstalk.com/common-first-date-mistakes-you-should-avoid/)
 - [8 Things to Avoid Saying during Sex ...](https://allwomenstalk.com/8-things-to-avoid-saying-during-sex/)
 

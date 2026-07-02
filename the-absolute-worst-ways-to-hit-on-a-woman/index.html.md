@@ -3,7 +3,7 @@ title: "The Absolute Worst Ways to Hit on a Woman ..."
 description: "Corny Pickup Lines; Catcalling; Just Staring; Too Much Bragging; Trying Too Hard to Be Manly; More ..."
 url: "https://funny.allwomenstalk.com/the-absolute-worst-ways-to-hit-on-a-woman/"
 category: "funny"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # The Absolute Worst Ways to Hit on a Woman ...
@@ -56,16 +56,16 @@ Men need to realize that hitting on women isn't a game. They should stop trying 
 
 ## Related Posts
 
-- [wish i didnt but i do](https://teen.allwomenstalk.com/things-i-wish-i-didnt-do-as-a-teenager/)
-- [include advice avoid](https://lifestyle.allwomenstalk.com/situations-where-its-best-to-avoid-giving-advice/)
 - [how many words per chapter in a novel](https://lifestyle.allwomenstalk.com/cliche-tropes-to-avoid-in-your-fiction-writing/)
-- [funny things couples fight about](https://love.allwomenstalk.com/the-absolute-silliest-things-couples-fight-over/)
-- [in this movie](https://health.allwomenstalk.com/a-cock-and-balls-story-things-you-should-never-do-to-a-mans-privates/)
-- [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
-- [dangerous things on the road](https://lifestyle.allwomenstalk.com/avoid-doing-these-dangerous-things-while-driving-friends-around/)
-- [selfie amsterdam](https://travel.allwomenstalk.com/gasp-places-where-you-cannot-use-your-selfie-stick/)
 - [things you should never say to your partner](https://love.allwomenstalk.com/things-you-should-never-say-to-someone-you-care-about/)
+- [funny things couples fight about](https://love.allwomenstalk.com/the-absolute-silliest-things-couples-fight-over/)
+- [dangerous things on the road](https://lifestyle.allwomenstalk.com/avoid-doing-these-dangerous-things-while-driving-friends-around/)
 - [never ever text](https://love.allwomenstalk.com/things-you-should-never-ever-text-your-ex/)
+- [include advice avoid](https://lifestyle.allwomenstalk.com/situations-where-its-best-to-avoid-giving-advice/)
+- [why do guys pressure you](https://love.allwomenstalk.com/things-you-should-never-let-a-guy-pressure-you-into/)
+- [selfie amsterdam](https://travel.allwomenstalk.com/gasp-places-where-you-cannot-use-your-selfie-stick/)
+- [in this movie](https://health.allwomenstalk.com/a-cock-and-balls-story-things-you-should-never-do-to-a-mans-privates/)
+- [wish i didnt but i do](https://teen.allwomenstalk.com/things-i-wish-i-didnt-do-as-a-teenager/)
 - [6 Things You Should Never Say to a Man ...](https://allwomenstalk.com/6-things-you-should-never-say-to-a-man/)
 - [8 Things Guys Should Not do in Front of Girls ...](https://allwomenstalk.com/8-things-guys-should-not-do-in-front-of-girls/)
 

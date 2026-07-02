@@ -3,7 +3,7 @@ title: "7 Old Sayings and Their Origins ..."
 description: "Break the Ice; Don’t Look a Gift Horse in the Mouth; Saved by the Bell; Foaming at the Mouth; A Frog in Your Throat?; More ..."
 url: "https://funny.allwomenstalk.com/old-sayings-and-their-origins/"
 category: "funny"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Old Sayings and Their Origins ...
@@ -42,15 +42,15 @@ I cannot tell you the amount of other amazing, wacky old saying origins my frien
 
 ## Related Posts
 
-- [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
-- [if you’re here, who’s running heaven?](https://funny.allwomenstalk.com/funny-replies-to-overused-pesky-pick-up-lines/)
-- [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
 - [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
-- [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
-- [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
-- [paris riche stylo smoky eye spark](https://inspiration.allwomenstalk.com/limiting-phrases-you-say-that-age-you/)
-- [50s slang for cool](https://funny.allwomenstalk.com/silly-slang-terms-from-the-50s-to-bring-back/)
 - [all intensive purposes other misused phrases](https://funny.allwomenstalk.com/commonly-misused-words-and-expressions-in-my-neck-of-the-woods/)
+- [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
+- [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
+- [50s slang for cool](https://funny.allwomenstalk.com/silly-slang-terms-from-the-50s-to-bring-back/)
+- [paris riche stylo smoky eye spark](https://inspiration.allwomenstalk.com/limiting-phrases-you-say-that-age-you/)
+- [if you’re here, who’s running heaven?](https://funny.allwomenstalk.com/funny-replies-to-overused-pesky-pick-up-lines/)
+- [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
+- [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
 - [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
 - [7 Weirdest Urban Legends ...](https://allwomenstalk.com/7-urban-legends/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)

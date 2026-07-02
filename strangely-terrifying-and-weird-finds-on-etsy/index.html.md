@@ -3,7 +3,7 @@ title: "7 Truly Bizarre and Unexpected Finds You Can Actually Buy on Etsy"
 description: "Tooth Knuckle Ring; Moose Poop Necklace; Fetus Soap; Turkey Tortoise Cozy; Pizza, Bacon and Dill Pickle Lip Balm; More ..."
 url: "https://funny.allwomenstalk.com/strangely-terrifying-and-weird-finds-on-etsy/"
 category: "funny"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Truly Bizarre and Unexpected Finds You Can Actually Buy on Etsy
@@ -56,16 +56,16 @@ Etsy really is a never-ending source of wonder! I am a huge fan of the platform,
 
 ## Related Posts
 
-- [scouting memorabilia](https://lifestyle.allwomenstalk.com/pieces-of-scout-memorabilia-that-might-bring-back-memories/)
-- [how to get your adrenaline pumping](https://lifestyle.allwomenstalk.com/adrenaline-pumping-achievements-to-make-that-you-can-brag-about/)
-- [popular vintage items](https://lifestyle.allwomenstalk.com/vintage-things-that-will-make-you-yearn-for-days-of-yore/)
 - [what sound does the rain make on umbrellas](https://lifestyle.allwomenstalk.com/umbrellas-to-make-you-smile-on-a-rainy-day/)
-- [cool vintage toys](https://lifestyle.allwomenstalk.com/fun-vintage-toys-you-might-have-played-with/)
-- [what are some things that are purple](https://lifestyle.allwomenstalk.com/things-that-show-the-power-of-purple/)
 - [pink fluffy landline phone](https://lifestyle.allwomenstalk.com/things-if-you-have-a-passion-for-pink/)
+- [what are some things that are purple](https://lifestyle.allwomenstalk.com/things-that-show-the-power-of-purple/)
+- [scouting memorabilia](https://lifestyle.allwomenstalk.com/pieces-of-scout-memorabilia-that-might-bring-back-memories/)
 - [anything orange](https://lifestyle.allwomenstalk.com/orange-things-to-prove-its-an-outstanding-color/)
-- [things for geeks](https://lifestyle.allwomenstalk.com/fun-things-for-geeks-to-drool-over/)
 - [pinterest bike](https://fitness.allwomenstalk.com/cool-bicycles-that-might-inspire-you-to-take-up-cycling/)
+- [popular vintage items](https://lifestyle.allwomenstalk.com/vintage-things-that-will-make-you-yearn-for-days-of-yore/)
+- [cool vintage toys](https://lifestyle.allwomenstalk.com/fun-vintage-toys-you-might-have-played-with/)
+- [how to get your adrenaline pumping](https://lifestyle.allwomenstalk.com/adrenaline-pumping-achievements-to-make-that-you-can-brag-about/)
+- [things for geeks](https://lifestyle.allwomenstalk.com/fun-things-for-geeks-to-drool-over/)
 - [7 Wonderful Wedding Dresses from Etsy ...](https://wedding.allwomenstalk.com/7-wonderful-wedding-dresses-from-etsy/)
 - [7 Unusual Rings from Anthropologie ...](https://jewelry.allwomenstalk.com/7-unusual-rings-from-anthropologie/)
 

@@ -3,7 +3,7 @@ title: "8 Bits of Hilarious Retro Dating Advice ..."
 description: "Don’t Be Sentimental; Don’t Use the Car Mirror; Don’t Sit Awkwardly; Don’t Dress in Front of Him; Don’t Be Careless; More ..."
 url: "https://funny.allwomenstalk.com/bits-of-hilarious-retro-dating-advice/"
 category: "funny"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 8 Bits of Hilarious Retro Dating Advice ...
@@ -62,16 +62,16 @@ Have you heard any hilarious retro dating advice? Whether it’s from a book or 
 
 ## Related Posts
 
-- [7 Ways Living Apart Can Benefit Your Relationship ...](https://love.allwomenstalk.com/ways-living-apart-can-benefit-your-relationship/)
-- [online dating infographic](https://love.allwomenstalk.com/adventures-in-love-dating-infographics/)
-- [The Very Best Things about Dating Your True Love ....](https://love.allwomenstalk.com/best-things-about-dating-your-true-love/)
-- [7 Ways to Recognize a Good Partner ...](https://love.allwomenstalk.com/ways-to-recognize-a-good-partner/)
-- [fighting with your partner use these 4 phrases](https://love.allwomenstalk.com/phrases-thatll-instantly-improve-your-relationship/)
-- [7 Ways to Know You Are in the Right Relationship ....](https://love.allwomenstalk.com/ways-to-know-you-are-in-the-right-relationship/)
 - [7 Important Things You Need to do before Starting ...](https://love.allwomenstalk.com/important-things-you-need-to-do-before-starting-your-next-relationship/)
-- [7 Reasons for Having Regular Date Nights ...](https://love.allwomenstalk.com/reasons-for-having-regular-date-nights/)
-- [7 Moments when Independence is Healthy in a Relati...](https://love.allwomenstalk.com/moments-when-independence-is-healthy-in-a-relationship/)
 - [7 Healthy Habits to Have in Your Relationship ...](https://love.allwomenstalk.com/healthy-habits-to-have-in-your-relationship/)
+- [The Very Best Things about Dating Your True Love ....](https://love.allwomenstalk.com/best-things-about-dating-your-true-love/)
+- [online dating infographic](https://love.allwomenstalk.com/adventures-in-love-dating-infographics/)
+- [fighting with your partner use these 4 phrases](https://love.allwomenstalk.com/phrases-thatll-instantly-improve-your-relationship/)
+- [7 Ways to Recognize a Good Partner ...](https://love.allwomenstalk.com/ways-to-recognize-a-good-partner/)
+- [7 Moments when Independence is Healthy in a Relati...](https://love.allwomenstalk.com/moments-when-independence-is-healthy-in-a-relationship/)
+- [7 Ways to Know You Are in the Right Relationship ....](https://love.allwomenstalk.com/ways-to-know-you-are-in-the-right-relationship/)
+- [7 Reasons for Having Regular Date Nights ...](https://love.allwomenstalk.com/reasons-for-having-regular-date-nights/)
+- [7 Ways Living Apart Can Benefit Your Relationship ...](https://love.allwomenstalk.com/ways-living-apart-can-benefit-your-relationship/)
 - [8 Tips on How to Find a Boyfriend ...](https://love.allwomenstalk.com/tips-on-how-to-find-a-boyfriend/)
 - [10 Wonderfully Unconventional but Impressively Eff...](https://love.allwomenstalk.com/wonderfully-unconventional-but-impressively-effective-online-dating-tips/)
 

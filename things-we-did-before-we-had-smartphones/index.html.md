@@ -3,7 +3,7 @@ title: "7 Things We Did before We Had Smartphones ..."
 description: "We Lived without Duckface; We Used Camcorders; We Googled by Ourselves; We Carried Nokia Bricks; We Dialed Numbers Ourselves; More ..."
 url: "https://funny.allwomenstalk.com/things-we-did-before-we-had-smartphones/"
 category: "funny"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Things We Did before We Had Smartphones ...
@@ -42,16 +42,16 @@ Some of these things we did for ourselves just a few years ago, but it seems lik
 
 ## Related Posts
 
-- [features for the iphone 6](https://apps.allwomenstalk.com/features-of-the-iphone-6-we-are-super-excited-for/)
-- [9 Simple Yet Incredible Inventions ...](https://lifestyle.allwomenstalk.com/simple-yet-incredible-inventions/)
 - [high calorie meals for toddlers](https://food.allwomenstalk.com/great-high-calorie-foods-for-your-picky-toddler/)
-- [7 of the Best Free Antivirus Software Programs ...](https://money.allwomenstalk.com/of-the-best-free-antivirus-software-programs/)
 - [7 Must-Have Luxury Items That We Never Saw Coming ...](https://fashion.allwomenstalk.com/must-have-luxury-items-that-we-never-saw-coming/)
-- [7 Amazing Kickstarter Campaigns to Support ...](https://lifestyle.allwomenstalk.com/amazing-kickstarter-campaigns-to-support/)
-- [7 Instant Video Subscriptions to Check out ...](https://movies.allwomenstalk.com/instant-video-subscriptions-to-check-out/)
 - [Ask Yourself These Questions before Your Next Purc...](https://money.allwomenstalk.com/questions-to-ask-yourself-before-spending-money/)
 - [Cardboard's More Interesting than You Think ...](https://diy.allwomenstalk.com/interesting-uses-for-cardboard/)
+- [7 Amazing Kickstarter Campaigns to Support ...](https://lifestyle.allwomenstalk.com/amazing-kickstarter-campaigns-to-support/)
 - [24 Super Sweet IPad Covers You Are Going to Love ....](https://gadgets.allwomenstalk.com/super-sweet-ipad-covers-you-are-going-to-love/)
+- [9 Simple Yet Incredible Inventions ...](https://lifestyle.allwomenstalk.com/simple-yet-incredible-inventions/)
+- [7 of the Best Free Antivirus Software Programs ...](https://money.allwomenstalk.com/of-the-best-free-antivirus-software-programs/)
+- [features for the iphone 6](https://apps.allwomenstalk.com/features-of-the-iphone-6-we-are-super-excited-for/)
+- [7 Instant Video Subscriptions to Check out ...](https://movies.allwomenstalk.com/instant-video-subscriptions-to-check-out/)
 - [7 Best Travel Apps for the IPhone ...](https://travel.allwomenstalk.com/7-best-travel-apps-for-the-iphone/)
 - [8 Diet Apps for Your Android Smartphone ...](https://lifestyle.allwomenstalk.com/diet-apps-for-your-android-smartphone/)
 

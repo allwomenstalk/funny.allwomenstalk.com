@@ -3,7 +3,7 @@ title: "9 Funny Replies for when You're Asked \"What's up?\" ..."
 description: "My Blood Pressure. Because of You; A Preposition; Your Time is up; It's a Bird... It's a Plane... It's Superman!; The Sky; More ..."
 url: "https://funny.allwomenstalk.com/funny-replies-for-when-youre-asked-whats-up/"
 category: "funny"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 9 Funny Replies for when You're Asked "What's up?" ...
@@ -50,16 +50,16 @@ Let's be honest, "not much" is the way you answer the question 99% of the time. 
 
 ## Related Posts
 
-- [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
-- [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
-- [crazy grandma memes](https://funny.allwomenstalk.com/hilarious-grandmas-has-yours-ever-given-you-advice-as-crazy-as-this/)
-- [holiday pickup line](https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/)
-- [funny i love you more](https://funny.allwomenstalk.com/funny-clever-responses-to-i-love-you/)
 - [hilarious period jokes](https://funny.allwomenstalk.com/comebacks-for-when-youre-asked-if-youre-on-your-period/)
-- [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
+- [crazy grandma memes](https://funny.allwomenstalk.com/hilarious-grandmas-has-yours-ever-given-you-advice-as-crazy-as-this/)
+- [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
 - [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
-- [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
 - [words that sound smart](https://lifestyle.allwomenstalk.com/words-thatll-make-you-sound-smart-when-you-use-them/)
+- [funny i love you more](https://funny.allwomenstalk.com/funny-clever-responses-to-i-love-you/)
+- [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
+- [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
+- [holiday pickup line](https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/)
+- [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
 - [9 Things Not to Say via Text Message ...](https://lifestyle.allwomenstalk.com/things-not-to-say-via-text-message/)
 - [7 Smart Answers to Silly and Irritating Questions ...](https://love.allwomenstalk.com/smart-answers-to-silly-and-irritating-questions/)
 

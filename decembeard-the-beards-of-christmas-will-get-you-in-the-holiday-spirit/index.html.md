@@ -3,7 +3,7 @@ title: "Decembeard: the 12 Beards of Christmas Will Get You in the Holiday Spiri
 description: "Christmas Tree; Santa; Mistletoe; Christmas Lights; Elf; More ..."
 url: "https://funny.allwomenstalk.com/decembeard-the-beards-of-christmas-will-get-you-in-the-holiday-spirit/"
 category: "funny"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Decembeard: the 12 Beards of Christmas Will Get You in the Holiday Spirit ...
@@ -68,16 +68,16 @@ Which of these were your favorite? You can see more of Sarah's photography on he
 
 ## Related Posts
 
-- [Merry Doggone Christmas: Perfect Presents for Your...](https://lifestyle.allwomenstalk.com/perfect-presents-for-your-pup/)
-- [17 Perfect Gifts for the Guy Who Has Everything .....](https://love.allwomenstalk.com/perfect-gifts-for-the-guy-who-has-everything/)
-- [Hop to It - Special Treats for Your Man's Easter B...](https://love.allwomenstalk.com/hop-to-it-special-treats-for-your-mans-easter-basket/)
-- [Got $20 in Your Pocket: Here Are Gifts for Him You...](https://lifestyle.allwomenstalk.com/got-20-in-your-pocket-here-are-gifts-for-him-you-can-buy-right-now/)
-- [7 Great Gifts for an Expectant Mom ...](https://parenting.allwomenstalk.com/great-gifts-for-an-expectant-mom/)
-- [Here's What's on Your Dad's Wish-List ...](https://eatial.com/heres-whats-on-your-dads-wish-list/)
 - [15 Gorgeous Gifts for the Girlfriend That They'll ...](https://love.allwomenstalk.com/gorgeous-gifts-for-the-girlfriend-that-theyll-actually-want/)
-- [Make the Man in Your Life Happy with One of These ...](https://lifestyle.allwomenstalk.com/make-the-man-in-your-life-happy-with-one-of-these-thoughtful-gifts/)
-- [Here's What Your Mom (or Any Mom) Wants You to Giv...](https://lifestyle.allwomenstalk.com/heres-what-your-mom-or-any-mom-wants-you-to-give-her/)
 - [17 Amazing Gifts for Her That She'll Fall in Love ...](https://gifts.allwomenstalk.com/amazing-gifts-for-her-that-shell-fall-in-love-with/)
+- [Got $20 in Your Pocket: Here Are Gifts for Him You...](https://lifestyle.allwomenstalk.com/got-20-in-your-pocket-here-are-gifts-for-him-you-can-buy-right-now/)
+- [Here's What Your Mom (or Any Mom) Wants You to Giv...](https://lifestyle.allwomenstalk.com/heres-what-your-mom-or-any-mom-wants-you-to-give-her/)
+- [Here's What's on Your Dad's Wish-List ...](https://eatial.com/heres-whats-on-your-dads-wish-list/)
+- [Make the Man in Your Life Happy with One of These ...](https://lifestyle.allwomenstalk.com/make-the-man-in-your-life-happy-with-one-of-these-thoughtful-gifts/)
+- [7 Great Gifts for an Expectant Mom ...](https://parenting.allwomenstalk.com/great-gifts-for-an-expectant-mom/)
+- [17 Perfect Gifts for the Guy Who Has Everything .....](https://love.allwomenstalk.com/perfect-gifts-for-the-guy-who-has-everything/)
+- [Merry Doggone Christmas: Perfect Presents for Your...](https://lifestyle.allwomenstalk.com/perfect-presents-for-your-pup/)
+- [Hop to It - Special Treats for Your Man's Easter B...](https://love.allwomenstalk.com/hop-to-it-special-treats-for-your-mans-easter-basket/)
 - [8 Things to Love about the Holiday Season ...](https://allwomenstalk.com/8-things-to-love-about-the-holiday-season/)
 - [8 Delightful Christmas Crafts ...](https://allwomenstalk.com/8-delightful-christmas-crafts/)
 

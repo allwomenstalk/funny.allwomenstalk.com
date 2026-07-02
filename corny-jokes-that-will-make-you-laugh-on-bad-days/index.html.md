@@ -3,7 +3,7 @@ title: "7 Corny Jokes That Will Make You Laugh on Bad Days ..."
 description: "Kinds of People; The Dictionary; The Body; The Bible; Cinderella; More ..."
 url: "https://funny.allwomenstalk.com/corny-jokes-that-will-make-you-laugh-on-bad-days/"
 category: "funny"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Corny Jokes That Will Make You Laugh on Bad Days ...
@@ -62,16 +62,16 @@ I feel its important to tell corny jokes every now and again because they can ma
 
 ## Related Posts
 
-- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
-- [each states nickname](https://travel.allwomenstalk.com/states-and-their-nicknames-well-its-51-if-you-include-the-usa-_/)
-- [comedy ted talks](https://funny.allwomenstalk.com/funny-ted-talks-thatll-make-you-laugh-in-no-time/)
-- [annoying everyday problems](https://funny.allwomenstalk.com/annoying-problems-only-writers-will-understand/)
-- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
-- [what does cuteness overload mean as an insult](https://inspiration.allwomenstalk.com/cool-foreign-words-without-an-english-translation/)
 - [trick riddles to ask your friends](https://funny.allwomenstalk.com/awesome-riddles-thatll-stump-your-friends/)
 - [nursery rhymes creepy origins](https://books.allwomenstalk.com/nursery-rhyme-origins-you-wont-expect/)
-- [funny notes to leave coworkers](https://funny.allwomenstalk.com/hysterically-funny-office-notes/)
 - [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
+- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
+- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
+- [annoying everyday problems](https://funny.allwomenstalk.com/annoying-problems-only-writers-will-understand/)
+- [funny notes to leave coworkers](https://funny.allwomenstalk.com/hysterically-funny-office-notes/)
+- [what does cuteness overload mean as an insult](https://inspiration.allwomenstalk.com/cool-foreign-words-without-an-english-translation/)
+- [each states nickname](https://travel.allwomenstalk.com/states-and-their-nicknames-well-its-51-if-you-include-the-usa-_/)
+- [comedy ted talks](https://funny.allwomenstalk.com/funny-ted-talks-thatll-make-you-laugh-in-no-time/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 - [7 Funny Jokes for Kids ...](https://allwomenstalk.com/7-funny-jokes-for-kids/)
 

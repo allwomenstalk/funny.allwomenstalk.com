@@ -3,7 +3,7 @@ title: "Brilliant Backhanded Compliments to Totally Disarm Your Enemy ..."
 description: "You Look so Good That I Didn't Recognize You; I Love How You Don’t Care What You Look like; You’re Smarter than You Look; I Wish I Were Confident Enough to Wear Something so Inappropriate; I Can't Believe Your Boyfriend Left You; More ..."
 url: "https://funny.allwomenstalk.com/backhanded-compliments-to-give-your-enemies/"
 category: "funny"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # Brilliant Backhanded Compliments to Totally Disarm Your Enemy ...
@@ -43,15 +43,15 @@ It pays to be nice. However, if someone treats you poorly, you can give them a t
 ## Related Posts
 
 - [trick for test](https://funny.allwomenstalk.com/trick-questions-most-people-will-get-wrong/)
-- [grommet australian slang](https://lifestyle.allwomenstalk.com/australian-words-and-phrases-you-should-steal/)
-- [latin bf](https://love.allwomenstalk.com/the-best-latin-words-to-use-as-pet-names-for-your-bf/)
-- [5 love languages infographic](https://lifestyle.allwomenstalk.com/love-languages-check-out-these-infographics-on-words-and-language/)
 - [names like serafina](https://parenting.allwomenstalk.com/unique-alternatives-to-common-baby-names/)
-- [swear words in hebrew](https://lifestyle.allwomenstalk.com/foreign-words-to-use-instead-of-cursing/)
 - [funny things to say when someone asks for your add...](https://funny.allwomenstalk.com/the-funniest-replies-to-are-you-okay/)
+- [5 love languages infographic](https://lifestyle.allwomenstalk.com/love-languages-check-out-these-infographics-on-words-and-language/)
+- [grommet australian slang](https://lifestyle.allwomenstalk.com/australian-words-and-phrases-you-should-steal/)
 - [texting etiquette friends](https://lifestyle.allwomenstalk.com/texting-etiquette-you-should-never-fail-to-follow/)
-- [how to end conversation](https://lifestyle.allwomenstalk.com/sneaky-ways-to-get-out-of-a-conversation-you-dont-want-to-have/)
+- [swear words in hebrew](https://lifestyle.allwomenstalk.com/foreign-words-to-use-instead-of-cursing/)
 - [facy words](https://lifestyle.allwomenstalk.com/fancy-words-to-replace-the-common-ones-you-always-use/)
+- [latin bf](https://love.allwomenstalk.com/the-best-latin-words-to-use-as-pet-names-for-your-bf/)
+- [how to end conversation](https://lifestyle.allwomenstalk.com/sneaky-ways-to-get-out-of-a-conversation-you-dont-want-to-have/)
 - [How to Compliment - or Insult - a Woman ...](https://allwomenstalk.com/how-to-compliment-or-insult-a-woman/)
 - [Extremely Helpful Tips on How to Be Approachable ....](https://love.allwomenstalk.com/extremely-helpful-tips-on-how-to-be-approachable/)
 

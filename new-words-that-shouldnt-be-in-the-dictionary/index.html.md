@@ -3,7 +3,7 @@ title: "7 New Words That Shouldn't Be in the Dictionary ..."
 description: "Amazeballs; Chillax; Adorbs; Mansplain; YOLO; More ..."
 url: "https://funny.allwomenstalk.com/new-words-that-shouldnt-be-in-the-dictionary/"
 category: "funny"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 New Words That Shouldn't Be in the Dictionary ...
@@ -42,16 +42,16 @@ I'm going to make a case for new words only being permitted if they are useful o
 
 ## Related Posts
 
-- [pickup in french](https://funny.allwomenstalk.com/french-pick-up-lines-that-are-as-corny-as-they-are-romantic/)
-- [scandalous meaning](https://love.allwomenstalk.com/complimentary-words-to-call-your-mate-instead-of-hot/)
-- [funny jokes on education](https://funny.allwomenstalk.com/jokes-about-school-for-those-who-arent-excited-about-returning/)
-- [importance of grammar quotes](https://funny.allwomenstalk.com/hysterical-quotes-for-grammar-nazis/)
-- [what to do if you didn't do your homework](https://funny.allwomenstalk.com/excuses-for-when-you-forget-your-homework/)
-- [only just saw this](https://funny.allwomenstalk.com/different-text-messages-and-what-they-really-mean/)
 - [color roses and their meaning](https://gardening.allwomenstalk.com/rose-colors-and-their-meanings-the-language-of-flowers/)
-- [harry pick up lines](https://funny.allwomenstalk.com/harry-potter-pick-up-lines-thatll-work-on-any-potterhead/)
-- [phrases people get wrong](https://funny.allwomenstalk.com/phrases-people-need-to-stop-using-incorrectly/)
+- [pickup in french](https://funny.allwomenstalk.com/french-pick-up-lines-that-are-as-corny-as-they-are-romantic/)
+- [funny jokes on education](https://funny.allwomenstalk.com/jokes-about-school-for-those-who-arent-excited-about-returning/)
 - [inappropriate spelling](https://funny.allwomenstalk.com/try-not-to-laugh-at-these-childrens-inappropriate-spelling-errors/)
+- [phrases people get wrong](https://funny.allwomenstalk.com/phrases-people-need-to-stop-using-incorrectly/)
+- [what to do if you didn't do your homework](https://funny.allwomenstalk.com/excuses-for-when-you-forget-your-homework/)
+- [scandalous meaning](https://love.allwomenstalk.com/complimentary-words-to-call-your-mate-instead-of-hot/)
+- [harry pick up lines](https://funny.allwomenstalk.com/harry-potter-pick-up-lines-thatll-work-on-any-potterhead/)
+- [importance of grammar quotes](https://funny.allwomenstalk.com/hysterical-quotes-for-grammar-nazis/)
+- [only just saw this](https://funny.allwomenstalk.com/different-text-messages-and-what-they-really-mean/)
 - [10 Most Annoying Words ...](https://allwomenstalk.com/10-most-annoying-words/)
 - [7 Phrases I Cordially Detest ...](https://allwomenstalk.com/7-phrases-i-cordially-detest/)
 

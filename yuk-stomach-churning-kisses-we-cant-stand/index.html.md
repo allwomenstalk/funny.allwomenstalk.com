@@ -3,7 +3,7 @@ title: "Yuk! 12 Stomach Churning Kisses We Can't Stand ..."
 description: "The \"I'm Looking for Lost Treasure in Your Mouth\" Kiss; The \"I'm a Puppy\" Kiss; The \"I'm Going to Eat You\" Kiss; The \"closed Mouth\" Kiss; The \"Eye Opener\"; More ..."
 url: "https://funny.allwomenstalk.com/yuk-stomach-churning-kisses-we-cant-stand/"
 category: "funny"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # Yuk! 12 Stomach Churning Kisses We Can't Stand ...
@@ -85,6 +85,7 @@ I'd love to hear some of your horror kiss stories!
 
 ## Related Posts
 
+- [tv shows for young adults](https://movies.allwomenstalk.com/young-adults-will-love-these-tv-shows/)
 - [what emojis does the google pixel have](https://funny.allwomenstalk.com/android-emoji-vs-iphone-emoji-epic-showdown/)
 - [where to watch pramface](https://movies.allwomenstalk.com/shows-you-should-watch-if-youre-obsessed-with-british-boys/)
 - [examples of single stories in real life](https://lifestyle.allwomenstalk.com/one-line-stories-that-will-blow-you-away/)
@@ -94,7 +95,6 @@ I'd love to hear some of your horror kiss stories!
 - [downton abbey hair styles](https://movies.allwomenstalk.com/shows-that-downton-abbey-fans-will-flip-over/)
 - [most addictive podcasts](https://lifestyle.allwomenstalk.com/extremely-addictive-podcasts-you-should-play-today/)
 - [tattoo skin stories](https://beauty.allwomenstalk.com/a-short-story-for-anyone-who-wants-a-tattoo/)
-- [tv shows for young adults](https://movies.allwomenstalk.com/young-adults-will-love-these-tv-shows/)
 - [8 Delicious Must-Have Movie Snacks ...](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
 - [12 Iconic Foods ...](https://cooking.allwomenstalk.com/12-iconic-foods/)
 

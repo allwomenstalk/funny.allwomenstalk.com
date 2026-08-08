@@ -3,7 +3,7 @@ title: "7 Silly Slang Terms from the '50s to Bring Back ..."
 description: "Backseat Bingo; Big Tickle; Wet Rag; Word from the Bird; Ankle-biter; More ..."
 url: "https://funny.allwomenstalk.com/silly-slang-terms-from-the-50s-to-bring-back/"
 category: "funny"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 7 Silly Slang Terms from the '50s to Bring Back ...
@@ -42,16 +42,16 @@ Hundreds of slang terms have died out, but we're capable of bringing them back. 
 
 ## Related Posts
 
-- [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
-- [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
-- [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
-- [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
-- [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
 - [all intensive purposes other misused phrases](https://funny.allwomenstalk.com/commonly-misused-words-and-expressions-in-my-neck-of-the-woods/)
-- [who invented tv shows](https://movies.allwomenstalk.com/words-invented-by-tv-shows/)
-- [7 Popular Sayings That Are Just Plain Dumb ...](https://lifestyle.allwomenstalk.com/popular-sayings-that-are-just-plain-dumb/)
-- [when something means something else](https://lifestyle.allwomenstalk.com/colloquial-words-that-used-to-mean-something-else/)
+- [coldest comebacks](https://funny.allwomenstalk.com/clever-comebacks-to-use-in-any-argument/)
 - [slang of the 80s](https://lifestyle.allwomenstalk.com/slang-words-from-the-80s-you-need-to-start-using/)
+- [when something means something else](https://lifestyle.allwomenstalk.com/colloquial-words-that-used-to-mean-something-else/)
+- [western slang terms](https://funny.allwomenstalk.com/funny-old-west-slang-terms-we-should-use-again/)
+- [7 Popular Sayings That Are Just Plain Dumb ...](https://lifestyle.allwomenstalk.com/popular-sayings-that-are-just-plain-dumb/)
+- [long smart sounding words](https://lifestyle.allwomenstalk.com/intelligent-sounding-words-you-can-easily-slip-into-a-conversation-today/)
+- [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
+- [who invented tv shows](https://movies.allwomenstalk.com/words-invented-by-tv-shows/)
+- [marvel chat up lines](https://funny.allwomenstalk.com/funny-comic-book-pick-up-lines-to-use-on-any-marvel-fan/)
 - [7 Words That Are Funny to Say ...](https://allwomenstalk.com/7-words-that-are-funny-to-say/)
 - [7 Commonly Misused Words and Expressions ...](https://lifestyle.allwomenstalk.com/commonly-misused-words-and-expressions/)
 

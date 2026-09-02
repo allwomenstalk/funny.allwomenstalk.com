@@ -3,7 +3,7 @@ title: "9 Ridiculous Excuses for when You Forget Your Homework ..."
 description: "Kanye West Ripped It up, Because He Thought Beyonce’s Homework Was Better; Aliens Took It as a Sample of Human Handwriting; My Friend Made a Paper Airplane out of It and It Landed on the Roof; My Mother Took It to Have It Framed; You Said to do Questions 1-10. You Didn't Say to Bring Them in; More ..."
 url: "https://funny.allwomenstalk.com/excuses-for-when-you-forget-your-homework/"
 category: "funny"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 9 Ridiculous Excuses for when You Forget Your Homework ...
@@ -50,16 +50,16 @@ Make sure you always do your homework, so you don't have to resort to any of the
 
 ## Related Posts
 
-- [phrases people get wrong](https://funny.allwomenstalk.com/phrases-people-need-to-stop-using-incorrectly/)
-- [inappropriate spelling](https://funny.allwomenstalk.com/try-not-to-laugh-at-these-childrens-inappropriate-spelling-errors/)
-- [color roses and their meaning](https://gardening.allwomenstalk.com/rose-colors-and-their-meanings-the-language-of-flowers/)
-- [scandalous meaning](https://love.allwomenstalk.com/complimentary-words-to-call-your-mate-instead-of-hot/)
-- [only just saw this](https://funny.allwomenstalk.com/different-text-messages-and-what-they-really-mean/)
-- [tsunaina plastic surgery](https://lifestyle.allwomenstalk.com/phrases-you-can-use-to-earn-trust/)
-- [negative words to remove from your vocabulary](https://inspiration.allwomenstalk.com/negative-words-to-remove-from-your-vocabulary-to-be-happier/)
-- [importance of grammar quotes](https://funny.allwomenstalk.com/hysterical-quotes-for-grammar-nazis/)
 - [slang of the 60s](https://funny.allwomenstalk.com/ridiculous-60s-slang-words-to-bring-back/)
+- [importance of grammar quotes](https://funny.allwomenstalk.com/hysterical-quotes-for-grammar-nazis/)
+- [tsunaina plastic surgery](https://lifestyle.allwomenstalk.com/phrases-you-can-use-to-earn-trust/)
+- [only just saw this](https://funny.allwomenstalk.com/different-text-messages-and-what-they-really-mean/)
+- [negative words to remove from your vocabulary](https://inspiration.allwomenstalk.com/negative-words-to-remove-from-your-vocabulary-to-be-happier/)
+- [color roses and their meaning](https://gardening.allwomenstalk.com/rose-colors-and-their-meanings-the-language-of-flowers/)
 - [harry pick up lines](https://funny.allwomenstalk.com/harry-potter-pick-up-lines-thatll-work-on-any-potterhead/)
+- [scandalous meaning](https://love.allwomenstalk.com/complimentary-words-to-call-your-mate-instead-of-hot/)
+- [inappropriate spelling](https://funny.allwomenstalk.com/try-not-to-laugh-at-these-childrens-inappropriate-spelling-errors/)
+- [phrases people get wrong](https://funny.allwomenstalk.com/phrases-people-need-to-stop-using-incorrectly/)
 - [10 Study Tips ...](https://allwomenstalk.com/10-study-tips/)
 - [10 Top Tips on Getting Ready for Exams ...](https://allwomenstalk.com/10-top-tips-on-getting-ready-for-exams/)
 

@@ -3,7 +3,7 @@ title: "23 Hysterically Funny Office Notes ..."
 description: "Get My Name Right, Dammit!; Leave My Stuff Alone #1; Brutally Honest Sign#1; Karma's a Bitch...; Clean up after Yourself #1; More ..."
 url: "https://funny.allwomenstalk.com/hysterically-funny-office-notes/"
 category: "funny"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 23 Hysterically Funny Office Notes ...
@@ -152,16 +152,16 @@ I had a really hard time deciding which funny office notes to post. I suppose a 
 
 ## Related Posts
 
-- [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
-- [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
-- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
 - [dating customs around the world](https://love.allwomenstalk.com/funny-dating-customs-around-the-world/)
-- [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
-- [comedy ted talks](https://funny.allwomenstalk.com/funny-ted-talks-thatll-make-you-laugh-in-no-time/)
 - [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
 - [gmaes to play when bored](https://funny.allwomenstalk.com/texting-games-to-play-when-youre-bored/)
+- [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
 - [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
+- [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
+- [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
+- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
 - [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
+- [comedy ted talks](https://funny.allwomenstalk.com/funny-ted-talks-thatll-make-you-laugh-in-no-time/)
 - [25 Funny Exam Answers ...](https://lifestyle.allwomenstalk.com/funny-exam-answers/)
 - [10 Wittiest One-Liners ...](https://allwomenstalk.com/10-wittiest-one-liners/)
 

@@ -3,7 +3,7 @@ title: "11 Lies All College Girls Tell Their Parents ..."
 description: "I Really Don’t Go out All That Often; I’m Actually Spending All Day in the Library; Yes, I Did My Laundry This Week; And I Cleaned My Room; Don’t Worry, I’m Eating Enough Fruits and Vegetables; More ..."
 url: "https://funny.allwomenstalk.com/lies-all-college-girls-tell-their-parents/"
 category: "funny"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 11 Lies All College Girls Tell Their Parents ...
@@ -80,16 +80,16 @@ Do you ever lie about any of these things?
 
 ## Related Posts
 
-- [lazy girl gif](https://health.allwomenstalk.com/how-lazy-girls-can-keep-themselves-healthy/)
-- [What Women Who Hate Working out Have to Deal with ...](https://funny.allwomenstalk.com/what-women-who-hate-working-out-have-to-deal-with/)
-- [act of deliciousness](https://funny.allwomenstalk.com/every-woman-will-understand-these-delicious-acts/)
-- [learn how to twerk for beginners](https://lifestyle.allwomenstalk.com/ladies-its-time-to-learn-how-to-twerk/)
-- [short girl problems meme](https://funny.allwomenstalk.com/embarrassing-situations-every-short-woman-has-lived-through/)
-- [what every woman should know](https://lifestyle.allwomenstalk.com/things-every-woman-should-know-in-case-of-an-emergency/)
-- [usopp bandages](https://money.allwomenstalk.com/things-a-woman-should-always-have-at-work/)
-- [how to become a feminist](https://lifestyle.allwomenstalk.com/how-to-become-a-better-feminist-in/)
 - [college girl do](https://lifestyle.allwomenstalk.com/every-college-girl-should-do-these-things-at-least-once/)
+- [usopp bandages](https://money.allwomenstalk.com/things-a-woman-should-always-have-at-work/)
+- [what every woman should know](https://lifestyle.allwomenstalk.com/things-every-woman-should-know-in-case-of-an-emergency/)
+- [learn how to twerk for beginners](https://lifestyle.allwomenstalk.com/ladies-its-time-to-learn-how-to-twerk/)
+- [how to become a feminist](https://lifestyle.allwomenstalk.com/how-to-become-a-better-feminist-in/)
+- [What Women Who Hate Working out Have to Deal with ...](https://funny.allwomenstalk.com/what-women-who-hate-working-out-have-to-deal-with/)
 - [when he calls you a strong woman](https://inspiration.allwomenstalk.com/bitchy-qualities-that-actually-make-you-a-strong-woman/)
+- [act of deliciousness](https://funny.allwomenstalk.com/every-woman-will-understand-these-delicious-acts/)
+- [lazy girl gif](https://health.allwomenstalk.com/how-lazy-girls-can-keep-themselves-healthy/)
+- [short girl problems meme](https://funny.allwomenstalk.com/embarrassing-situations-every-short-woman-has-lived-through/)
 - [8 Lies Us Women Always Tell ...](https://allwomenstalk.com/8-lies-us-women-always-tell/)
 - [10 Things Girls Keep Secret ...](https://allwomenstalk.com/10-things-girls-keep-secret/)
 

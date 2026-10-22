@@ -3,7 +3,7 @@ title: "Hilarious Grandmas: Has Yours Ever Given You Advice as Crazy as This? ..
 description: "Hilarious Tits Advice; Taco Situation. Really, Grandma?; Toilet Paper Roll; My Grandma is a Playa; Clever anti-Smoking Campaign; More ..."
 url: "https://funny.allwomenstalk.com/hilarious-grandmas-has-yours-ever-given-you-advice-as-crazy-as-this/"
 category: "funny"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # Hilarious Grandmas: Has Yours Ever Given You Advice as Crazy as This? ...
@@ -55,15 +55,15 @@ So, how about your grandmas - any weird advice? I'm sure there must be some! Pas
 
 ## Related Posts
 
-- [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
 - [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
-- [holiday pickup line](https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/)
-- [crush funny flirty flirty quotes](https://funny.allwomenstalk.com/funny-quotes-about-the-difficulty-of-flirting/)
 - [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
-- [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
+- [crush funny flirty flirty quotes](https://funny.allwomenstalk.com/funny-quotes-about-the-difficulty-of-flirting/)
 - [new year pickup line](https://funny.allwomenstalk.com/pick-up-lines-to-use-around-new-years/)
-- [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
+- [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
+- [holiday pickup line](https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/)
+- [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
 - [words that sound smart](https://lifestyle.allwomenstalk.com/words-thatll-make-you-sound-smart-when-you-use-them/)
+- [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
 - [funny i love you more](https://funny.allwomenstalk.com/funny-clever-responses-to-i-love-you/)
 - [8 Things Mothers like to Say ...](https://parenting.allwomenstalk.com/8-things-mothers-like-to-say/)
 - [The Grandparents' Book: Teaching Grandmothers to S...](https://allwomenstalk.com/the-grandparents-book-teaching-grandmothers-to-suck-eggs/)

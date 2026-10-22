@@ -3,7 +3,7 @@ title: "What Does Your Cat do While You're Away? Cat Selfies!"
 description: "What... the?!; Paw's in the Way; In the Plants; Perfect!; With My Human; More ..."
 url: "https://funny.allwomenstalk.com/what-does-your-cat-do-while-youre-away-cat-selfies/"
 category: "funny"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # What Does Your Cat do While You're Away? Cat Selfies!
@@ -186,16 +186,16 @@ Source: [14 Tips For Taking The](https://www.buzzfeed.com/expresident/tips-for-t
 
 ## Related Posts
 
+- [photoshoot ideas for puppies](https://lifestyle.allwomenstalk.com/absolutely-adorable-pet-photography-ideas-for-your-next-photo-shoot/)
+- [if animals could talk](https://funny.allwomenstalk.com/if-animals-could-talk/)
+- [domesticated wild animals](https://lifestyle.allwomenstalk.com/wild-animals-that-are-becoming-domesticated-household-pets/)
+- [animals that are surprisingly dangerous](https://lifestyle.allwomenstalk.com/surprisingly-deadly-animals-youve-never-even-heard-of/)
+- [animals gifs](https://funny.allwomenstalk.com/these-animal-gifs-will-definitely-make-your-day/)
 - [good pets to have](https://love.allwomenstalk.com/the-best-pets-to-raise-with-your-boyfriend/)
 - [animals with bow ties](https://funny.allwomenstalk.com/how-adorkable-are-these-animals-in-bow-ties/)
-- [animals gifs](https://funny.allwomenstalk.com/these-animal-gifs-will-definitely-make-your-day/)
-- [if animals could talk](https://funny.allwomenstalk.com/if-animals-could-talk/)
 - [cloud animals](https://lifestyle.allwomenstalk.com/amazing-nature-clouds-that-look-like-animals/)
-- [animals that are surprisingly dangerous](https://lifestyle.allwomenstalk.com/surprisingly-deadly-animals-youve-never-even-heard-of/)
-- [photoshoot ideas for puppies](https://lifestyle.allwomenstalk.com/absolutely-adorable-pet-photography-ideas-for-your-next-photo-shoot/)
-- [all cats are beautiful tattoo](https://beauty.allwomenstalk.com/meow-check-out-these-best-ever-kitty-tattoos/)
 - [spirit animal tattoo](https://beauty.allwomenstalk.com/find-your-inner-wild-with-these-gorgeous-spirit-animal-tattoos/)
-- [domesticated wild animals](https://lifestyle.allwomenstalk.com/wild-animals-that-are-becoming-domesticated-household-pets/)
+- [all cats are beautiful tattoo](https://beauty.allwomenstalk.com/meow-check-out-these-best-ever-kitty-tattoos/)
 - [10 Things to Daydream about ...](https://lifestyle.allwomenstalk.com/things-to-daydream-about/)
 - [7 Things Couples Can do Online Together ...](https://allwomenstalk.com/7-things-couples-can-do-online-together/)
 

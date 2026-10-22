@@ -3,7 +3,7 @@ title: "7 Funny TED Talks That'll Make You Laugh in No Time ..."
 description: "Maz Jobrani; Seth Godin; Improv Everywhere; Carin Bondar; Joe Kowan; More ..."
 url: "https://funny.allwomenstalk.com/funny-ted-talks-thatll-make-you-laugh-in-no-time/"
 category: "funny"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # 7 Funny TED Talks That'll Make You Laugh in No Time ...
@@ -43,15 +43,15 @@ Laughter is the best medicine so I think it’s great to learn something while d
 ## Related Posts
 
 - [gmaes to play when bored](https://funny.allwomenstalk.com/texting-games-to-play-when-youre-bored/)
-- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
-- [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
-- [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
-- [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
-- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
-- [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
 - [dating customs around the world](https://love.allwomenstalk.com/funny-dating-customs-around-the-world/)
-- [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
+- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
+- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
+- [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
+- [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
 - [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
+- [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
+- [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
+- [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
 - [7 Reasons to Laugh More ...](https://allwomenstalk.com/7-reasons-to-laugh-more/)
 - [7 Things That Make Me Laugh ...](https://allwomenstalk.com/7-things-that-make-me-laugh/)
 

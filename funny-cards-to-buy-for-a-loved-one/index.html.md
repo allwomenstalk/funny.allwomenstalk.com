@@ -3,7 +3,7 @@ title: "15 Funny Cards to Buy for a Loved One ..."
 description: "Old Age; Clever and Cute; Anniversary Embarrassment; Poor Santa; Get Well; More ..."
 url: "https://funny.allwomenstalk.com/funny-cards-to-buy-for-a-loved-one/"
 category: "funny"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # 15 Funny Cards to Buy for a Loved One ...
@@ -104,16 +104,16 @@ The next time you're picking out a card, don't ignore the funny ones! Sometimes,
 
 ## Related Posts
 
-- [awful gifts](https://lifestyle.allwomenstalk.com/of-the-worst-gifts-to-give-your-friends/)
-- [healthy easter baskets](https://health.allwomenstalk.com/ideas-for-a-healthier-easter-basket/)
-- [pink things to put in a gift basket](https://parenting.allwomenstalk.com/fun-things-to-put-in-your-childrens-easter-baskets/)
-- [gift ideas for long distance relationships](https://love.allwomenstalk.com/gift-ideas-to-survive-a-long-distance-relationship/)
-- [harry potter candy amazon](https://lifestyle.allwomenstalk.com/harry-potter-themed-party-and-gift-ideas/)
-- [lingerie gift for bride](https://wedding.allwomenstalk.com/bridal-shower-gifts-any-bride-will-love-to-receive/)
-- [gifts for high school graduate](https://parenting.allwomenstalk.com/great-high-school-graduate-gifts/)
 - [harry potter thank you gifts](https://lifestyle.allwomenstalk.com/awesome-gifts-for-someone-who-loves-harry-potter/)
+- [healthy easter baskets](https://health.allwomenstalk.com/ideas-for-a-healthier-easter-basket/)
+- [lingerie gift for bride](https://wedding.allwomenstalk.com/bridal-shower-gifts-any-bride-will-love-to-receive/)
+- [pink things to put in a gift basket](https://parenting.allwomenstalk.com/fun-things-to-put-in-your-childrens-easter-baskets/)
 - [things to get for my boyfriend on his birthday](https://love.allwomenstalk.com/things-to-get-him-for-his-birthday/)
+- [gifts for high school graduate](https://parenting.allwomenstalk.com/great-high-school-graduate-gifts/)
+- [harry potter candy amazon](https://lifestyle.allwomenstalk.com/harry-potter-themed-party-and-gift-ideas/)
 - [coolest baby shower gifts](https://parenting.allwomenstalk.com/unique-baby-shower-gift-ideas-you-can-give/)
+- [gift ideas for long distance relationships](https://love.allwomenstalk.com/gift-ideas-to-survive-a-long-distance-relationship/)
+- [awful gifts](https://lifestyle.allwomenstalk.com/of-the-worst-gifts-to-give-your-friends/)
 - [15 Homemade Gift Ideas They'll Love ...](https://lifestyle.allwomenstalk.com/homemade-gift-ideas-theyll-love/)
 - [10 Favourite Cards for Mother's Day ...](https://allwomenstalk.com/10-favourite-cards-for-mothers-day/)
 

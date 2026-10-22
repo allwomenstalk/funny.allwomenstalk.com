@@ -3,7 +3,7 @@ title: "7 Awful Marriage Proposals That Will Make You Cringe ..."
 description: "Think before You Act; The Show off; The Break up; The Diet; The Hidden Ring; More ..."
 url: "https://funny.allwomenstalk.com/awful-marriage-proposals-that-will-make-you-cringe/"
 category: "funny"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # 7 Awful Marriage Proposals That Will Make You Cringe ...
@@ -43,15 +43,15 @@ Of course, for all of these awful marriage proposals, there will be loads of ult
 ## Related Posts
 
 - [marriage in december](https://wedding.allwomenstalk.com/reasons-to-have-an-indian-wedding-in-december/)
-- [underwater weddings](https://wedding.allwomenstalk.com/girls-who-channelled-their-inner-mermaid-underwater-weddings/)
-- [superhero groomsmen](https://wedding.allwomenstalk.com/an-album-of-some-of-the-funniest-wedding-photos-in-the-world-wait-till-you-see-40/)
-- [simple beach wedding ideas](https://wedding.allwomenstalk.com/a-fully-packed-ideas-book-for-a-beach-wedding/)
-- [outdoor church wedding](https://wedding.allwomenstalk.com/ideas-for-your-outdoor-wedding/)
-- [bye bye to bachelor life quotes](https://funny.allwomenstalk.com/adorably-silly-quotes-about-being-a-bride/)
-- [nature themed wedding cakes](https://wedding.allwomenstalk.com/say-yes-to-these-outdoor-themed-rustic-wedding-cakes/)
 - [infographic wedding](https://wedding.allwomenstalk.com/make-it-the-best-day-ever-wedding-infographics-for-all-you-need-to-know/)
-- [garden wedding arches](https://wedding.allwomenstalk.com/wedding-arches-arbors-and-backdrops/)
 - [how to make a bridal veil with comb](https://diy.allwomenstalk.com/wonderfully-beautiful-wedding-veils-you-can-make-yourself/)
+- [garden wedding arches](https://wedding.allwomenstalk.com/wedding-arches-arbors-and-backdrops/)
+- [bye bye to bachelor life quotes](https://funny.allwomenstalk.com/adorably-silly-quotes-about-being-a-bride/)
+- [outdoor church wedding](https://wedding.allwomenstalk.com/ideas-for-your-outdoor-wedding/)
+- [underwater weddings](https://wedding.allwomenstalk.com/girls-who-channelled-their-inner-mermaid-underwater-weddings/)
+- [simple beach wedding ideas](https://wedding.allwomenstalk.com/a-fully-packed-ideas-book-for-a-beach-wedding/)
+- [superhero groomsmen](https://wedding.allwomenstalk.com/an-album-of-some-of-the-funniest-wedding-photos-in-the-world-wait-till-you-see-40/)
+- [nature themed wedding cakes](https://wedding.allwomenstalk.com/say-yes-to-these-outdoor-themed-rustic-wedding-cakes/)
 - [7 Weird Wedding Laws …](https://wedding.allwomenstalk.com/7-weird-wedding-laws/)
 - [7 Wackiest Proposals Ever ...](https://wedding.allwomenstalk.com/7-wackiest-proposals-ever/)
 

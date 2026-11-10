@@ -1,9 +1,9 @@
 ---
 title: "17 Embarrassing Things Our Parents Say over Text ..."
-description: "Swiffer...?; That's Mom's Job; I Don't Run Google Mom; AIDS; IDK; More ..."
+description: "Swiffer...?; That's Mom's Job; I Don't Run Google Mom; AIDS; IDK"
 url: "https://funny.allwomenstalk.com/embarrassing-things-our-parents-say-over-text/"
 category: "funny"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 17 Embarrassing Things Our Parents Say over Text ...
@@ -74,15 +74,15 @@ How many times has your mom or dad texted you something that is so, so embarrass
 
 ## Related Posts
 
-- [funniest roses are red poems](https://funny.allwomenstalk.com/the-funniest-lines-to-use-when-dumping-him/)
-- [site:allwomenstalk.com](https://funny.allwomenstalk.com/funny-comebacks-to-catcalls/)
-- [emoji pick up lines](https://funny.allwomenstalk.com/the-biggest-pick-up-line-failures/)
-- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
 - [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
-- [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
-- [how to professionally say someone is lazy](https://funny.allwomenstalk.com/the-best-comebacks-for-being-called-lazy/)
-- [aussie pick up lines](https://lifestyle.allwomenstalk.com/australian-slang-terms-you-havent-heard/)
+- [site:allwomenstalk.com](https://funny.allwomenstalk.com/funny-comebacks-to-catcalls/)
+- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
 - [apocalypse jokes](https://funny.allwomenstalk.com/dad-jokes-that-will-actually-make-you-laugh/)
+- [aussie pick up lines](https://lifestyle.allwomenstalk.com/australian-slang-terms-you-havent-heard/)
+- [how to professionally say someone is lazy](https://funny.allwomenstalk.com/the-best-comebacks-for-being-called-lazy/)
+- [funniest roses are red poems](https://funny.allwomenstalk.com/the-funniest-lines-to-use-when-dumping-him/)
+- [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
+- [emoji pick up lines](https://funny.allwomenstalk.com/the-biggest-pick-up-line-failures/)
 - [recent additions to the dictionary](https://lifestyle.allwomenstalk.com/a-few-new-words-being-added-to-the-dictionary/)
 - [9 Things Not to Say via Text Message ...](https://lifestyle.allwomenstalk.com/things-not-to-say-via-text-message/)
 - [7 Things Your Mother-in-Law Wants to Say but Won't...](https://allwomenstalk.com/7-things-your-mother-in-law-wants-to-say-but-wont/)

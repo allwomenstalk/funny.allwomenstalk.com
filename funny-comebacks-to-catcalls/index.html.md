@@ -1,9 +1,9 @@
 ---
 title: "Funny Comebacks to Catcalls ..."
-description: "If Someone Tells You to Smile, Put on the Creepiest Grin You Can; \"You Couldn't Afford Me.\"; \"do You Kiss Your Mother with That Mouth?\"; \"Does That Ever Work?\"; If Someone Tells You \"Nice Tits\" or \"You're Beautiful,\" Just Say \"I Know.\"; More ..."
+description: "If Someone Tells You to Smile, Put on the Creepiest Grin You Can; \"You Couldn't Afford Me.\"; \"do You Kiss Your Mother with That Mouth?\""
 url: "https://funny.allwomenstalk.com/funny-comebacks-to-catcalls/"
 category: "funny"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Funny Comebacks to Catcalls ...
@@ -50,14 +50,14 @@ What other ideas can you come up with?
 
 ## Related Posts
 
-- [if you were a holiday you'd be pick up line](https://love.allwomenstalk.com/pickup-lines-to-use-underneath-the-mistletoe/)
 - [sign language russian](https://lifestyle.allwomenstalk.com/sign-language-infographics-thatll-make-you-smarter/)
-- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
-- [11 rules of grammar](https://lifestyle.allwomenstalk.com/grammar-rules-that-most-people-have-never-learned/)
+- [if you were a holiday you'd be pick up line](https://love.allwomenstalk.com/pickup-lines-to-use-underneath-the-mistletoe/)
 - [words that should exist but don't](https://lifestyle.allwomenstalk.com/words-that-dont-exist-but-should/)
-- [canadian vocabulary](https://lifestyle.allwomenstalk.com/common-canadian-words-you-should-steal/)
+- [11 rules of grammar](https://lifestyle.allwomenstalk.com/grammar-rules-that-most-people-have-never-learned/)
 - [how do you say hi in other languages](https://lifestyle.allwomenstalk.com/how-to-say-hello-in-languages-from-around-the-world/)
+- [canadian vocabulary](https://lifestyle.allwomenstalk.com/common-canadian-words-you-should-steal/)
 - [how to talk in different languages](https://love.allwomenstalk.com/how-to-talk-dirty-in-different-languages/)
+- [phubbing urban dictionary](https://lifestyle.allwomenstalk.com/urban-dictionary-words-you-need-to-know-to-survive-in/)
 - [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
 - [psychology of a nosy person](https://funny.allwomenstalk.com/comebacks-for-all-of-the-nosy-people-in-your-life/)
 - [3 Funny Jokes for Girls!](https://allwomenstalk.com/funny-jokes-for-girls/)

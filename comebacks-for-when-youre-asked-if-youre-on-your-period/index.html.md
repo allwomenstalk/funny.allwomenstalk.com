@@ -1,9 +1,9 @@
 ---
 title: "7 Comebacks for when You're Asked if You're on Your Period ..."
-description: "I Won't Be the Only One Bleeding if You Ask Me That Again; I'd Explain the Menstrual Cycle to You, but I'm Afraid You Don't Know Enough about the Female Anatomy; Make like an Egg and Expel Yourself from My Vicinity; Yeah, I'm a Woman Now. and You're Obviously Still a Boy; I'm Going to Barf. Not from Cramps, from Talking to You; More ..."
+description: "I Won't Be the Only One Bleeding if You Ask Me That Again"
 url: "https://funny.allwomenstalk.com/comebacks-for-when-youre-asked-if-youre-on-your-period/"
 category: "funny"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Comebacks for when You're Asked if You're on Your Period ...
@@ -44,16 +44,16 @@ Having a period isn't a walk in the park, which is why it shouldn't be made fun 
 
 ## Related Posts
 
-- [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
 - [crazy grandma memes](https://funny.allwomenstalk.com/hilarious-grandmas-has-yours-ever-given-you-advice-as-crazy-as-this/)
-- [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
 - [holiday pickup line](https://funny.allwomenstalk.com/holiday-themed-pick-up-lines/)
-- [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
-- [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
+- [good excuses for not texting back for days](https://funny.allwomenstalk.com/funny-excuses-for-not-texting-someone-back/)
 - [new year pickup line](https://funny.allwomenstalk.com/pick-up-lines-to-use-around-new-years/)
+- [ideas for compliments](https://inspiration.allwomenstalk.com/cute-compliments-to-give-that-arent-about-appearance/)
 - [funny i love you more](https://funny.allwomenstalk.com/funny-clever-responses-to-i-love-you/)
-- [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
 - [words that sound smart](https://lifestyle.allwomenstalk.com/words-thatll-make-you-sound-smart-when-you-use-them/)
+- [best response to how are you doing today](https://funny.allwomenstalk.com/humorous-replies-to-how-are-you/)
+- [funny women gif](https://funny.allwomenstalk.com/gifs-to-use-as-pick-up-lines/)
+- [ways to increase your vocabulary](https://lifestyle.allwomenstalk.com/fantastic-ways-to-increase-your-vocabulary/)
 - [7 Smart Answers to Silly and Irritating Questions ...](https://love.allwomenstalk.com/smart-answers-to-silly-and-irritating-questions/)
 - [7 Classic White Lies Women Tell ...](https://love.allwomenstalk.com/classic-white-lies-women-tell/)
 

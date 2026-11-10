@@ -1,9 +1,9 @@
 ---
 title: "9 Hilarious Leslie Knope Quotes That'll Make You Love Her ..."
-description: "Priorities; Reassurance; What Diet?; Anti-eagleton; Youth Culture; More ..."
+description: "Priorities; Reassurance; What Diet?; Anti-eagleton; Youth Culture"
 url: "https://funny.allwomenstalk.com/hilarious-leslie-knope-quotes-thatll-make-you-love-her/"
 category: "funny"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 9 Hilarious Leslie Knope Quotes That'll Make You Love Her ...
@@ -68,16 +68,16 @@ Well, there you have it! These are just seven out of MANY hilarious Leslie Knope
 
 ## Related Posts
 
-- [what is thomas jefferson's famous quote](https://inspiration.allwomenstalk.com/quotes-from-thomas-jefferson-that-we-can-still-learn-from/)
 - [princess diana quotes kindness](https://inspiration.allwomenstalk.com/inspiring-and-uplifting-quotes-by-princess-diana/)
-- [grey's anatomy motivational quotes](https://inspiration.allwomenstalk.com/profoundly-relatable-and-inspiring-quotes-from-greys-anatomy/)
-- [quotes on alaska](https://books.allwomenstalk.com/brilliant-quotes-from-looking-for-alaska/)
-- [love quotes from classic literature](https://books.allwomenstalk.com/incredible-quotes-from-classic-novels/)
-- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
 - [socrates quotes on youth](https://inspiration.allwomenstalk.com/wise-words-from-socrates-that-ring-true-even-today/)
-- [the fault in our stars book quotes](https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/)
-- [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
 - [it's our choices harry potter quotes](https://books.allwomenstalk.com/uplifting-quotes-from-the-harry-potter-series/)
+- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
+- [the fault in our stars book quotes](https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/)
+- [love quotes from classic literature](https://books.allwomenstalk.com/incredible-quotes-from-classic-novels/)
+- [quotes on alaska](https://books.allwomenstalk.com/brilliant-quotes-from-looking-for-alaska/)
+- [what is thomas jefferson's famous quote](https://inspiration.allwomenstalk.com/quotes-from-thomas-jefferson-that-we-can-still-learn-from/)
+- [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
+- [grey's anatomy motivational quotes](https://inspiration.allwomenstalk.com/profoundly-relatable-and-inspiring-quotes-from-greys-anatomy/)
 - [9 Celebrities That Make Me Laugh ...](https://7fun.net/9-celebrities-that-make-me-laugh/)
 - [9 of the Best Ellen DeGeneres Quotes That Are Tota...](https://inspiration.allwomenstalk.com/of-the-best-ellen-degeneres-quotes-that-are-totally-inspirational/)
 

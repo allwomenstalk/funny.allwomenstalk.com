@@ -1,9 +1,9 @@
 ---
 title: "7 Corny Jokes That Will Make You Laugh on Bad Days ..."
-description: "Kinds of People; The Dictionary; The Body; The Bible; Cinderella; More ..."
+description: "Kinds of People; The Dictionary; The Body; The Bible; Cinderella"
 url: "https://funny.allwomenstalk.com/corny-jokes-that-will-make-you-laugh-on-bad-days/"
 category: "funny"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Corny Jokes That Will Make You Laugh on Bad Days ...
@@ -62,16 +62,16 @@ I feel its important to tell corny jokes every now and again because they can ma
 
 ## Related Posts
 
+- [comedy ted talks](https://funny.allwomenstalk.com/funny-ted-talks-thatll-make-you-laugh-in-no-time/)
 - [each states nickname](https://travel.allwomenstalk.com/states-and-their-nicknames-well-its-51-if-you-include-the-usa-_/)
-- [what does cuteness overload mean as an insult](https://inspiration.allwomenstalk.com/cool-foreign-words-without-an-english-translation/)
-- [nursery rhymes creepy origins](https://books.allwomenstalk.com/nursery-rhyme-origins-you-wont-expect/)
+- [funny notes to leave coworkers](https://funny.allwomenstalk.com/hysterically-funny-office-notes/)
 - [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
-- [trick riddles to ask your friends](https://funny.allwomenstalk.com/awesome-riddles-thatll-stump-your-friends/)
 - [annoying everyday problems](https://funny.allwomenstalk.com/annoying-problems-only-writers-will-understand/)
 - [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
-- [comedy ted talks](https://funny.allwomenstalk.com/funny-ted-talks-thatll-make-you-laugh-in-no-time/)
-- [funny notes to leave coworkers](https://funny.allwomenstalk.com/hysterically-funny-office-notes/)
 - [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
+- [nursery rhymes creepy origins](https://books.allwomenstalk.com/nursery-rhyme-origins-you-wont-expect/)
+- [trick riddles to ask your friends](https://funny.allwomenstalk.com/awesome-riddles-thatll-stump-your-friends/)
+- [what does cuteness overload mean as an insult](https://inspiration.allwomenstalk.com/cool-foreign-words-without-an-english-translation/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 - [7 Funny Jokes for Kids ...](https://allwomenstalk.com/7-funny-jokes-for-kids/)
 

@@ -1,9 +1,9 @@
 ---
 title: "7 Silly Things You'll Put up with when You're in Love ..."
-description: "Severe Snoring; Fewer Items of Food; Stuck with Their Shows; Hair Everywhere; Sour Singing; More ..."
+description: "Severe Snoring; Fewer Items of Food; Stuck with Their Shows; Hair Everywhere; Sour Singing"
 url: "https://funny.allwomenstalk.com/silly-things-youll-put-up-with-when-youre-in-love/"
 category: "funny"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Silly Things You'll Put up with when You're in Love ...
@@ -43,7 +43,6 @@ There are things you wish your partner didn't do, but you'll love them no matter
 ## Related Posts
 
 - [how is your dating life going](https://love.allwomenstalk.com/pieces-of-advice-to-change-your-dating-life-from-now-on/)
-- [If You Are Dating a Single Parent Read This ...](https://love.allwomenstalk.com/compelling-reasons-to-date-a-single-parent/)
 - [old school dating](https://love.allwomenstalk.com/things-we-miss-about-old-school-dating/)
 - [11 Awesome Ways to Get the Love Life You Really Wa...](https://love.allwomenstalk.com/awesome-ways-to-get-the-love-life-you-really-want/)
 - [summer romance meaning](https://love.allwomenstalk.com/things-to-keep-in-mind-when-you-have-a-summer-romance/)
@@ -52,6 +51,7 @@ There are things you wish your partner didn't do, but you'll love them no matter
 - [Why Going on an Adventure Can Improve Your Relatio...](https://love.allwomenstalk.com/reasons-why-traveling-together-is-good-for-your-relationship/)
 - [7 Ways to Maintain High Standards and Still Find L...](https://love.allwomenstalk.com/ways-to-maintain-high-standards-and-still-find-love/)
 - [7 Things Healthy Couples Should do Every Single Da...](https://love.allwomenstalk.com/things-healthy-couples-should-do-every-single-day/)
+- [If You Are Dating a Single Parent Read This ...](https://love.allwomenstalk.com/compelling-reasons-to-date-a-single-parent/)
 - [9 Crazy Things People do when They're in Love ...](https://allwomenstalk.com/9-crazy-things-people-do-when-theyre-in-love/)
 - [7 Telling Signs That You Are in Love ...](https://allwomenstalk.com/7-telling-signs-that-you-are-in-love/)
 
